@@ -1,7 +1,7 @@
 
 # 零点看书吧-书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-06 03:27:22
+更新时间：2026-09-07 03:28:29
 
 零点看书吧是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节。作为无弹窗的小说阅读平台，零点看书吧成为网络小说爱好者必备的选择。
 
@@ -17,6 +17,7 @@
 - [这个替嫁让我来！](https://www.gjnbgb.com/book/2s9t7jr/)
 - [我拿的可是反派剧本](https://www.gjnbgb.com/book/2s9t7bv/)
 - [丧尸王有什么坏心思？](https://www.gjnbgb.com/book/2s9t6su/)
+- [欲加之罪](https://www.gjnbgb.com/book/2s9t5fh/)
 - [禁止继承限制级雌君](https://www.gjnbgb.com/book/2s9t5er/)
 - [自知之明](https://www.gjnbgb.com/book/2s9t5dv/)
 - [等我吃腻了再倒闭可以吗](https://www.gjnbgb.com/book/2s9t5d2/)
@@ -74,7 +75,6 @@
 - [五美元在哥谭活一月](https://www.gjnbgb.com/book/2s9rdvd/)
 - [暗堕本丸，在线直播](https://www.gjnbgb.com/book/2s9rdap/)
 - [女装生崽，娃爹宇智波](https://www.gjnbgb.com/book/2s9rd0j/)
-- [失而复得的白月光[快穿]](https://www.gjnbgb.com/book/2s9rctv/)
 - [超A奶龙饲养指南](https://www.gjnbgb.com/book/2s9rboo/)
 - [我有一座城](https://www.gjnbgb.com/book/2s9rbaa/)
 - [[足球]听克圣的话，成了米兰金童](https://www.gjnbgb.com/book/2s9rb78/)
@@ -396,7 +396,6 @@
 - [虫族治愈师，但恐虫](https://www.gjnbgb.com/book/2s9ptm4/)
 - [青空来信](https://www.gjnbgb.com/book/2s9ptm2/)
 - [神之子与排球的适配性](https://www.gjnbgb.com/book/2s9pt3r/)
-- [被阴湿坏女人缠上后](https://www.gjnbgb.com/book/2s9pt05/)
 - [举朝上下为我的神仙人设头疼中](https://www.gjnbgb.com/book/2s9pspc/)
 - [我最讨厌打球了！](https://www.gjnbgb.com/book/2s9psms/)
 - [请问夫君你哪位](https://www.gjnbgb.com/book/2s9psll/)
@@ -430,7 +429,6 @@
 - [矩阵干扰](https://www.gjnbgb.com/book/2s9pkov/)
 - [柯学剧本杀，但恋爱流打法](https://www.gjnbgb.com/book/2s9pk1s/)
 - [欢迎来到重生点](https://www.gjnbgb.com/book/2s9pjv2/)
-- [盛夏晴浓](https://www.gjnbgb.com/book/2s9pj90/)
 - [法外狂猫](https://www.gjnbgb.com/book/2s9pip8/)
 - [好兄弟暴富后非要跟我结婚](https://www.gjnbgb.com/book/2s9phnb/)
 - [关于我虚构了一个男友这件事](https://www.gjnbgb.com/book/2s9pehf/)
@@ -442,7 +440,6 @@
 - [[综英美]和亲友群穿哥谭以后](https://www.gjnbgb.com/book/2s9p65o/)
 - [自大狂](https://www.gjnbgb.com/book/2s9p0vg/)
 - [暴君偏头痛](https://www.gjnbgb.com/book/2s9ot0a/)
-- [纯爱宇智波基本恋爱法](https://www.gjnbgb.com/book/2s9np8v/)
 - [高调装神，猥琐发育](https://www.gjnbgb.com/book/2s9np4t/)
 - [误入反派培养直播后](https://www.gjnbgb.com/book/2s9nos4/)
 - [[封神]圣人生欲](https://www.gjnbgb.com/book/2s9nom2/)

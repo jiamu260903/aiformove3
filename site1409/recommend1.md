@@ -1,14 +1,13 @@
 
 # 瑞文文学网 - 最新穿越小说大全及热门小说排行榜
 
-更新时间：2026-09-06 03:22:51
+更新时间：2026-09-07 03:23:56
 
 瑞文文学网提供多种类型的小说推荐，包括最新的都市、玄幻、武侠等多种类别。无论您是喜欢穿越还是重生故事，或是对其他风格如历史、科幻感兴趣，在这里都能找到心仪的作品！
 
 - [瑞文文学网](https://www.49ig.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.49ig.com/book/436ebvk/)
 - [和八个男人在极寒游戏求生](https://www.49ig.com/book/436ebvc/)
 - [魔改剧本后我爆火了[娱乐圈]](https://www.49ig.com/book/436e8jg/)
 - [恐游里的邻居们[万人迷]](https://www.49ig.com/book/436e8je/)
@@ -146,7 +145,6 @@
 - [你让魔王组建勇者小队？](https://www.49ig.com/book/436a3f5/)
 - [海岛求生：生活玩家种田囤货](https://www.49ig.com/book/43698bi/)
 - [十九世纪贵族厨房（美食）](https://www.49ig.com/book/436988r/)
-- [九零首富的替嫁小媳妇](https://www.49ig.com/book/4369885/)
 - [完蛋！被恨孕男包围了！](https://www.49ig.com/book/436980a/)
 - [原配夫人](https://www.49ig.com/book/43697s7/)
 - [始乱终弃清冷首辅后](https://www.49ig.com/book/43697pk/)
@@ -158,6 +156,7 @@
 - [六零之成了卷王的妹妹](https://www.49ig.com/book/43696pr/)
 - [95美国贵族高中模拟](https://www.49ig.com/book/43696pa/)
 - [星际团宠小人鱼](https://www.49ig.com/book/43696p6/)
+- [老公对不起](https://www.49ig.com/book/43696lq/)
 - [巨物致富：回乡开钓场](https://www.49ig.com/book/43696jh/)
 - [[封神]圣人生欲](https://www.49ig.com/book/43696e5/)
 - [我是唯一地上神国](https://www.49ig.com/book/43696ds/)

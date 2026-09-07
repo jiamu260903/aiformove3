@@ -1,7 +1,7 @@
 
 # 读读窝小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-06 03:40:33
+更新时间：2026-09-07 03:41:47
 
 读读窝小说网提供最新最全的网络小说在线阅读服务，是广大书友寻找优质书籍、享受阅读乐趣的理想选择。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.tiananfoundry.com/book/1ol4n2i/)
-- [揣崽丧夫后被情敌强娶了](https://www.tiananfoundry.com/book/1ol4n2h/)
 - [我们小区穿末世](https://www.tiananfoundry.com/book/1ol4n2g/)
 - [爱情的肯定句](https://www.tiananfoundry.com/book/1ol4n2f/)
 - [欲加之罪](https://www.tiananfoundry.com/book/1ol4n2e/)
@@ -85,7 +84,6 @@
 - [我们生活玩家是这样的](https://www.tiananfoundry.com/book/1ol4mtr/)
 - [我司艺人永不塌房](https://www.tiananfoundry.com/book/1ol4mt8/)
 - [原配夫人](https://www.tiananfoundry.com/book/1ol4mqb/)
-- [九零首富的替嫁小媳妇](https://www.tiananfoundry.com/book/1ol4mq9/)
 - [[封神]圣人生欲](https://www.tiananfoundry.com/book/1ol4mq7/)
 - [十九世纪贵族厨房（美食）](https://www.tiananfoundry.com/book/1ol4mpo/)
 - [始乱终弃清冷首辅后](https://www.tiananfoundry.com/book/1ol4mpm/)
@@ -98,6 +96,7 @@
 - [路人攻了主角攻［快穿］](https://www.tiananfoundry.com/book/1ol4l9t/)
 - [昭暮](https://www.tiananfoundry.com/book/1ol4bmn/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.tiananfoundry.com/book/1ol3lkn/)
+- [老公对不起](https://www.tiananfoundry.com/book/1ol38fc/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.tiananfoundry.com/book/1ol303i/)
 - [[足球]足坛人生模拟器](https://www.tiananfoundry.com/book/1ol2vsi/)
 - [上个鬼班[无限]](https://www.tiananfoundry.com/book/1ol2smi/)

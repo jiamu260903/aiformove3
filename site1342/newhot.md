@@ -1,7 +1,7 @@
 
 # 阿舍岛小说 - 章节最新最全免费的小说阅读网
 
-更新时间：2026-09-06 03:23:23
+更新时间：2026-09-07 03:24:28
 
 阿舍岛小说提供数万本经典热门小说免费阅读服务，包括但不限于玄幻、言情、网游、穿越等多种类型。网站内容丰富，章节更新及时全面，致力于为读者打造最佳的免费小说阅读体验。
 
@@ -14,6 +14,7 @@
 - [禁止继承限制级雌君](https://www.ashedao.com/book/99d3a8j/)
 - [全世界名为爱的恶意](https://www.ashedao.com/book/99d3a87/)
 - [自知之明](https://www.ashedao.com/book/99d3a7o/)
+- [欲加之罪](https://www.ashedao.com/book/99d3a7m/)
 - [穿为龙傲天发妻后](https://www.ashedao.com/book/99d3a76/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.ashedao.com/book/99d3a6m/)
 - [等我吃腻了再倒闭可以吗](https://www.ashedao.com/book/99d3a62/)
@@ -130,7 +131,6 @@
 - [当小狗炮灰分手后](https://www.ashedao.com/book/99d0v8n/)
 - [备胎的我重生成万人迷](https://www.ashedao.com/book/99d0u9o/)
 - [忍界修罗带球跑](https://www.ashedao.com/book/99d0u61/)
-- [失而复得的白月光[快穿]](https://www.ashedao.com/book/99d0u4n/)
 - [我妈是大佬[快穿]](https://www.ashedao.com/book/99d0tqa/)
 - [东映排球部](https://www.ashedao.com/book/99d0ti2/)
 - [西幻抽卡装NPC](https://www.ashedao.com/book/99d0tb1/)
@@ -396,7 +396,6 @@
 - [高冷影后逼我标记她](https://www.ashedao.com/book/99cvrdl/)
 - [当了卧底的我发现遍地熟人](https://www.ashedao.com/book/99cvran/)
 - [青山不渡](https://www.ashedao.com/book/99cvr7m/)
-- [被阴湿坏女人缠上后](https://www.ashedao.com/book/99cvr2p/)
 - [司寝宫女](https://www.ashedao.com/book/99cvr2a/)
 - [顶流他姐有神豪系统](https://www.ashedao.com/book/99cvqsu/)
 - [我靠玛丽苏系统伪装神女](https://www.ashedao.com/book/99cvqqr/)
@@ -421,12 +420,10 @@
 - [善逸拒绝成为咒术师](https://www.ashedao.com/book/99cvmjd/)
 - [老公是松散生命体](https://www.ashedao.com/book/99cvm9o/)
 - [可怜的天然呆直男[快穿]](https://www.ashedao.com/book/99cvm4d/)
-- [纯爱宇智波基本恋爱法](https://www.ashedao.com/book/99cvl5k/)
 - [被四皇错看成小动物后](https://www.ashedao.com/book/99cvibt/)
 - [[足球]罗蜜第一志愿](https://www.ashedao.com/book/99cvh5s/)
 - [刀子精手心的人偶崽崽](https://www.ashedao.com/book/99cvdgt/)
 - [战死的阿爹回来了[年代]](https://www.ashedao.com/book/99cvc85/)
-- [盛夏晴浓](https://www.ashedao.com/book/99cv9or/)
 - [[综英美]让我统治哥谭！！！](https://www.ashedao.com/book/99cv8ni/)
 - [好巧，你也是妹控？[综崩铁]](https://www.ashedao.com/book/99cv7aj/)
 - [欢迎来到重生点](https://www.ashedao.com/book/99cv5ok/)

@@ -1,7 +1,7 @@
 
 # 哲理书客吧-全本小说免费阅读及txt下载,最新章节无弹窗
 
-更新时间：2026-09-06 03:47:25
+更新时间：2026-09-07 03:48:42
 
 哲理书客吧提供最快更新的热门网络小说最新章节，支持全本小说在线免费阅读与txt电子书打包下载服务。收录多本经典好看的小说，并承诺无广告弹窗清爽阅读体验，是小说爱好者的理想选择。
 
@@ -13,6 +13,7 @@
 - [自知之明](https://www.zheli518.com/book/4taqml3/)
 - [等我吃腻了再倒闭可以吗](https://www.zheli518.com/book/4taqmkv/)
 - [这个替嫁让我来！](https://www.zheli518.com/book/4taqmk9/)
+- [欲加之罪](https://www.zheli518.com/book/4taqmk6/)
 - [[综英美]和亲友群穿哥谭以后](https://www.zheli518.com/book/4taqmj5/)
 - [穿为龙傲天发妻后](https://www.zheli518.com/book/4taqmim/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.zheli518.com/book/4taqmhq/)
@@ -82,7 +83,6 @@
 - [作为甚尔亡妻的我变成触手了！](https://www.zheli518.com/book/4taolfj/)
 - [[综英美]flash小游戏，哥谭出品](https://www.zheli518.com/book/4taol6o/)
 - [我有一座城](https://www.zheli518.com/book/4taol3k/)
-- [失而复得的白月光[快穿]](https://www.zheli518.com/book/4taoknq/)
 - [[足球]听克圣的话，成了米兰金童](https://www.zheli518.com/book/4taok7k/)
 - [逃荒[快穿]](https://www.zheli518.com/book/4taojqn/)
 - [被马甲团宠的我开启地狱模式](https://www.zheli518.com/book/4taojjg/)
@@ -389,7 +389,6 @@
 - [在家不许汪汪大叫](https://www.zheli518.com/book/4tan93o/)
 - [转生成为伊路米的双生姐姐](https://www.zheli518.com/book/4tan91k/)
 - [误把钓系病美人O娇养后](https://www.zheli518.com/book/4tan91e/)
-- [被阴湿坏女人缠上后](https://www.zheli518.com/book/4tan8vc/)
 - [救命！猫尾巴藏不住了](https://www.zheli518.com/book/4tan8pc/)
 - [高冷影后逼我标记她](https://www.zheli518.com/book/4tan8ou/)
 - [青山不渡](https://www.zheli518.com/book/4tan8lf/)
@@ -424,7 +423,6 @@
 - [求生游戏：当邪神成为生活玩家后](https://www.zheli518.com/book/4tan0o7/)
 - [幼崽假少爷选择回归寒门](https://www.zheli518.com/book/4tamst4/)
 - [[足球]小小鸟堂堂来袭](https://www.zheli518.com/book/4tamr7j/)
-- [盛夏晴浓](https://www.zheli518.com/book/4tamqk6/)
 - [欢迎来到重生点](https://www.zheli518.com/book/4tampkb/)
 - [好巧，你也是妹控？[综崩铁]](https://www.zheli518.com/book/4tamp9q/)
 - [青城玩家明明超强却过分谨慎](https://www.zheli518.com/book/4tamnvr/)
@@ -440,7 +438,6 @@
 - [和室友他爸恋爱后](https://www.zheli518.com/book/4tam9go/)
 - [直男咒术师的限制级游戏](https://www.zheli518.com/book/4tal5a1/)
 - [京秋婚约](https://www.zheli518.com/book/4tal514/)
-- [纯爱宇智波基本恋爱法](https://www.zheli518.com/book/4tal3ts/)
 - [阴郁路人不想被喜欢](https://www.zheli518.com/book/4tal3sm/)
 ## 相关内容
 - [README](/README.md)

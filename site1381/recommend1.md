@@ -1,7 +1,7 @@
 
 # 湾里早市时间小说网 - 免费小说阅读网_网络小说排行榜_最新小说推荐
 
-更新时间：2026-09-06 03:42:37
+更新时间：2026-09-07 03:43:53
 
 湾里早市时间小说网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.wlzssj.com/book/4pmffks/)
-- [揣崽丧夫后被情敌强娶了](https://www.wlzssj.com/book/4pmffkl/)
 - [二次分化后他怀了死对头的崽](https://www.wlzssj.com/book/4pmfc7b/)
 - [世界伏于她刀下[无限]](https://www.wlzssj.com/book/4pmfc6v/)
 - [[原神]魔法使恋爱指南](https://www.wlzssj.com/book/4pmfc6t/)
@@ -148,8 +147,8 @@
 - [海岛求生：生活玩家种田囤货](https://www.wlzssj.com/book/4pma0ol/)
 - [巨物致富：回乡开钓场](https://www.wlzssj.com/book/4pma0l2/)
 - [高门小婢](https://www.wlzssj.com/book/4pma0h2/)
+- [老公对不起](https://www.wlzssj.com/book/4pma0gk/)
 - [成为养成系练习生后](https://www.wlzssj.com/book/4pma0fe/)
-- [九零首富的替嫁小媳妇](https://www.wlzssj.com/book/4pma07m/)
 - [高调装神，猥琐发育](https://www.wlzssj.com/book/4pma045/)
 - [假少爷离开后](https://www.wlzssj.com/book/4pma02i/)
 - [卷王后妈，八零养娃](https://www.wlzssj.com/book/4pma00k/)

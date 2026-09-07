@@ -1,14 +1,13 @@
 
 # 唯我小说网-最新小说在线阅读,好看小说全文阅读
 
-更新时间：2026-09-06 03:28:56
+更新时间：2026-09-07 03:30:04
 
 唯我小说网提供最新最热门的小说在线阅读服务，包括但不限于各类好看的小说全文内容，满足广大读者的需求。
 
 - [唯我小说网](https://www.hkffbw.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.hkffbw.com/book/4nr5rmi/)
 - [和八个男人在极寒游戏求生](https://www.hkffbw.com/book/4nr5rmh/)
 - [八零法医，带全家致富](https://www.hkffbw.com/book/4nr5rmg/)
 - [魔法种田，从退队经营农场开始](https://www.hkffbw.com/book/4nr5rmf/)
@@ -87,7 +86,6 @@
 - [[封神]圣人生欲](https://www.hkffbw.com/book/4nr5ren/)
 - [始乱终弃清冷首辅后](https://www.hkffbw.com/book/4nr5rek/)
 - [星际团宠小人鱼](https://www.hkffbw.com/book/4nr5re4/)
-- [九零首富的替嫁小媳妇](https://www.hkffbw.com/book/4nr5rdd/)
 - [原配夫人](https://www.hkffbw.com/book/4nr5rd2/)
 - [十九世纪贵族厨房（美食）](https://www.hkffbw.com/book/4nr5rcu/)
 - [高调装神，猥琐发育](https://www.hkffbw.com/book/4nr5rcf/)
@@ -98,6 +96,7 @@
 - [路人攻了主角攻［快穿］](https://www.hkffbw.com/book/4nr5ps7/)
 - [昭暮](https://www.hkffbw.com/book/4nr5gak/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.hkffbw.com/book/4nr4q2n/)
+- [老公对不起](https://www.hkffbw.com/book/4nr4d5k/)
 - [上个鬼班[无限]](https://www.hkffbw.com/book/4nr42uh/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.hkffbw.com/book/4nr3sft/)
 - [[足球]足坛人生模拟器](https://www.hkffbw.com/book/4nr3scl/)

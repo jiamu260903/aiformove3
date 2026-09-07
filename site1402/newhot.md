@@ -1,16 +1,19 @@
 
 # 耽美小说网 - 最热门的耽美小说在线阅读
 
-更新时间：2026-09-06 03:34:40
+更新时间：2026-09-07 03:35:49
 
 耽美小说网是一个广大书友喜欢的小说网，免费为您提供热门耽美小说、女生小说、都市言情小说无弹窗在线阅读和txt下载。
 
 - [耽美小说网](https://www.nvwagen.com/)
 
 ## 最新小说
+- [我超凶的！[快穿]](https://www.nvwagen.com/book/8u4jaj1/)
+- [我比反派先崩坏[快穿]](https://www.nvwagen.com/book/8u4j9n0/)
 - [cos温迪后玩到真崩铁了](https://www.nvwagen.com/book/8u4j582/)
 - [躲避原书剧情五年后](https://www.nvwagen.com/book/8u4j54m/)
 - [自知之明](https://www.nvwagen.com/book/8u4j4vq/)
+- [欲加之罪](https://www.nvwagen.com/book/8u4j4vh/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.nvwagen.com/book/8u4j4vf/)
 - [穿为龙傲天发妻后](https://www.nvwagen.com/book/8u4j4us/)
 - [清穿女回来后[天幕]](https://www.nvwagen.com/book/8u4j4ud/)
@@ -163,7 +166,6 @@
 - [渣攻试图洗白[快穿]](https://www.nvwagen.com/book/8u4h0ng/)
 - [[综英美]让我统治哥谭！！！](https://www.nvwagen.com/book/8u4h0ik/)
 - [忍界有文学](https://www.nvwagen.com/book/8u4h0bb/)
-- [就算是龙傲天也不可以[快穿]](https://www.nvwagen.com/book/8u4h05b/)
 - [纨绔渣A拒绝入赘长公主府](https://www.nvwagen.com/book/8u4gvs0/)
 - [不要小看娇妻啊！](https://www.nvwagen.com/book/8u4gvn1/)
 - [旖旎新婚](https://www.nvwagen.com/book/8u4gvg2/)
@@ -391,7 +393,6 @@
 - [普通高中生，但兼职咒术师](https://www.nvwagen.com/book/8u4g80f/)
 - [虫族治愈师，但恐虫](https://www.nvwagen.com/book/8u4g7v9/)
 - [好兄弟暴富后非要跟我结婚](https://www.nvwagen.com/book/8u4g7mr/)
-- [被阴湿坏女人缠上后](https://www.nvwagen.com/book/8u4g7mb/)
 - [顶流他姐有神豪系统](https://www.nvwagen.com/book/8u4g7f0/)
 - [撕毁女配剧本的我被神之子读心了](https://www.nvwagen.com/book/8u4g7ep/)
 - [救命！猫尾巴藏不住了](https://www.nvwagen.com/book/8u4g7e2/)
@@ -426,13 +427,11 @@
 - [欢迎来到重生点](https://www.nvwagen.com/book/8u4g3hi/)
 - [好巧，你也是妹控？[综崩铁]](https://www.nvwagen.com/book/8u4g2u0/)
 - [等我吃腻了再倒闭可以吗](https://www.nvwagen.com/book/8u4g19s/)
-- [盛夏晴浓](https://www.nvwagen.com/book/8u4g159/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.nvwagen.com/book/8u4fvb7/)
 - [[综英美]和亲友群穿哥谭以后](https://www.nvwagen.com/book/8u4fufa/)
 - [自大狂](https://www.nvwagen.com/book/8u4flss/)
 - [书呆子扮演渣攻翻车【快穿】](https://www.nvwagen.com/book/8u4fepg/)
 - [丧尸老婆喂养日记](https://www.nvwagen.com/book/8u4f3fq/)
-- [纯爱宇智波基本恋爱法](https://www.nvwagen.com/book/8u4e4li/)
 - [被四皇错看成小动物后](https://www.nvwagen.com/book/8u4e3ea/)
 - [你，后室管理员](https://www.nvwagen.com/book/8u4e39t/)
 - [高调装神，猥琐发育](https://www.nvwagen.com/book/8u4e2sf/)

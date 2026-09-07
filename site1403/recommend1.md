@@ -1,14 +1,13 @@
 
 # 微雨数据小说,新笔趣小说阅读网,顶点小说网备份-热门小说大全
 
-更新时间：2026-09-06 03:41:05
+更新时间：2026-09-07 03:42:19
 
 微雨数据小说网作为广大书友喜爱的平台之一，同时也是顶点小说阅读网的官方备份网站，汇集了当前最受欢迎和最火热的小说资源。当遇到顶点小说网无法访问时，请访问笔趣看小说网继续享受精彩内容！
 
 - [微雨数据小说](https://www.weiyushuju.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.weiyushuju.com/book/6rf7e2b/)
 - [和八个男人在极寒游戏求生](https://www.weiyushuju.com/book/6rf7e1p/)
 - [强取师尊后](https://www.weiyushuju.com/book/6rf7anc/)
 - [漫画取材所引发的修罗场](https://www.weiyushuju.com/book/6rf7anb/)
@@ -149,10 +148,10 @@
 - [星际团宠小人鱼](https://www.weiyushuju.com/book/6rf2a5n/)
 - [日化人生[科研]](https://www.weiyushuju.com/book/6rf2a4d/)
 - [原配夫人](https://www.weiyushuju.com/book/6rf2a1q/)
+- [老公对不起](https://www.weiyushuju.com/book/6rf29vr/)
 - [始乱终弃清冷首辅后](https://www.weiyushuju.com/book/6rf298m/)
 - [[封神]圣人生欲](https://www.weiyushuju.com/book/6rf295t/)
 - [六零之成了卷王的妹妹](https://www.weiyushuju.com/book/6rf293s/)
-- [九零首富的替嫁小媳妇](https://www.weiyushuju.com/book/6rf28lu/)
 - [巨物致富：回乡开钓场](https://www.weiyushuju.com/book/6rf28jc/)
 - [清澈女大的六零年代](https://www.weiyushuju.com/book/6rf28gp/)
 - [完蛋！被恨孕男包围了！](https://www.weiyushuju.com/book/6rf28g3/)

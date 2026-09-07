@@ -1,7 +1,7 @@
 
 # 笔看阁-最热门的免费小说网 | 玄幻、网游、言情、穿越、都市全本小说在线阅读
 
-更新时间：2026-09-06 03:26:03
+更新时间：2026-09-07 03:27:10
 
 笔看阁是最热门的免费小说网站之一，专注于提供包括玄幻、网游、言情、穿越、都市等多种类型的小说在线阅读服务。本站承诺不设任何弹窗广告，页面简洁易用，为读者创造一个纯净舒适的阅读环境。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.dasenluan.com/book/3jmhknj/)
-- [揣崽丧夫后被情敌强娶了](https://www.dasenluan.com/book/3jmhkni/)
 - [我只想上京赶考啊[聊斋]](https://www.dasenluan.com/book/3jmhknd/)
 - [热恋过期需重追](https://www.dasenluan.com/book/3jmhknb/)
 - [八零法医，带全家致富](https://www.dasenluan.com/book/3jmhkna/)
@@ -107,7 +106,6 @@
 - [摄政王家的咸鱼夫郎](https://www.dasenluan.com/book/3jmfda7/)
 - [我与龙傲天寿命共享](https://www.dasenluan.com/book/3jmfag5/)
 - [如何正确哄睡暴君](https://www.dasenluan.com/book/3jmf8fu/)
-- [九零首富的替嫁小媳妇](https://www.dasenluan.com/book/3jmf26v/)
 - [怀了前任大哥的崽后](https://www.dasenluan.com/book/3jmf1hf/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.dasenluan.com/book/3jmeurm/)
 - [死对头又在挑衅我](https://www.dasenluan.com/book/3jmetou/)
@@ -167,6 +165,7 @@
 - [[娱乐圈]过分美丽的她](https://www.dasenluan.com/book/3jmc1i4/)
 - [我有一座安全城](https://www.dasenluan.com/book/3jmc17r/)
 - [五十年代港城日常](https://www.dasenluan.com/book/3jmc15s/)
+- [老公对不起](https://www.dasenluan.com/book/3jmc10p/)
 - [巨物致富：回乡开钓场](https://www.dasenluan.com/book/3jmc0tb/)
 - [高门小婢](https://www.dasenluan.com/book/3jmc0lt/)
 - [清澈女大的六零年代](https://www.dasenluan.com/book/3jmc0j7/)

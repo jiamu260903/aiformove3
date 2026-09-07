@@ -1,7 +1,7 @@
 
 # 笔看阁-最热门的免费小说网 | 玄幻、网游、言情、穿越、都市全本小说在线阅读
 
-更新时间：2026-09-06 03:26:03
+更新时间：2026-09-07 03:27:10
 
 笔看阁是最热门的免费小说网站之一，专注于提供包括玄幻、网游、言情、穿越、都市等多种类型的小说在线阅读服务。本站承诺不设任何弹窗广告，页面简洁易用，为读者创造一个纯净舒适的阅读环境。
 
@@ -18,6 +18,7 @@
 - [[崩铁]请给玩家一个准确的血条！](https://www.dasenluan.com/book/3jmhkkb/)
 - [这个替嫁让我来！](https://www.dasenluan.com/book/3jmhkk7/)
 - [自知之明](https://www.dasenluan.com/book/3jmhkk5/)
+- [欲加之罪](https://www.dasenluan.com/book/3jmhkjg/)
 - [咦？我爸爸复活啦](https://www.dasenluan.com/book/3jmhkjb/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.dasenluan.com/book/3jmhkie/)
 - [暴君偏头痛](https://www.dasenluan.com/book/3jmhjo7/)
@@ -126,7 +127,6 @@
 - [被剧透后，五条猫猫当然要提前享受青春呀！](https://www.dasenluan.com/book/3jmfap7/)
 - [来自深渊的救世者](https://www.dasenluan.com/book/3jmfa4n/)
 - [备胎的我重生成万人迷](https://www.dasenluan.com/book/3jmfa3b/)
-- [失而复得的白月光[快穿]](https://www.dasenluan.com/book/3jmf9m7/)
 - [漂亮作精绑定换装系统后［快穿］](https://www.dasenluan.com/book/3jmf9ik/)
 - [忍界修罗带球跑](https://www.dasenluan.com/book/3jmf9a5/)
 - [我妈是大佬[快穿]](https://www.dasenluan.com/book/3jmf90v/)
@@ -393,7 +393,6 @@
 - [癫骨](https://www.dasenluan.com/book/3jme60s/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.dasenluan.com/book/3jme5tg/)
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.dasenluan.com/book/3jme5sf/)
-- [被阴湿坏女人缠上后](https://www.dasenluan.com/book/3jme5sb/)
 - [隔壁班的松田君](https://www.dasenluan.com/book/3jme5s7/)
 - [让我再吃一口](https://www.dasenluan.com/book/3jme5pr/)
 - [虫族治愈师，但恐虫](https://www.dasenluan.com/book/3jme5p0/)
@@ -420,14 +419,12 @@
 - [吐槽役审神者会爆改幕后大boss吗](https://www.dasenluan.com/book/3jme256/)
 - [老公是松散生命体](https://www.dasenluan.com/book/3jme0ts/)
 - [善逸拒绝成为咒术师](https://www.dasenluan.com/book/3jme0bq/)
-- [纯爱宇智波基本恋爱法](https://www.dasenluan.com/book/3jme085/)
 - [可怜的天然呆直男[快穿]](https://www.dasenluan.com/book/3jmdusu/)
 - [[足球]罗蜜第一志愿](https://www.dasenluan.com/book/3jmdtl5/)
 - [被四皇错看成小动物后](https://www.dasenluan.com/book/3jmdt5i/)
 - [刀子精手心的人偶崽崽](https://www.dasenluan.com/book/3jmdnje/)
 - [战死的阿爹回来了[年代]](https://www.dasenluan.com/book/3jmdlf8/)
 - [[综英美]让我统治哥谭！！！](https://www.dasenluan.com/book/3jmdl2f/)
-- [盛夏晴浓](https://www.dasenluan.com/book/3jmdkj1/)
 - [欢迎来到重生点](https://www.dasenluan.com/book/3jmdi08/)
 - [好巧，你也是妹控？[综崩铁]](https://www.dasenluan.com/book/3jmdgie/)
 - [求生游戏：当邪神成为生活玩家后](https://www.dasenluan.com/book/3jmde9k/)

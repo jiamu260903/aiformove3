@@ -1,14 +1,13 @@
 
 # 七步阁-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-09-06 03:36:45
+更新时间：2026-09-07 03:37:53
 
 七步阁提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏七步阁，享受便捷的小说阅读体验。
 
 - [七步阁](https://www.revwarny.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.revwarny.com/book/3sgl7sl/)
 - [和八个男人在极寒游戏求生](https://www.revwarny.com/book/3sgl7sk/)
 - [占有欲Daddy是我老公？](https://www.revwarny.com/book/3sgl7sj/)
 - [你让魔王组建勇者小队？](https://www.revwarny.com/book/3sgl7si/)
@@ -84,7 +83,6 @@
 - [魔改剧本后我爆火了[娱乐圈]](https://www.revwarny.com/book/3sgl7qa/)
 - [我司艺人永不塌房](https://www.revwarny.com/book/3sgl7nn/)
 - [我们生活玩家是这样的](https://www.revwarny.com/book/3sgl7mm/)
-- [九零首富的替嫁小媳妇](https://www.revwarny.com/book/3sgl7kr/)
 - [星际团宠小人鱼](https://www.revwarny.com/book/3sgl7kn/)
 - [十九世纪贵族厨房（美食）](https://www.revwarny.com/book/3sgl7kk/)
 - [[封神]圣人生欲](https://www.revwarny.com/book/3sgl7k8/)
@@ -98,6 +96,7 @@
 - [路人攻了主角攻［快穿］](https://www.revwarny.com/book/3sgl64a/)
 - [昭暮](https://www.revwarny.com/book/3sgksji/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.revwarny.com/book/3sgkga2/)
+- [老公对不起](https://www.revwarny.com/book/3sgjpi3/)
 - [[足球]足坛人生模拟器](https://www.revwarny.com/book/3sgjnma/)
 - [上个鬼班[无限]](https://www.revwarny.com/book/3sgjfst/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.revwarny.com/book/3sgj6el/)
