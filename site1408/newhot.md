@@ -1,19 +1,22 @@
 
 # 顶点小说 - 无广告无弹窗在线小说阅读网站
 
-更新时间：2026-09-06 03:40:51
+更新时间：2026-09-07 03:42:05
 
 顶点小说致力于提供一个无广告、无弹窗干扰的高质量在线小说阅读体验。支持多种类型的小说在线阅读与TXT格式下载，界面设计简洁友好。
 
 - [顶点中文小说](https://www.wangrn.com/)
 
 ## 最新小说
+- [我超凶的！[快穿]](https://www.wangrn.com/book/4bbo898/)
+- [我比反派先崩坏[快穿]](https://www.wangrn.com/book/4bbo7do/)
 - [cos温迪后玩到真崩铁了](https://www.wangrn.com/book/4bbo2vp/)
 - [躲避原书剧情五年后](https://www.wangrn.com/book/4bbo2so/)
 - [清穿女回来后[天幕]](https://www.wangrn.com/book/4bbo2mt/)
 - [自知之明](https://www.wangrn.com/book/4bbo2mk/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.wangrn.com/book/4bbo2l7/)
 - [禁止继承限制级雌君](https://www.wangrn.com/book/4bbo2l3/)
+- [欲加之罪](https://www.wangrn.com/book/4bbo2jm/)
 - [穿为龙傲天发妻后](https://www.wangrn.com/book/4bbo2ir/)
 - [娇气点怎么啦？［快穿］](https://www.wangrn.com/book/4bbo2d2/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.wangrn.com/book/4bbo1jh/)
@@ -160,7 +163,6 @@
 - [[综英美]让我统治哥谭！！！](https://www.wangrn.com/book/4bbluvl/)
 - [和室友他爸恋爱后](https://www.wangrn.com/book/4bbluti/)
 - [[全职高手]小船](https://www.wangrn.com/book/4bbluse/)
-- [就算是龙傲天也不可以[快穿]](https://www.wangrn.com/book/4bblus1/)
 - [万人迷总被入侵角色觊觎[快穿]](https://www.wangrn.com/book/4bblupt/)
 - [忍界有文学](https://www.wangrn.com/book/4bblui4/)
 - [渣攻试图洗白[快穿]](https://www.wangrn.com/book/4bblugj/)
@@ -417,7 +419,6 @@
 - [让我再吃一口](https://www.wangrn.com/book/4bbl3mr/)
 - [在女仆咖啡店兼职被校草缠上后](https://www.wangrn.com/book/4bbl3j6/)
 - [失忆后，和五条激情互演](https://www.wangrn.com/book/4bbl3fn/)
-- [被阴湿坏女人缠上后](https://www.wangrn.com/book/4bbl3et/)
 - [请问夫君你哪位](https://www.wangrn.com/book/4bbl3bd/)
 - [在重男兄弟间夹缝求生](https://www.wangrn.com/book/4bbl32l/)
 - [好巧，你也是妹控？[综崩铁]](https://www.wangrn.com/book/4bbl1qu/)
@@ -426,14 +427,12 @@
 - [李玉灯](https://www.wangrn.com/book/4bbl0tu/)
 - [柯学剧本杀，但恋爱流打法](https://www.wangrn.com/book/4bbl0e5/)
 - [等我吃腻了再倒闭可以吗](https://www.wangrn.com/book/4bbkv7u/)
-- [盛夏晴浓](https://www.wangrn.com/book/4bbkt6j/)
 - [[综英美]和亲友群穿哥谭以后](https://www.wangrn.com/book/4bbkrlc/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.wangrn.com/book/4bbkr7q/)
 - [自大狂](https://www.wangrn.com/book/4bbki2t/)
 - [书呆子扮演渣攻翻车【快穿】](https://www.wangrn.com/book/4bbkcjf/)
 - [丧尸老婆喂养日记](https://www.wangrn.com/book/4bbk0kg/)
 - [被四皇错看成小动物后](https://www.wangrn.com/book/4bbj2h6/)
-- [纯爱宇智波基本恋爱法](https://www.wangrn.com/book/4bbj0pk/)
 - [误入反派培养直播后](https://www.wangrn.com/book/4bbj0l3/)
 - [[封神]圣人生欲](https://www.wangrn.com/book/4bbj0ge/)
 - [你，后室管理员](https://www.wangrn.com/book/4bbj0b9/)

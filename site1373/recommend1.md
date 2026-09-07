@@ -1,14 +1,13 @@
 
 # 泡泡中文书社-无弹窗书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-06 03:39:07
+更新时间：2026-09-07 03:40:17
 
 泡泡中文书社是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
 - [泡泡书社](https://www.shushe818.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.shushe818.com/book/29bc5hk/)
 - [和八个男人在极寒游戏求生](https://www.shushe818.com/book/29bc5hj/)
 - [双生子反派的端水抑郁妈[九零]](https://www.shushe818.com/book/29bc5hi/)
 - [病美人重生日记](https://www.shushe818.com/book/29bc5hh/)
@@ -103,7 +102,6 @@
 - [如何正确哄睡暴君](https://www.shushe818.com/book/29b9uo9/)
 - [死遁的亡夫们都回来了](https://www.shushe818.com/book/29b9qkd/)
 - [怀了前任大哥的崽后](https://www.shushe818.com/book/29b9pko/)
-- [九零首富的替嫁小媳妇](https://www.shushe818.com/book/29b9p6l/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.shushe818.com/book/29b9op3/)
 - [我骗家里的钱养你啊](https://www.shushe818.com/book/29b9ob7/)
 - [在民俗惊悚片被诸神庇护](https://www.shushe818.com/book/29b9hvu/)
@@ -158,6 +156,7 @@
 - [日化人生[科研]](https://www.shushe818.com/book/29b6kcf/)
 - [大瑛弟国](https://www.shushe818.com/book/29b6kak/)
 - [直男咒术师的限制级游戏](https://www.shushe818.com/book/29b6jqj/)
+- [老公对不起](https://www.shushe818.com/book/29b6joc/)
 - [全民求生:从小木屋到魔法农场](https://www.shushe818.com/book/29b6j1v/)
 - [六零之成了卷王的妹妹](https://www.shushe818.com/book/29b6j1o/)
 - [95美国贵族高中模拟](https://www.shushe818.com/book/29b6iu2/)

@@ -1,7 +1,7 @@
 
 # 系统流小说网 - 免费在线阅读各类热门小说
 
-更新时间：2026-09-06 03:37:02
+更新时间：2026-09-07 03:38:11
 
 系统流小说网为您提供免费在线阅读服务，涵盖了玄幻魔法、武侠修真、都市言情等多类别的小说资源，是读者们最喜爱的小说阅读平台之一。
 
@@ -17,6 +17,7 @@
 - [穿为龙傲天发妻后](https://www.ronsriverboat.com/book/8583sjt/)
 - [清穿女回来后[天幕]](https://www.ronsriverboat.com/book/8583sjq/)
 - [全世界名为爱的恶意](https://www.ronsriverboat.com/book/8583sjh/)
+- [欲加之罪](https://www.ronsriverboat.com/book/8583sjb/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.ronsriverboat.com/book/8583sja/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.ronsriverboat.com/book/8583sj2/)
 - [等我吃腻了再倒闭可以吗](https://www.ronsriverboat.com/book/8583sis/)
@@ -28,12 +29,10 @@
 - [暴君偏头痛](https://www.ronsriverboat.com/book/8583sf6/)
 - [[综英美]让我统治哥谭！！！](https://www.ronsriverboat.com/book/8583seg/)
 - [渡鬼](https://www.ronsriverboat.com/book/8583sea/)
-- [失而复得的白月光[快穿]](https://www.ronsriverboat.com/book/8583sdh/)
 - [你，后室管理员](https://www.ronsriverboat.com/book/8583scf/)
 - [[封神]圣人生欲](https://www.ronsriverboat.com/book/8583sbu/)
 - [被四皇错看成小动物后](https://www.ronsriverboat.com/book/8583sbg/)
 - [高调装神，猥琐发育](https://www.ronsriverboat.com/book/8583sag/)
-- [纯爱宇智波基本恋爱法](https://www.ronsriverboat.com/book/8583s7l/)
 - [阴郁路人不想被喜欢](https://www.ronsriverboat.com/book/8583s6s/)
 - [京秋婚约](https://www.ronsriverboat.com/book/8583s6j/)
 - [直男咒术师的限制级游戏](https://www.ronsriverboat.com/book/8583s5h/)
@@ -403,7 +402,6 @@
 - [神之子与排球的适配性](https://www.ronsriverboat.com/book/q41r4p/)
 - [癫骨](https://www.ronsriverboat.com/book/q41qum/)
 - [忍界观察日记](https://www.ronsriverboat.com/book/q41qtp/)
-- [被阴湿坏女人缠上后](https://www.ronsriverboat.com/book/q41pde/)
 - [虫族治愈师，但恐虫](https://www.ronsriverboat.com/book/q41p3m/)
 - [隔壁班的松田君](https://www.ronsriverboat.com/book/q41p15/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.ronsriverboat.com/book/q41oph/)

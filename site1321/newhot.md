@@ -1,7 +1,7 @@
 
 # 读者香书小说-免费高质量网络小说阅读网
 
-更新时间：2026-09-06 03:26:34
+更新时间：2026-09-07 03:27:41
 
 读者香书小说提供最新的、最热门的网络小说在线阅读服务，支持无弹窗模式，是广大书友和小说读者理想的阅读平台。
 
@@ -20,6 +20,7 @@
 - [禁止继承限制级雌君](https://www.duzhe888.com/book/2koepf2/)
 - [[足球]小小鸟堂堂来袭](https://www.duzhe888.com/book/2koepf0/)
 - [同时扮演贵族学院F4和平民校花](https://www.duzhe888.com/book/2koepeu/)
+- [欲加之罪](https://www.duzhe888.com/book/2koepek/)
 - [咦？我爸爸复活啦](https://www.duzhe888.com/book/2koepei/)
 - [等我吃腻了再倒闭可以吗](https://www.duzhe888.com/book/2koepea/)
 - [青城玩家明明超强却过分谨慎](https://www.duzhe888.com/book/2koepdv/)
@@ -27,7 +28,6 @@
 - [躲避原书剧情五年后](https://www.duzhe888.com/book/2koepb4/)
 - [[综英美]让我统治哥谭！！！](https://www.duzhe888.com/book/2koepb2/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.duzhe888.com/book/2koepal/)
-- [失而复得的白月光[快穿]](https://www.duzhe888.com/book/2koep9b/)
 - [渡鬼](https://www.duzhe888.com/book/2koep98/)
 - [被四皇错看成小动物后](https://www.duzhe888.com/book/2koep7t/)
 - [你，后室管理员](https://www.duzhe888.com/book/2koep6v/)
@@ -36,7 +36,6 @@
 - [阴郁路人不想被喜欢](https://www.duzhe888.com/book/2koep5s/)
 - [直男咒术师的限制级游戏](https://www.duzhe888.com/book/2koep4k/)
 - [京秋婚约](https://www.duzhe888.com/book/2koep4i/)
-- [纯爱宇智波基本恋爱法](https://www.duzhe888.com/book/2koep3s/)
 - [求生游戏：当邪神成为生活玩家后](https://www.duzhe888.com/book/2koep17/)
 - [昭暮](https://www.duzhe888.com/book/2koee6e/)
 - [修仙界都为我神魂颠倒](https://www.duzhe888.com/book/2koe2t0/)
@@ -385,7 +384,6 @@
 - [放开那个黑暗哨兵！](https://www.duzhe888.com/book/8f9c5m/)
 - [在重男兄弟间夹缝求生](https://www.duzhe888.com/book/8f9c3m/)
 - [忍界观察日记](https://www.duzhe888.com/book/8f9br4/)
-- [被阴湿坏女人缠上后](https://www.duzhe888.com/book/8f9bp5/)
 - [虫族治愈师，但恐虫](https://www.duzhe888.com/book/8f9bp3/)
 - [每天都在和太宰互换身体](https://www.duzhe888.com/book/8f9bom/)
 - [举朝上下为我的神仙人设头疼中](https://www.duzhe888.com/book/8f9bfo/)

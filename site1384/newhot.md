@@ -1,19 +1,23 @@
 
 # 积家健康小说 - 无弹窗无广告小说在线阅读
 
-更新时间：2026-09-06 03:29:33
+更新时间：2026-09-07 03:30:40
 
 积家健康小说提供一个干净简洁的平台让您享受无弹窗无广告的小说在线阅读体验。无论是在线阅读还是下载小说，都是完全免费的。
 
 - [积家健康小说](https://www.jijiajk.com/)
 
 ## 最新小说
+- [我拿的可是反派剧本](https://www.jijiajk.com/book/3ab30ao/)
+- [这个替嫁让我来！](https://www.jijiajk.com/book/3ab2vvd/)
+- [丧尸王有什么坏心思？](https://www.jijiajk.com/book/3ab2vqr/)
 - [网球带给齐木的灾难](https://www.jijiajk.com/book/3ab2ub3/)
 - [当甚尔转生成继国](https://www.jijiajk.com/book/3ab2s96/)
 - [节能型社恐靠交友存活打排球](https://www.jijiajk.com/book/3ab2rh0/)
 - [渣攻他疯了［快穿］](https://www.jijiajk.com/book/3ab2qul/)
 - [[足球]番外乐子集](https://www.jijiajk.com/book/3ab2qf2/)
 - [清穿女回来后[天幕]](https://www.jijiajk.com/book/3ab2po9/)
+- [欲加之罪](https://www.jijiajk.com/book/3ab2pnt/)
 - [等我吃腻了再倒闭可以吗](https://www.jijiajk.com/book/3ab2pns/)
 - [穿为龙傲天发妻后](https://www.jijiajk.com/book/3ab2pnd/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.jijiajk.com/book/3ab2pm8/)
@@ -52,7 +56,6 @@
 - [伪装路人后成了反派首领](https://www.jijiajk.com/book/3ab1ak5/)
 - [[足球]葡萄牙世界杯if线](https://www.jijiajk.com/book/3ab1aib/)
 - [求求你们别吃了](https://www.jijiajk.com/book/3ab1a4k/)
-- [失而复得的白月光[快穿]](https://www.jijiajk.com/book/3ab19kq/)
 - [某横滨的时间操纵](https://www.jijiajk.com/book/3ab19ko/)
 - [每天回到家都看到雄虫在装死](https://www.jijiajk.com/book/3ab19e8/)
 - [穿成猫的咒术高专生活](https://www.jijiajk.com/book/3ab19e0/)
@@ -258,7 +261,6 @@
 - [退圈后，我靠职场综艺火爆全网](https://www.jijiajk.com/book/3ab01pg/)
 - [与清冷O协议结婚后她失忆了](https://www.jijiajk.com/book/3ab01m6/)
 - [恶毒女配是绝色美人[快穿]](https://www.jijiajk.com/book/3ab01b9/)
-- [就算是龙傲天也不可以[快穿]](https://www.jijiajk.com/book/3ab018b/)
 - [忍界修罗金屋藏娇了？](https://www.jijiajk.com/book/3ab014o/)
 - [娇气包在无限游戏被坏男人骗](https://www.jijiajk.com/book/3ab0113/)
 - [社畜，但是天才魔导师](https://www.jijiajk.com/book/3ab00qv/)
@@ -413,7 +415,6 @@
 - [失忆后，和五条激情互演](https://www.jijiajk.com/book/3aavl37/)
 - [虫族治愈师，但恐虫](https://www.jijiajk.com/book/3aavksm/)
 - [穿成影后的作死前妻](https://www.jijiajk.com/book/3aavkoc/)
-- [被阴湿坏女人缠上后](https://www.jijiajk.com/book/3aavkic/)
 - [在女仆咖啡店兼职被校草缠上后](https://www.jijiajk.com/book/3aavkb1/)
 - [小狗向导，世界瑰宝！](https://www.jijiajk.com/book/3aavk9k/)
 - [咒术师，但队友是侦探](https://www.jijiajk.com/book/3aavk2o/)
@@ -425,7 +426,6 @@
 - [青城玩家明明超强却过分谨慎](https://www.jijiajk.com/book/3aavheq/)
 - [撕毁女配剧本的我被神之子读心了](https://www.jijiajk.com/book/3aavh39/)
 - [刀子精手心的人偶崽崽](https://www.jijiajk.com/book/3aavgu2/)
-- [盛夏晴浓](https://www.jijiajk.com/book/3aavg0n/)
 - [和港城大小姐先婚后爱了](https://www.jijiajk.com/book/3aavfsm/)
 - [柯学剧本杀，但恋爱流打法](https://www.jijiajk.com/book/3aavejs/)
 - [好巧，你也是妹控？[综崩铁]](https://www.jijiajk.com/book/3aavegt/)
@@ -441,7 +441,6 @@
 - [丧尸老婆喂养日记](https://www.jijiajk.com/book/3aaugqt/)
 - [你，后室管理员](https://www.jijiajk.com/book/3aativ3/)
 - [误入反派培养直播后](https://www.jijiajk.com/book/3aatitm/)
-- [纯爱宇智波基本恋爱法](https://www.jijiajk.com/book/3aatiri/)
 - [[封神]圣人生欲](https://www.jijiajk.com/book/3aatin5/)
 - [被四皇错看成小动物后](https://www.jijiajk.com/book/3aath12/)
 - [高调装神，猥琐发育](https://www.jijiajk.com/book/3aatg0k/)

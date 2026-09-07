@@ -1,7 +1,7 @@
 
 # 奇书网 - 奇书网epub,mobi,txt全本电子书免费下载
 
-更新时间：2026-09-06 03:30:05
+更新时间：2026-09-07 03:31:13
 
 奇书网提供最新的奇书网txt格式全本电子书资源免费下载服务，涵盖各种类型的小说，满足您的阅读需求。
 
@@ -14,6 +14,7 @@
 - [这个替嫁让我来！](https://www.jxbfsz.com/book/29i1p9v/)
 - [穿为龙傲天发妻后](https://www.jxbfsz.com/book/29i1p9q/)
 - [咦？我爸爸复活啦](https://www.jxbfsz.com/book/29i1p9b/)
+- [欲加之罪](https://www.jxbfsz.com/book/29i1p97/)
 - [[足球]小小鸟堂堂来袭](https://www.jxbfsz.com/book/29i1p94/)
 - [自知之明](https://www.jxbfsz.com/book/29i1p8r/)
 - [等我吃腻了再倒闭可以吗](https://www.jxbfsz.com/book/29i1p8p/)
@@ -136,7 +137,6 @@
 - [在无限世界当晕倒羊](https://www.jxbfsz.com/book/29hvd44/)
 - [堕魔](https://www.jxbfsz.com/book/29hvcdr/)
 - [备胎的我重生成万人迷](https://www.jxbfsz.com/book/29hvcar/)
-- [失而复得的白月光[快穿]](https://www.jxbfsz.com/book/29hvc5d/)
 - [长公主的六零年代](https://www.jxbfsz.com/book/29hvb8n/)
 - [陛下今天怼人了吗［快穿］](https://www.jxbfsz.com/book/29hvb2m/)
 - [[综崩铁]谁家小鸟掉冥河了](https://www.jxbfsz.com/book/29hvaqk/)
@@ -383,7 +383,6 @@
 - [女beta的星际悠闲生活](https://www.jxbfsz.com/book/29hubks/)
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.jxbfsz.com/book/29hube3/)
 - [让我再吃一口](https://www.jxbfsz.com/book/29hubci/)
-- [被阴湿坏女人缠上后](https://www.jxbfsz.com/book/29hubbr/)
 - [直播捏玩具被榜一大哥撅了](https://www.jxbfsz.com/book/29hub3q/)
 - [我靠玛丽苏系统伪装神女](https://www.jxbfsz.com/book/29huatl/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.jxbfsz.com/book/29huaoe/)
@@ -419,7 +418,6 @@
 - [某柯学的正义伙伴](https://www.jxbfsz.com/book/29hu68r/)
 - [青空来信](https://www.jxbfsz.com/book/29hu63l/)
 - [老公是松散生命体](https://www.jxbfsz.com/book/29hu5mg/)
-- [纯爱宇智波基本恋爱法](https://www.jxbfsz.com/book/29hu5hu/)
 - [善逸拒绝成为咒术师](https://www.jxbfsz.com/book/29hu5hd/)
 - [可怜的天然呆直男[快穿]](https://www.jxbfsz.com/book/29hu5ck/)
 - [[足球]罗蜜第一志愿](https://www.jxbfsz.com/book/29hu27p/)
@@ -427,7 +425,6 @@
 - [战死的阿爹回来了[年代]](https://www.jxbfsz.com/book/29htsel/)
 - [刀子精手心的人偶崽崽](https://www.jxbfsz.com/book/29htqbe/)
 - [[综英美]让我统治哥谭！！！](https://www.jxbfsz.com/book/29htq00/)
-- [盛夏晴浓](https://www.jxbfsz.com/book/29htpei/)
 - [好巧，你也是妹控？[综崩铁]](https://www.jxbfsz.com/book/29htlit/)
 - [欢迎来到重生点](https://www.jxbfsz.com/book/29htl6a/)
 - [好兄弟暴富后非要跟我结婚](https://www.jxbfsz.com/book/29htjav/)

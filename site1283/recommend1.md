@@ -1,7 +1,7 @@
 
 # 书包网 - 免费小说阅读网_网络小说排行榜_最新小说推荐
 
-更新时间：2026-09-06 03:25:15
+更新时间：2026-09-07 03:26:22
 
 书包网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.cialisgs.com/book/89ru3qk/)
-- [揣崽丧夫后被情敌强娶了](https://www.cialisgs.com/book/89ru3qj/)
 - [占有欲Daddy是我老公？](https://www.cialisgs.com/book/89ru3qi/)
 - [和治君只是饭搭子的关系](https://www.cialisgs.com/book/89ru3qh/)
 - [谁说踢球就不能成为名侦探[足球]](https://www.cialisgs.com/book/89ru3qg/)
@@ -87,7 +86,6 @@
 - [星际团宠小人鱼](https://www.cialisgs.com/book/89ru3is/)
 - [始乱终弃清冷首辅后](https://www.cialisgs.com/book/89ru3in/)
 - [原配夫人](https://www.cialisgs.com/book/89ru3ik/)
-- [九零首富的替嫁小媳妇](https://www.cialisgs.com/book/89ru3ib/)
 - [[封神]圣人生欲](https://www.cialisgs.com/book/89ru3h9/)
 - [十九世纪贵族厨房（美食）](https://www.cialisgs.com/book/89ru3eg/)
 - [高调装神，猥琐发育](https://www.cialisgs.com/book/89ru3ed/)
@@ -98,6 +96,7 @@
 - [路人攻了主角攻［快穿］](https://www.cialisgs.com/book/89ru22d/)
 - [昭暮](https://www.cialisgs.com/book/89rtoen/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.cialisgs.com/book/89rt2fp/)
+- [老公对不起](https://www.cialisgs.com/book/89rsl9m/)
 - [上个鬼班[无限]](https://www.cialisgs.com/book/89rsbo3/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.cialisgs.com/book/89rs6tq/)
 - [[足球]足坛人生模拟器](https://www.cialisgs.com/book/89rs497/)

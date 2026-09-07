@@ -1,7 +1,7 @@
 
 # 笔趣屋-最热门的免费小说网 | 玄幻,网游,言情,穿越,都市小说全本在线阅读
 
-更新时间：2026-09-06 03:32:11
+更新时间：2026-09-07 03:33:20
 
 笔趣屋提供多种类型的好看小说在线阅读服务，包括但不限于玄幻、网游、言情、穿越及都市等热门分类。网站承诺无广告无弹窗干扰，页面简洁，方便用户享受纯净的阅读体验。
 
@@ -18,6 +18,7 @@
 - [[综英美]和亲友群穿哥谭以后](https://www.kmjike.com/book/4mlvlo2/)
 - [清穿女回来后[天幕]](https://www.kmjike.com/book/4mlvlnq/)
 - [咦？我爸爸复活啦](https://www.kmjike.com/book/4mlvlni/)
+- [欲加之罪](https://www.kmjike.com/book/4mlvlne/)
 - [等我吃腻了再倒闭可以吗](https://www.kmjike.com/book/4mlvln1/)
 - [我骗家里的钱养你啊](https://www.kmjike.com/book/4mlvlmf/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.kmjike.com/book/4mlvlmd/)
@@ -26,14 +27,12 @@
 - [躲避原书剧情五年后](https://www.kmjike.com/book/4mlvlkt/)
 - [青城玩家明明超强却过分谨慎](https://www.kmjike.com/book/4mlvlke/)
 - [[综英美]让我统治哥谭！！！](https://www.kmjike.com/book/4mlvlj6/)
-- [失而复得的白月光[快穿]](https://www.kmjike.com/book/4mlvlir/)
 - [暴君偏头痛](https://www.kmjike.com/book/4mlvlhg/)
 - [渡鬼](https://www.kmjike.com/book/4mlvlha/)
 - [[封神]圣人生欲](https://www.kmjike.com/book/4mlvlgr/)
 - [被四皇错看成小动物后](https://www.kmjike.com/book/4mlvlgd/)
 - [你，后室管理员](https://www.kmjike.com/book/4mlvlep/)
 - [高调装神，猥琐发育](https://www.kmjike.com/book/4mlvlef/)
-- [纯爱宇智波基本恋爱法](https://www.kmjike.com/book/4mlvlde/)
 - [直男咒术师的限制级游戏](https://www.kmjike.com/book/4mlvld8/)
 - [京秋婚约](https://www.kmjike.com/book/4mlvlci/)
 - [阴郁路人不想被喜欢](https://www.kmjike.com/book/4mlvlaj/)
@@ -404,7 +403,6 @@
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.kmjike.com/book/f27q8s/)
 - [举朝上下为我的神仙人设头疼中](https://www.kmjike.com/book/f27q7c/)
 - [隔壁班的松田君](https://www.kmjike.com/book/f27psr/)
-- [被阴湿坏女人缠上后](https://www.kmjike.com/book/f27pn7/)
 - [虫族治愈师，但恐虫](https://www.kmjike.com/book/f27p5c/)
 - [当了卧底的我发现遍地熟人](https://www.kmjike.com/book/f27ovi/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.kmjike.com/book/f27ok4/)

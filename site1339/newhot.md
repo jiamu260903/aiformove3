@@ -1,7 +1,7 @@
 
 # 三哥小说网 - 最热门的免费小说阅读平台
 
-更新时间：2026-09-06 03:42:22
+更新时间：2026-09-07 03:43:37
 
 三哥小说网致力于为读者提供一个无广告无弹窗的在线小说阅读环境，涵盖玄幻、网游、言情、穿越及都市等多种类型的小说资源，支持全本小说在线阅读与最新章节更新。
 
@@ -11,6 +11,7 @@
 - [等我吃腻了再倒闭可以吗](https://www.wkntmcb.com/book/48j2f1e/)
 - [咦？我爸爸复活啦](https://www.wkntmcb.com/book/48j2f17/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.wkntmcb.com/book/48j2f0u/)
+- [欲加之罪](https://www.wkntmcb.com/book/48j2f0r/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.wkntmcb.com/book/48j2f0i/)
 - [自知之明](https://www.wkntmcb.com/book/48j2evl/)
 - [[足球]小小鸟堂堂来袭](https://www.wkntmcb.com/book/48j2evc/)
@@ -136,7 +137,6 @@
 - [被公用的美人陪读/美校](https://www.wkntmcb.com/book/48j02tj/)
 - [忍界修罗带球跑](https://www.wkntmcb.com/book/48j02oq/)
 - [漂亮作精绑定换装系统后［快穿］](https://www.wkntmcb.com/book/48j0272/)
-- [失而复得的白月光[快穿]](https://www.wkntmcb.com/book/48j01vf/)
 - [[清]给太子当姐姐那些年](https://www.wkntmcb.com/book/48j018u/)
 - [[综崩铁]谁家小鸟掉冥河了](https://www.wkntmcb.com/book/48j016d/)
 - [寻真](https://www.wkntmcb.com/book/48j00s6/)
@@ -398,7 +398,6 @@
 - [青山不渡](https://www.wkntmcb.com/book/48iuvh8/)
 - [我靠玛丽苏系统伪装神女](https://www.wkntmcb.com/book/48iuvh5/)
 - [顶流他姐有神豪系统](https://www.wkntmcb.com/book/48iuvfu/)
-- [被阴湿坏女人缠上后](https://www.wkntmcb.com/book/48iuv89/)
 - [神之子与排球的适配性](https://www.wkntmcb.com/book/48iuv7i/)
 - [失忆后，和五条激情互演](https://www.wkntmcb.com/book/48iuv2v/)
 - [转生成为伊路米的双生姐姐](https://www.wkntmcb.com/book/48iuv2b/)
@@ -419,7 +418,6 @@
 - [[封神]圣人生欲](https://www.wkntmcb.com/book/48ius3c/)
 - [青空来信](https://www.wkntmcb.com/book/48iurp5/)
 - [可怜的天然呆直男[快穿]](https://www.wkntmcb.com/book/48iupvk/)
-- [纯爱宇智波基本恋爱法](https://www.wkntmcb.com/book/48iupto/)
 - [老公是松散生命体](https://www.wkntmcb.com/book/48iuoto/)
 - [善逸拒绝成为咒术师](https://www.wkntmcb.com/book/48iuoi9/)
 - [[足球]罗蜜第一志愿](https://www.wkntmcb.com/book/48iun4t/)
@@ -427,7 +425,6 @@
 - [刀子精手心的人偶崽崽](https://www.wkntmcb.com/book/48iuibs/)
 - [战死的阿爹回来了[年代]](https://www.wkntmcb.com/book/48iuhnv/)
 - [[综英美]让我统治哥谭！！！](https://www.wkntmcb.com/book/48iuer6/)
-- [盛夏晴浓](https://www.wkntmcb.com/book/48iudm6/)
 - [欢迎来到重生点](https://www.wkntmcb.com/book/48iucm6/)
 - [好巧，你也是妹控？[综崩铁]](https://www.wkntmcb.com/book/48iuaf1/)
 - [好兄弟暴富后非要跟我结婚](https://www.wkntmcb.com/book/48iu8rs/)

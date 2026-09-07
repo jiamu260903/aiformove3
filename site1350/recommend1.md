@@ -1,7 +1,7 @@
 
 # 书城小说网 - 全站免费无弹窗小说阅读平台
 
-更新时间：2026-09-06 03:38:20
+更新时间：2026-09-07 03:39:29
 
 书城小说网为您提供全站免费的小说阅读服务，支持全本小说在线浏览，承诺全程无广告弹窗干扰，是您理想的网络文学阅读选择。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.shucheng518.com/book/39m3nrm/)
-- [揣崽丧夫后被情敌强娶了](https://www.shucheng518.com/book/39m3nrl/)
 - [从1951开始](https://www.shucheng518.com/book/39m3nre/)
 - [恐游作精女配求生指南](https://www.shucheng518.com/book/39m3nrc/)
 - [末世八年春，游戏降临](https://www.shucheng518.com/book/39m3nrb/)
@@ -104,7 +103,6 @@
 - [我骗家里的钱养你啊](https://www.shucheng518.com/book/39m1d1r/)
 - [怀了前任大哥的崽后](https://www.shucheng518.com/book/39m1bu2/)
 - [死遁的亡夫们都回来了](https://www.shucheng518.com/book/39m1bme/)
-- [九零首富的替嫁小媳妇](https://www.shucheng518.com/book/39m1bh5/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.shucheng518.com/book/39m1av4/)
 - [沈助理又在隐藏他的超能力](https://www.shucheng518.com/book/39m13n1/)
 - [死对头又在挑衅我](https://www.shucheng518.com/book/39m12s9/)
@@ -157,6 +155,7 @@
 - [假少爷离开后](https://www.shucheng518.com/book/39lu6oa/)
 - [日化人生[科研]](https://www.shucheng518.com/book/39lu6n1/)
 - [成为养成系练习生后](https://www.shucheng518.com/book/39lu6c2/)
+- [老公对不起](https://www.shucheng518.com/book/39lu68v/)
 - [我是唯一地上神国](https://www.shucheng518.com/book/39lu68l/)
 - [五十年代港城日常](https://www.shucheng518.com/book/39lu64d/)
 - [全民求生:从小木屋到魔法农场](https://www.shucheng518.com/book/39lu5ud/)

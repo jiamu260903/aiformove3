@@ -1,7 +1,7 @@
 
 # 探秘书院-全本小说最值得收藏的绿色无弹窗免费小说阅读网
 
-更新时间：2026-09-06 03:40:18
+更新时间：2026-09-07 03:41:32
 
 探秘书院提供全本网文爱好者一个纯净、安全、高质量的免费小说阅读环境，支持最新章节在线阅读，所有内容均为绿色无弹窗且保证无错字。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.tanmi918.com/book/80r4ss1/)
-- [揣崽丧夫后被情敌强娶了](https://www.tanmi918.com/book/80r4ss0/)
 - [禁止继承限制级雌君](https://www.tanmi918.com/book/80r4sru/)
 - [魔咒请说普通话[西幻]](https://www.tanmi918.com/book/80r4srs/)
 - [怨明月不独照](https://www.tanmi918.com/book/80r4sri/)
@@ -101,7 +100,6 @@
 - [摄政王家的咸鱼夫郎](https://www.tanmi918.com/book/80r2ppk/)
 - [社畜Beta也能被顶A觊觎吗](https://www.tanmi918.com/book/80r2p14/)
 - [如何正确哄睡暴君](https://www.tanmi918.com/book/80r2n9v/)
-- [九零首富的替嫁小媳妇](https://www.tanmi918.com/book/80r2hd2/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.tanmi918.com/book/80r2h66/)
 - [我骗家里的钱养你啊](https://www.tanmi918.com/book/80r2frt/)
 - [死遁的亡夫们都回来了](https://www.tanmi918.com/book/80r2fil/)
@@ -161,6 +159,7 @@
 - [日化人生[科研]](https://www.tanmi918.com/book/80qvalg/)
 - [成为养成系练习生后](https://www.tanmi918.com/book/80qvahi/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.tanmi918.com/book/80qvaea/)
+- [老公对不起](https://www.tanmi918.com/book/80qva28/)
 - [六零之成了卷王的妹妹](https://www.tanmi918.com/book/80qv9n7/)
 - [高门小婢](https://www.tanmi918.com/book/80qv9ke/)
 - [大瑛弟国](https://www.tanmi918.com/book/80qv9e7/)

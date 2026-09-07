@@ -1,7 +1,7 @@
 
 # 忆想小说网 - 最佳无弹窗在线小说阅读平台
 
-更新时间：2026-09-06 03:23:52
+更新时间：2026-09-07 03:24:58
 
 忆想小说网为您提供最佳的小说阅读体验，包括但不限于各类热门小说、最新连载等，支持无弹窗阅读模式，让您享受纯净舒适的阅读环境。
 
@@ -13,6 +13,7 @@
 - [全世界名为爱的恶意](https://www.bianlishihao.com/book/2vr7ao8/)
 - [我骗家里的钱养你啊](https://www.bianlishihao.com/book/2vr7ao7/)
 - [禁止继承限制级雌君](https://www.bianlishihao.com/book/2vr7ao3/)
+- [欲加之罪](https://www.bianlishihao.com/book/2vr7ao1/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.bianlishihao.com/book/2vr7anr/)
 - [[足球]小小鸟堂堂来袭](https://www.bianlishihao.com/book/2vr7ank/)
 - [咦？我爸爸复活啦](https://www.bianlishihao.com/book/2vr7ang/)
@@ -25,7 +26,6 @@
 - [青城玩家明明超强却过分谨慎](https://www.bianlishihao.com/book/2vr7aku/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.bianlishihao.com/book/2vr7akm/)
 - [暴君偏头痛](https://www.bianlishihao.com/book/2vr7ajs/)
-- [失而复得的白月光[快穿]](https://www.bianlishihao.com/book/2vr7aj6/)
 - [[综英美]让我统治哥谭！！！](https://www.bianlishihao.com/book/2vr7aim/)
 - [躲避原书剧情五年后](https://www.bianlishihao.com/book/2vr7ahr/)
 - [渡鬼](https://www.bianlishihao.com/book/2vr7ahd/)
@@ -36,7 +36,6 @@
 - [京秋婚约](https://www.bianlishihao.com/book/2vr7ab2/)
 - [直男咒术师的限制级游戏](https://www.bianlishihao.com/book/2vr7a9e/)
 - [阴郁路人不想被喜欢](https://www.bianlishihao.com/book/2vr7a9d/)
-- [纯爱宇智波基本恋爱法](https://www.bianlishihao.com/book/2vr7a9a/)
 - [求生游戏：当邪神成为生活玩家后](https://www.bianlishihao.com/book/2vr7a96/)
 - [昭暮](https://www.bianlishihao.com/book/2vr6vdd/)
 - [修仙界都为我神魂颠倒](https://www.bianlishihao.com/book/2vr6um7/)
@@ -406,7 +405,6 @@
 - [隔壁班的松田君](https://www.bianlishihao.com/book/9ioihf/)
 - [当了卧底的我发现遍地熟人](https://www.bianlishihao.com/book/9ioida/)
 - [虫族治愈师，但恐虫](https://www.bianlishihao.com/book/9ioicl/)
-- [被阴湿坏女人缠上后](https://www.bianlishihao.com/book/9ioi4s/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.bianlishihao.com/book/9iohae/)
 - [你也没死？](https://www.bianlishihao.com/book/9iofcj/)
 - [老公是松散生命体](https://www.bianlishihao.com/book/9iobe3/)

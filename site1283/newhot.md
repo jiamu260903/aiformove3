@@ -1,7 +1,7 @@
 
 # 书包网 - 免费小说阅读网_网络小说排行榜_最新小说推荐
 
-更新时间：2026-09-06 03:25:15
+更新时间：2026-09-07 03:26:22
 
 书包网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。
 
@@ -16,6 +16,7 @@
 - [清穿女回来后[天幕]](https://www.cialisgs.com/book/89ru3pq/)
 - [咦？我爸爸复活啦](https://www.cialisgs.com/book/89ru3pp/)
 - [[综英美]和亲友群穿哥谭以后](https://www.cialisgs.com/book/89ru3pl/)
+- [欲加之罪](https://www.cialisgs.com/book/89ru3p6/)
 - [禁止继承限制级雌君](https://www.cialisgs.com/book/89ru3p5/)
 - [等我吃腻了再倒闭可以吗](https://www.cialisgs.com/book/89ru3p3/)
 - [同时扮演贵族学院F4和平民校花](https://www.cialisgs.com/book/89ru3or/)
@@ -25,7 +26,6 @@
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.cialisgs.com/book/89ru3o1/)
 - [暴君偏头痛](https://www.cialisgs.com/book/89ru3nq/)
 - [[综英美]让我统治哥谭！！！](https://www.cialisgs.com/book/89ru3n0/)
-- [失而复得的白月光[快穿]](https://www.cialisgs.com/book/89ru3mg/)
 - [青城玩家明明超强却过分谨慎](https://www.cialisgs.com/book/89ru3m6/)
 - [躲避原书剧情五年后](https://www.cialisgs.com/book/89ru3lp/)
 - [渡鬼](https://www.cialisgs.com/book/89ru3k8/)
@@ -35,7 +35,6 @@
 - [高调装神，猥琐发育](https://www.cialisgs.com/book/89ru3ed/)
 - [京秋婚约](https://www.cialisgs.com/book/89ru3ca/)
 - [直男咒术师的限制级游戏](https://www.cialisgs.com/book/89ru3bn/)
-- [纯爱宇智波基本恋爱法](https://www.cialisgs.com/book/89ru3bi/)
 - [阴郁路人不想被喜欢](https://www.cialisgs.com/book/89ru3ba/)
 - [求生游戏：当邪神成为生活玩家后](https://www.cialisgs.com/book/89ru3b9/)
 - [昭暮](https://www.cialisgs.com/book/89rtoen/)
@@ -393,7 +392,6 @@
 - [举朝上下为我的神仙人设头疼中](https://www.cialisgs.com/book/qiqs6s/)
 - [咒术师，但队友是侦探](https://www.cialisgs.com/book/qiqs3r/)
 - [关于我想和太宰当一辈子的挚友可是他怎么居然想和我结婚这件事](https://www.cialisgs.com/book/qiqs1j/)
-- [被阴湿坏女人缠上后](https://www.cialisgs.com/book/qiqruo/)
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.cialisgs.com/book/qiqrqo/)
 - [神之子与排球的适配性](https://www.cialisgs.com/book/qiqre3/)
 - [[足球]在比利时我们只玩天赋](https://www.cialisgs.com/book/qiqrdo/)

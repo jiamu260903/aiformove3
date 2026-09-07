@@ -1,7 +1,7 @@
 
 # 笔架中文小说_书友必备的无弹窗小说阅读网
 
-更新时间：2026-09-06 03:24:10
+更新时间：2026-09-07 03:25:16
 
 笔架中文小说致力于打造国内最权威免费小说阅读网, 提供小说在线阅读, 小说TXT下载, 网站页面清爽简洁是广大网络小说爱好者必备的小说阅读网。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.bijia188.com/book/6tolmq6/)
-- [揣崽丧夫后被情敌强娶了](https://www.bijia188.com/book/6tolmq5/)
 - [爱情的肯定句](https://www.bijia188.com/book/6tolmq1/)
 - [死遁APP](https://www.bijia188.com/book/6tolmq0/)
 - [欲加之罪](https://www.bijia188.com/book/6tolmpv/)
@@ -102,7 +101,6 @@
 - [让你们无剧本可走（快穿）](https://www.bijia188.com/book/6tojihv/)
 - [如何正确哄睡暴君](https://www.bijia188.com/book/6tojfnu/)
 - [怀了前任大哥的崽后](https://www.bijia188.com/book/6tojc7m/)
-- [九零首富的替嫁小媳妇](https://www.bijia188.com/book/6tojbm7/)
 - [死遁的亡夫们都回来了](https://www.bijia188.com/book/6tojb74/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.bijia188.com/book/6tojane/)
 - [我骗家里的钱养你啊](https://www.bijia188.com/book/6toja0d/)
@@ -154,6 +152,7 @@
 - [权宋一只统](https://www.bijia188.com/book/6toh8br/)
 - [爱好和平但狂拆机甲](https://www.bijia188.com/book/6toh11u/)
 - [海岛求生：生活玩家种田囤货](https://www.bijia188.com/book/6tog5ji/)
+- [老公对不起](https://www.bijia188.com/book/6tog5hp/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.bijia188.com/book/6tog5c5/)
 - [[娱乐圈]过分美丽的她](https://www.bijia188.com/book/6tog56i/)
 - [清澈女大的六零年代](https://www.bijia188.com/book/6tog4ek/)

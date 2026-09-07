@@ -1,13 +1,14 @@
 
 # 春日书屋-免费热门小说在线阅读平台|晋江文学|全本免费畅读
 
-更新时间：2026-09-06 03:37:35
+更新时间：2026-09-07 03:38:45
 
 春日书屋是一个专注于提供免费全本小说的在线阅读平台。精选海量热门网络小说，涵盖玄幻、言情、都市、仙侠等各类题材，所有书籍均可免费畅读。致力于为广大书友打造一个无弹窗、更新快的纯净阅读空间，让您轻松追更，尽享阅读乐趣！
 
 - [春日书屋小说](https://www.shenyuanhg.com/)
 
 ## 最新小说
+- [欲加之罪](https://www.shenyuanhg.com/book/7gie9it/)
 - [自知之明](https://www.shenyuanhg.com/book/7gie9io/)
 - [清穿女回来后[天幕]](https://www.shenyuanhg.com/book/7gie9il/)
 - [[综英美]和亲友群穿哥谭以后](https://www.shenyuanhg.com/book/7gie9h6/)
@@ -132,7 +133,6 @@
 - [东映排球部](https://www.shenyuanhg.com/book/7gibtgn/)
 - [被公用的美人陪读/美校](https://www.shenyuanhg.com/book/7gibt9o/)
 - [备胎的我重生成万人迷](https://www.shenyuanhg.com/book/7gibt4s/)
-- [失而复得的白月光[快穿]](https://www.shenyuanhg.com/book/7gibsv6/)
 - [当小狗炮灰分手后](https://www.shenyuanhg.com/book/7gibsf4/)
 - [堕魔](https://www.shenyuanhg.com/book/7gibs60/)
 - [我妈是大佬[快穿]](https://www.shenyuanhg.com/book/7gibs55/)
@@ -384,7 +384,6 @@
 - [[足球]在比利时我们只玩天赋](https://www.shenyuanhg.com/book/7giars7/)
 - [直播捏玩具被榜一大哥撅了](https://www.shenyuanhg.com/book/7giarnu/)
 - [高冷影后逼我标记她](https://www.shenyuanhg.com/book/7giargh/)
-- [被阴湿坏女人缠上后](https://www.shenyuanhg.com/book/7giardv/)
 - [请问夫君你哪位](https://www.shenyuanhg.com/book/7giarcb/)
 - [每天都在和太宰互换身体](https://www.shenyuanhg.com/book/7giar9v/)
 - [小狗向导，世界瑰宝！](https://www.shenyuanhg.com/book/7giar9o/)
@@ -420,14 +419,12 @@
 - [吐槽役审神者会爆改幕后大boss吗](https://www.shenyuanhg.com/book/7giam6l/)
 - [老公是松散生命体](https://www.shenyuanhg.com/book/7gials6/)
 - [可怜的天然呆直男[快穿]](https://www.shenyuanhg.com/book/7giakn6/)
-- [纯爱宇智波基本恋爱法](https://www.shenyuanhg.com/book/7giakjt/)
 - [善逸拒绝成为咒术师](https://www.shenyuanhg.com/book/7giajou/)
 - [[足球]罗蜜第一志愿](https://www.shenyuanhg.com/book/7giai26/)
 - [被四皇错看成小动物后](https://www.shenyuanhg.com/book/7giagru/)
 - [刀子精手心的人偶崽崽](https://www.shenyuanhg.com/book/7giabjs/)
 - [战死的阿爹回来了[年代]](https://www.shenyuanhg.com/book/7giab63/)
 - [[综英美]让我统治哥谭！！！](https://www.shenyuanhg.com/book/7gia9oi/)
-- [盛夏晴浓](https://www.shenyuanhg.com/book/7gia8so/)
 - [好巧，你也是妹控？[综崩铁]](https://www.shenyuanhg.com/book/7gia69b/)
 - [欢迎来到重生点](https://www.shenyuanhg.com/book/7gia4pj/)
 - [关于我虚构了一个男友这件事](https://www.shenyuanhg.com/book/7gia3oe/)

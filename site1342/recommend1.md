@@ -1,7 +1,7 @@
 
 # 阿舍岛小说 - 章节最新最全免费的小说阅读网
 
-更新时间：2026-09-06 03:23:23
+更新时间：2026-09-07 03:24:28
 
 阿舍岛小说提供数万本经典热门小说免费阅读服务，包括但不限于玄幻、言情、网游、穿越等多种类型。网站内容丰富，章节更新及时全面，致力于为读者打造最佳的免费小说阅读体验。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.ashedao.com/book/99d3aa2/)
-- [揣崽丧夫后被情敌强娶了](https://www.ashedao.com/book/99d3aa1/)
 - [八零法医，带全家致富](https://www.ashedao.com/book/99d3a9u/)
 - [谁说踢球就不能成为名侦探[足球]](https://www.ashedao.com/book/99d3a9r/)
 - [欲和离？夫君他目不识丁](https://www.ashedao.com/book/99d3a9p/)
@@ -108,7 +107,6 @@
 - [我与龙傲天寿命共享](https://www.ashedao.com/book/99d11lg/)
 - [如何正确哄睡暴君](https://www.ashedao.com/book/99d0t5l/)
 - [怀了前任大哥的崽后](https://www.ashedao.com/book/99d0oh7/)
-- [九零首富的替嫁小媳妇](https://www.ashedao.com/book/99d0neg/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.ashedao.com/book/99d0m2e/)
 - [被天使之王骗婚后[诡秘之主]](https://www.ashedao.com/book/99d0irm/)
 - [沈助理又在隐藏他的超能力](https://www.ashedao.com/book/99d0i9j/)
@@ -155,6 +153,7 @@
 - [权宋一只统](https://www.ashedao.com/book/99cur6s/)
 - [爱好和平但狂拆机甲](https://www.ashedao.com/book/99cul80/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.ashedao.com/book/99ctp5o/)
+- [老公对不起](https://www.ashedao.com/book/99ctp42/)
 - [海岛求生：生活玩家种田囤货](https://www.ashedao.com/book/99ctokm/)
 - [日化人生[科研]](https://www.ashedao.com/book/99cto61/)
 - [六零之成了卷王的妹妹](https://www.ashedao.com/book/99ctnve/)

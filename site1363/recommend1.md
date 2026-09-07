@@ -1,14 +1,13 @@
 
 # 无瑕天涯在线书库 - 免费小说在线阅读
 
-更新时间：2026-09-06 03:43:09
+更新时间：2026-09-07 03:44:25
 
 无瑕天涯在线书库自2003年创立至今，致力于提供包括武侠、言情、科幻等多种类型的小说免费在线阅读服务。页面设计简洁，持续优化用户体验，旨在为读者带来更好的阅读享受。
 
 - [无瑕天涯书库](https://www.wuxia688.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.wuxia688.com/book/2bjrga1/)
 - [和八个男人在极寒游戏求生](https://www.wuxia688.com/book/2bjrga0/)
 - [在中世纪做奴隶](https://www.wuxia688.com/book/2bjrg9s/)
 - [好心的俄罗斯人](https://www.wuxia688.com/book/2bjrg9o/)
@@ -105,7 +104,6 @@
 - [我骗家里的钱养你啊](https://www.wuxia688.com/book/2bjp5fj/)
 - [死遁的亡夫们都回来了](https://www.wuxia688.com/book/2bjp4k7/)
 - [怀了前任大哥的崽后](https://www.wuxia688.com/book/2bjp318/)
-- [九零首富的替嫁小媳妇](https://www.wuxia688.com/book/2bjp2vr/)
 - [在民俗惊悚片被诸神庇护](https://www.wuxia688.com/book/2bjost0/)
 - [死对头又在挑衅我](https://www.wuxia688.com/book/2bjor93/)
 - [沈助理又在隐藏他的超能力](https://www.wuxia688.com/book/2bjoq58/)
@@ -167,6 +165,7 @@
 - [我有一座安全城](https://www.wuxia688.com/book/2bjlt5a/)
 - [[娱乐圈]过分美丽的她](https://www.wuxia688.com/book/2bjlso5/)
 - [全民求生:从小木屋到魔法农场](https://www.wuxia688.com/book/2bjlsnr/)
+- [老公对不起](https://www.wuxia688.com/book/2bjlsf8/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.wuxia688.com/book/2bjls8g/)
 - [五十年代港城日常](https://www.wuxia688.com/book/2bjls7k/)
 - [假少爷离开后](https://www.wuxia688.com/book/2bjls1s/)

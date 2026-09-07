@@ -1,7 +1,7 @@
 
 # 酷匠小说网 - 专注手机阅读，免费小说在线阅读及下载
 
-更新时间：2026-09-06 03:46:48
+更新时间：2026-09-07 03:48:06
 
 酷匠小说网提供最新免费小说在线阅读及下载。包括都市小说，玄幻小说，言情小说等。精致排版，每天更新，打造极致阅读体验，让您静享“精品阅读时光”。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.yumin66.com/book/5q5nel/)
-- [揣崽丧夫后被情敌强娶了](https://www.yumin66.com/book/5q5nek/)
 - [末世八年春，游戏降临](https://www.yumin66.com/book/5q5nej/)
 - [暗恋的价格是三万块](https://www.yumin66.com/book/5q5nei/)
 - [等我吃腻了再倒闭可以吗](https://www.yumin66.com/book/5q5neh/)
@@ -89,7 +88,6 @@
 - [星际团宠小人鱼](https://www.yumin66.com/book/5q5n58/)
 - [十九世纪贵族厨房（美食）](https://www.yumin66.com/book/5q5n54/)
 - [始乱终弃清冷首辅后](https://www.yumin66.com/book/5q5n51/)
-- [九零首富的替嫁小媳妇](https://www.yumin66.com/book/5q5n4l/)
 - [高调装神，猥琐发育](https://www.yumin66.com/book/5q5n4h/)
 - [假少爷离开后](https://www.yumin66.com/book/5q5n4e/)
 - [直男咒术师的限制级游戏](https://www.yumin66.com/book/5q5n44/)
@@ -98,6 +96,7 @@
 - [路人攻了主角攻［快穿］](https://www.yumin66.com/book/5q5llf/)
 - [昭暮](https://www.yumin66.com/book/5q5c2s/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.yumin66.com/book/5q50qj/)
+- [老公对不起](https://www.yumin66.com/book/5q4ipa/)
 - [[足球]足坛人生模拟器](https://www.yumin66.com/book/5q46ss/)
 - [上个鬼班[无限]](https://www.yumin66.com/book/5q3prn/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.yumin66.com/book/5q3msv/)

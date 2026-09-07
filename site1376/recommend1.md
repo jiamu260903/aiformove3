@@ -1,7 +1,7 @@
 
 # 零点看书吧-书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-06 03:27:22
+更新时间：2026-09-07 03:28:29
 
 零点看书吧是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节。作为无弹窗的小说阅读平台，零点看书吧成为网络小说爱好者必备的选择。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.gjnbgb.com/book/2s9t8t5/)
-- [揣崽丧夫后被情敌强娶了](https://www.gjnbgb.com/book/2s9t8q8/)
 - [末世八年春，游戏降临](https://www.gjnbgb.com/book/2s9t5fr/)
 - [［西幻］RPG就不要谈恋爱了吧！](https://www.gjnbgb.com/book/2s9t5fp/)
 - [死遁APP](https://www.gjnbgb.com/book/2s9t5fm/)
@@ -148,8 +147,8 @@
 - [在民俗惊悚片被诸神庇护](https://www.gjnbgb.com/book/2s9nq7m/)
 - [高门小婢](https://www.gjnbgb.com/book/2s9nq3s/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.gjnbgb.com/book/2s9npvq/)
+- [老公对不起](https://www.gjnbgb.com/book/2s9npnn/)
 - [始乱终弃清冷首辅后](https://www.gjnbgb.com/book/2s9nplu/)
-- [九零首富的替嫁小媳妇](https://www.gjnbgb.com/book/2s9nplr/)
 - [全民求生:从小木屋到魔法农场](https://www.gjnbgb.com/book/2s9npgf/)
 - [完蛋！被恨孕男包围了！](https://www.gjnbgb.com/book/2s9npf3/)
 - [六零之成了卷王的妹妹](https://www.gjnbgb.com/book/2s9npdc/)
