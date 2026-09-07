@@ -1,7 +1,7 @@
 
 # 书旗全本小说网 - 书旗小说排行榜, 已完结版书旗小说推荐
 
-更新时间：2026-09-06 03:38:34
+更新时间：2026-09-07 03:39:44
 
 书旗全本小说网提供最新最全最热门的小说作品排行，包括但不限于已完结版玄幻小说排行榜等。本站汇集了海量网络免费小说资源供您选择。
 
@@ -11,6 +11,7 @@
 - [幼崽假少爷选择回归寒门](https://www.shuqi687.com/book/8vsmjgj/)
 - [[足球]小小鸟堂堂来袭](https://www.shuqi687.com/book/8vsmjg6/)
 - [同时扮演贵族学院F4和平民校花](https://www.shuqi687.com/book/8vsmjg0/)
+- [欲加之罪](https://www.shuqi687.com/book/8vsmjfr/)
 - [清穿女回来后[天幕]](https://www.shuqi687.com/book/8vsmjfq/)
 - [我骗家里的钱养你啊](https://www.shuqi687.com/book/8vsmjfh/)
 - [咦？我爸爸复活啦](https://www.shuqi687.com/book/8vsmjf4/)
@@ -26,7 +27,6 @@
 - [暴君偏头痛](https://www.shuqi687.com/book/8vsmjda/)
 - [青城玩家明明超强却过分谨慎](https://www.shuqi687.com/book/8vsmjcj/)
 - [[综英美]让我统治哥谭！！！](https://www.shuqi687.com/book/8vsmjai/)
-- [失而复得的白月光[快穿]](https://www.shuqi687.com/book/8vsmja1/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.shuqi687.com/book/8vsmj9u/)
 - [躲避原书剧情五年后](https://www.shuqi687.com/book/8vsmj98/)
 - [你，后室管理员](https://www.shuqi687.com/book/8vsmj82/)
@@ -35,7 +35,6 @@
 - [高调装神，猥琐发育](https://www.shuqi687.com/book/8vsmj6e/)
 - [直男咒术师的限制级游戏](https://www.shuqi687.com/book/8vsmj4f/)
 - [京秋婚约](https://www.shuqi687.com/book/8vsmj2o/)
-- [纯爱宇智波基本恋爱法](https://www.shuqi687.com/book/8vsmj2d/)
 - [阴郁路人不想被喜欢](https://www.shuqi687.com/book/8vsmj26/)
 - [求生游戏：当邪神成为生活玩家后](https://www.shuqi687.com/book/8vsmj15/)
 - [昭暮](https://www.shuqi687.com/book/8vsm87g/)
@@ -404,7 +403,6 @@
 - [顶流他姐有神豪系统](https://www.shuqi687.com/book/spa3hd/)
 - [青山不渡](https://www.shuqi687.com/book/spa3h7/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.shuqi687.com/book/spa340/)
-- [被阴湿坏女人缠上后](https://www.shuqi687.com/book/spa2a5/)
 - [隔壁班的松田君](https://www.shuqi687.com/book/spa1lu/)
 - [当了卧底的我发现遍地熟人](https://www.shuqi687.com/book/spa131/)
 - [虫族治愈师，但恐虫](https://www.shuqi687.com/book/spa0o3/)

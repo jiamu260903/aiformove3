@@ -1,7 +1,7 @@
 
 # 三三言情小说 - 全本网文免费阅读, 最新最热言情故事
 
-更新时间：2026-09-06 03:47:06
+更新时间：2026-09-07 03:48:24
 
 三三言情小说为您提供海量全本完结的言情小说资源，在这里您可以免费在线阅读最新、最受欢迎的爱情故事。无论您是喜欢经典还是追求潮流的新作，我们都有丰富的选择等待着您来探索。
 
@@ -14,6 +14,7 @@
 - [我骗家里的钱养你啊](https://www.zhaoxingangjiegou.com/book/1duot46/)
 - [穿为龙傲天发妻后](https://www.zhaoxingangjiegou.com/book/1duot43/)
 - [[综英美]和亲友群穿哥谭以后](https://www.zhaoxingangjiegou.com/book/1duot3u/)
+- [欲加之罪](https://www.zhaoxingangjiegou.com/book/1duot3p/)
 - [同时扮演贵族学院F4和平民校花](https://www.zhaoxingangjiegou.com/book/1duot3k/)
 - [自知之明](https://www.zhaoxingangjiegou.com/book/1duot3h/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.zhaoxingangjiegou.com/book/1duot3b/)
@@ -27,7 +28,6 @@
 - [躲避原书剧情五年后](https://www.zhaoxingangjiegou.com/book/1duot0f/)
 - [渡鬼](https://www.zhaoxingangjiegou.com/book/1duot05/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.zhaoxingangjiegou.com/book/1duosv7/)
-- [失而复得的白月光[快穿]](https://www.zhaoxingangjiegou.com/book/1duosuf/)
 - [[综英美]让我统治哥谭！！！](https://www.zhaoxingangjiegou.com/book/1duosu6/)
 - [被四皇错看成小动物后](https://www.zhaoxingangjiegou.com/book/1duossn/)
 - [你，后室管理员](https://www.zhaoxingangjiegou.com/book/1duosrb/)
@@ -37,7 +37,6 @@
 - [求求你们别吃了](https://www.zhaoxingangjiegou.com/book/1duospp/)
 - [直男咒术师的限制级游戏](https://www.zhaoxingangjiegou.com/book/1duoso6/)
 - [阴郁路人不想被喜欢](https://www.zhaoxingangjiegou.com/book/1duosnv/)
-- [纯爱宇智波基本恋爱法](https://www.zhaoxingangjiegou.com/book/1duosm1/)
 - [求生游戏：当邪神成为生活玩家后](https://www.zhaoxingangjiegou.com/book/1duosla/)
 - [穿书八年后，女配再就业](https://www.zhaoxingangjiegou.com/book/1duohqo/)
 - [昭暮](https://www.zhaoxingangjiegou.com/book/1duohpd/)
@@ -405,7 +404,6 @@
 - [无能的丈夫们](https://www.zhaoxingangjiegou.com/book/4j3t0s/)
 - [直播捏玩具被榜一大哥撅了](https://www.zhaoxingangjiegou.com/book/4j3sn7/)
 - [作家与读者](https://www.zhaoxingangjiegou.com/book/4j3sla/)
-- [被阴湿坏女人缠上后](https://www.zhaoxingangjiegou.com/book/4j3s5a/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.zhaoxingangjiegou.com/book/4j3qhi/)
 - [你也没死？](https://www.zhaoxingangjiegou.com/book/4j3p4s/)
 - [老公是松散生命体](https://www.zhaoxingangjiegou.com/book/4j3no9/)

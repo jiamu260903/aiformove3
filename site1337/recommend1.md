@@ -1,14 +1,13 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-06 03:25:48
+更新时间：2026-09-07 03:26:55
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
 - [随梦小说网](https://www.cq082.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.cq082.com/book/1sdfha2/)
 - [和八个男人在极寒游戏求生](https://www.cq082.com/book/1sdfha1/)
 - [我只想上京赶考啊[聊斋]](https://www.cq082.com/book/1sdfh9s/)
 - [病美人重生日记](https://www.cq082.com/book/1sdfh9q/)
@@ -108,7 +107,6 @@
 - [我与龙傲天寿命共享](https://www.cq082.com/book/1sdd9h3/)
 - [如何正确哄睡暴君](https://www.cq082.com/book/1sdd5hl/)
 - [怀了前任大哥的崽后](https://www.cq082.com/book/1sdcuvc/)
-- [九零首富的替嫁小媳妇](https://www.cq082.com/book/1sdcuia/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.cq082.com/book/1sdctb3/)
 - [被天使之王骗婚后[诡秘之主]](https://www.cq082.com/book/1sdcpol/)
 - [死对头又在挑衅我](https://www.cq082.com/book/1sdcovc/)
@@ -167,6 +165,7 @@
 - [高门小婢](https://www.cq082.com/book/1sd9tt3/)
 - [海岛求生：生活玩家种田囤货](https://www.cq082.com/book/1sd9tjj/)
 - [全民求生:从小木屋到魔法农场](https://www.cq082.com/book/1sd9tf9/)
+- [老公对不起](https://www.cq082.com/book/1sd9tc2/)
 - [五十年代港城日常](https://www.cq082.com/book/1sd9tbr/)
 - [我是唯一地上神国](https://www.cq082.com/book/1sd9tbm/)
 - [清澈女大的六零年代](https://www.cq082.com/book/1sd9t9s/)

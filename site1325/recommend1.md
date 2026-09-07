@@ -1,14 +1,13 @@
 
 # 炫书网-免费全本小说在线阅读分享平台
 
-更新时间：2026-09-06 03:44:40
+更新时间：2026-09-07 03:45:58
 
 炫书网提供免费全本小说在线阅读服务，是国内领先的全集全本完结TXT电子书免费下载分享平台。用户可以上传或下载各种类型的优秀电子书籍。
 
 - [炫书网](https://www.xqwz8bk.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.xqwz8bk.com/book/1igm36o/)
 - [和八个男人在极寒游戏求生](https://www.xqwz8bk.com/book/1igm36n/)
 - [二次分化后他怀了死对头的崽](https://www.xqwz8bk.com/book/1igm36m/)
 - [强取师尊后](https://www.xqwz8bk.com/book/1igm36l/)
@@ -86,7 +85,6 @@
 - [我们生活玩家是这样的](https://www.xqwz8bk.com/book/1igm31k/)
 - [星际团宠小人鱼](https://www.xqwz8bk.com/book/1igm2ui/)
 - [原配夫人](https://www.xqwz8bk.com/book/1igm2ua/)
-- [九零首富的替嫁小媳妇](https://www.xqwz8bk.com/book/1igm2u0/)
 - [始乱终弃清冷首辅后](https://www.xqwz8bk.com/book/1igm2ti/)
 - [[封神]圣人生欲](https://www.xqwz8bk.com/book/1igm2t8/)
 - [十九世纪贵族厨房（美食）](https://www.xqwz8bk.com/book/1igm2sr/)
@@ -98,6 +96,7 @@
 - [路人攻了主角攻［快穿］](https://www.xqwz8bk.com/book/1igm1c7/)
 - [昭暮](https://www.xqwz8bk.com/book/1iglnr8/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.xqwz8bk.com/book/1iglcip/)
+- [老公对不起](https://www.xqwz8bk.com/book/1igkule/)
 - [[足球]足坛人生模拟器](https://www.xqwz8bk.com/book/1igkgub/)
 - [上个鬼班[无限]](https://www.xqwz8bk.com/book/1igke7b/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.xqwz8bk.com/book/1igk3t9/)

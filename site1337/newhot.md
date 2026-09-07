@@ -1,7 +1,7 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-06 03:25:48
+更新时间：2026-09-07 03:26:55
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
@@ -20,6 +20,7 @@
 - [[综英美]和亲友群穿哥谭以后](https://www.cq082.com/book/1sdfh6n/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.cq082.com/book/1sdfh6a/)
 - [穿为龙傲天发妻后](https://www.cq082.com/book/1sdfh5n/)
+- [欲加之罪](https://www.cq082.com/book/1sdfh55/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.cq082.com/book/1sdfgag/)
 - [渡鬼](https://www.cq082.com/book/1sdfg94/)
 - [暴君偏头痛](https://www.cq082.com/book/1sdfg7t/)
@@ -136,7 +137,6 @@
 - [忍界修罗带球跑](https://www.cq082.com/book/1sdd55t/)
 - [备胎的我重生成万人迷](https://www.cq082.com/book/1sdd46u/)
 - [当小狗炮灰分手后](https://www.cq082.com/book/1sdd44l/)
-- [失而复得的白月光[快穿]](https://www.cq082.com/book/1sdd42b/)
 - [[清]给太子当姐姐那些年](https://www.cq082.com/book/1sdd3jb/)
 - [妖怪崽崽种田日常](https://www.cq082.com/book/1sdd3j0/)
 - [[综崩铁]谁家小鸟掉冥河了](https://www.cq082.com/book/1sdd3c5/)
@@ -383,7 +383,6 @@
 - [邪神祂总被觊觎](https://www.cq082.com/book/1sdc3k5/)
 - [身为宇智波的你，召唤出了千手家的老爷爷](https://www.cq082.com/book/1sdc3ii/)
 - [小狗向导，世界瑰宝！](https://www.cq082.com/book/1sdc3fj/)
-- [被阴湿坏女人缠上后](https://www.cq082.com/book/1sdc3dr/)
 - [放开那个黑暗哨兵！](https://www.cq082.com/book/1sdc3a2/)
 - [直播捏玩具被榜一大哥撅了](https://www.cq082.com/book/1sdc37j/)
 - [神之子与排球的适配性](https://www.cq082.com/book/1sdc2st/)
@@ -421,12 +420,10 @@
 - [老公是松散生命体](https://www.cq082.com/book/1sdbtcc/)
 - [可怜的天然呆直男[快穿]](https://www.cq082.com/book/1sdbt8j/)
 - [善逸拒绝成为咒术师](https://www.cq082.com/book/1sdbspf/)
-- [纯爱宇智波基本恋爱法](https://www.cq082.com/book/1sdbrua/)
 - [[足球]罗蜜第一志愿](https://www.cq082.com/book/1sdbpej/)
 - [被四皇错看成小动物后](https://www.cq082.com/book/1sdbodm/)
 - [刀子精手心的人偶崽崽](https://www.cq082.com/book/1sdbks8/)
 - [战死的阿爹回来了[年代]](https://www.cq082.com/book/1sdbk81/)
-- [盛夏晴浓](https://www.cq082.com/book/1sdbfoe/)
 - [[综英美]让我统治哥谭！！！](https://www.cq082.com/book/1sdbfm2/)
 - [欢迎来到重生点](https://www.cq082.com/book/1sdbeus/)
 - [好巧，你也是妹控？[综崩铁]](https://www.cq082.com/book/1sdbepi/)

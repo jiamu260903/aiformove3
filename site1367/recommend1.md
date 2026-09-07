@@ -1,7 +1,7 @@
 
 # 奇幻笔趣屋 - 书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-06 03:35:57
+更新时间：2026-09-07 03:37:05
 
 奇幻笔趣屋收录整理最新最全的热门网络小说，提供所有小说首发最新章节免费阅读服务，是书友们最值得收藏的小说阅读网站。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.qihuan958.com/book/4rau0vv/)
-- [揣崽丧夫后被情敌强娶了](https://www.qihuan958.com/book/4rau0vu/)
 - [全民求生，但剑三](https://www.qihuan958.com/book/4rau0vt/)
 - [炮灰的海外亲戚回国啦！](https://www.qihuan958.com/book/4rau0vl/)
 - [乖乖女的杂货铺[八零]](https://www.qihuan958.com/book/4rau0vh/)
@@ -104,7 +103,6 @@
 - [死遁的亡夫们都回来了](https://www.qihuan958.com/book/4rarkt2/)
 - [我骗家里的钱养你啊](https://www.qihuan958.com/book/4rarkcd/)
 - [怀了前任大哥的崽后](https://www.qihuan958.com/book/4rarjv0/)
-- [九零首富的替嫁小媳妇](https://www.qihuan958.com/book/4rarjug/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.qihuan958.com/book/4rarjlt/)
 - [在民俗惊悚片被诸神庇护](https://www.qihuan958.com/book/4rarc7t/)
 - [死对头又在挑衅我](https://www.qihuan958.com/book/4rarc3e/)
@@ -161,6 +159,7 @@
 - [[娱乐圈]过分美丽的她](https://www.qihuan958.com/book/4raoesk/)
 - [全民求生:从小木屋到魔法农场](https://www.qihuan958.com/book/4raoes5/)
 - [假少爷离开后](https://www.qihuan958.com/book/4raoeld/)
+- [老公对不起](https://www.qihuan958.com/book/4raoek6/)
 - [我有一座安全城](https://www.qihuan958.com/book/4raoe7t/)
 - [成为养成系练习生后](https://www.qihuan958.com/book/4raoe7g/)
 - [我是唯一地上神国](https://www.qihuan958.com/book/4raoe0q/)

@@ -1,7 +1,7 @@
 
 # 情感小说-精彩小说推荐网,涵盖言情都市历史科幻等多种类型
 
-更新时间：2026-09-06 03:36:12
+更新时间：2026-09-07 03:37:21
 
 情感小说致力于为广大书友推荐各种类型好看的小说，包括但不限于言情、都市、历史、科幻、灵异、军事、悬疑、玄幻、武侠、末世等。看小说，找小说就上书格格小说推荐网！
 
@@ -12,6 +12,7 @@
 - [全世界名为爱的恶意](https://www.qinggan1687.com/book/3qc5irn/)
 - [等我吃腻了再倒闭可以吗](https://www.qinggan1687.com/book/3qc5irg/)
 - [禁止继承限制级雌君](https://www.qinggan1687.com/book/3qc5iqh/)
+- [欲加之罪](https://www.qinggan1687.com/book/3qc5iq7/)
 - [清穿女回来后[天幕]](https://www.qinggan1687.com/book/3qc5ip8/)
 - [自知之明](https://www.qinggan1687.com/book/3qc5iov/)
 - [[综英美]和亲友群穿哥谭以后](https://www.qinggan1687.com/book/3qc5ioj/)
@@ -82,7 +83,6 @@
 - [超A奶龙饲养指南](https://www.qinggan1687.com/book/3qc3iaq/)
 - [[综英美]flash小游戏，哥谭出品](https://www.qinggan1687.com/book/3qc3i2q/)
 - [作为甚尔亡妻的我变成触手了！](https://www.qinggan1687.com/book/3qc3h90/)
-- [失而复得的白月光[快穿]](https://www.qinggan1687.com/book/3qc3ga3/)
 - [这个迫嫁我愿意的](https://www.qinggan1687.com/book/3qc3g8a/)
 - [期春思](https://www.qinggan1687.com/book/3qc3fu5/)
 - [逃荒[快穿]](https://www.qinggan1687.com/book/3qc3fbq/)
@@ -399,7 +399,6 @@
 - [小狗向导，世界瑰宝！](https://www.qinggan1687.com/book/3qc24e8/)
 - [国舅太难追了](https://www.qinggan1687.com/book/3qc24cv/)
 - [神之子与排球的适配性](https://www.qinggan1687.com/book/3qc2462/)
-- [被阴湿坏女人缠上后](https://www.qinggan1687.com/book/3qc245c/)
 - [在重男兄弟间夹缝求生](https://www.qinggan1687.com/book/3qc2443/)
 - [直播捏玩具被榜一大哥撅了](https://www.qinggan1687.com/book/3qc241k/)
 - [咒术师，但队友是侦探](https://www.qinggan1687.com/book/3qc23qh/)
@@ -422,7 +421,6 @@
 - [刀子精手心的人偶崽崽](https://www.qinggan1687.com/book/3qc1v5v/)
 - [我最讨厌打球了！](https://www.qinggan1687.com/book/3qc1t4k/)
 - [求生游戏：当邪神成为生活玩家后](https://www.qinggan1687.com/book/3qc1sh1/)
-- [盛夏晴浓](https://www.qinggan1687.com/book/3qc1p40/)
 - [[足球]小小鸟堂堂来袭](https://www.qinggan1687.com/book/3qc1o09/)
 - [幼崽假少爷选择回归寒门](https://www.qinggan1687.com/book/3qc1nru/)
 - [好巧，你也是妹控？[综崩铁]](https://www.qinggan1687.com/book/3qc1mg7/)
@@ -438,7 +436,6 @@
 - [自大狂](https://www.qinggan1687.com/book/3qc1adv/)
 - [暴君偏头痛](https://www.qinggan1687.com/book/3qc197j/)
 - [和室友他爸恋爱后](https://www.qinggan1687.com/book/3qc1645/)
-- [纯爱宇智波基本恋爱法](https://www.qinggan1687.com/book/3qc013k/)
 - [直男咒术师的限制级游戏](https://www.qinggan1687.com/book/3qc007n/)
 - [京秋婚约](https://www.qinggan1687.com/book/3qbvvn1/)
 - [阴郁路人不想被喜欢](https://www.qinggan1687.com/book/3qbvv7m/)

@@ -1,7 +1,7 @@
 
 # 精英文学 - 书友最值得收藏的小说免费阅读网
 
-更新时间：2026-09-06 03:43:39
+更新时间：2026-09-07 03:44:55
 
 精英文学为您提供一个干净舒适的阅读环境，作为书友最值得收藏的小说免费阅读网之一，我们致力于打造无广告干扰的最佳在线阅读体验。
 
@@ -23,6 +23,7 @@
 - [自知之明](https://www.xcposji.com/book/jnmrns/)
 - [全世界名为爱的恶意](https://www.xcposji.com/book/jnmrmk/)
 - [等我吃腻了再倒闭可以吗](https://www.xcposji.com/book/jnmrmc/)
+- [欲加之罪](https://www.xcposji.com/book/jnmrl5/)
 - [网球带给齐木的灾难](https://www.xcposji.com/book/jnmrl1/)
 - [清穿女回来后[天幕]](https://www.xcposji.com/book/jnmrkq/)
 - [当甚尔转生成继国](https://www.xcposji.com/book/jnmphj/)
@@ -70,7 +71,6 @@
 - [伪装路人后成了反派首领](https://www.xcposji.com/book/jnl5s5/)
 - [女装生崽，娃爹宇智波](https://www.xcposji.com/book/jnl5jo/)
 - [躲避原书剧情五年后](https://www.xcposji.com/book/jnl4oi/)
-- [失而复得的白月光[快穿]](https://www.xcposji.com/book/jnl4jb/)
 - [暗堕本丸，在线直播](https://www.xcposji.com/book/jnl4gj/)
 - [我当县令那些年](https://www.xcposji.com/book/jnl3qg/)
 - [五美元在哥谭活一月](https://www.xcposji.com/book/jnl3mk/)
@@ -416,7 +416,6 @@
 - [救命！猫尾巴藏不住了](https://www.xcposji.com/book/jnjhn6/)
 - [穿成影后的作死前妻](https://www.xcposji.com/book/jnjhm6/)
 - [癫骨](https://www.xcposji.com/book/jnjhjh/)
-- [被阴湿坏女人缠上后](https://www.xcposji.com/book/jnjhbr/)
 - [虫族治愈师，但恐虫](https://www.xcposji.com/book/jnjhbh/)
 - [青山不渡](https://www.xcposji.com/book/jnjh9g/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.xcposji.com/book/jnjgrv/)
@@ -428,7 +427,6 @@
 - [撕毁女配剧本的我被神之子读心了](https://www.xcposji.com/book/jnjcll/)
 - [青城玩家明明超强却过分谨慎](https://www.xcposji.com/book/jnjbgn/)
 - [矩阵干扰](https://www.xcposji.com/book/jnjaka/)
-- [盛夏晴浓](https://www.xcposji.com/book/jnjacl/)
 - [法外狂猫](https://www.xcposji.com/book/jnjab4/)
 - [欢迎来到重生点](https://www.xcposji.com/book/jnj9mc/)
 - [柯学剧本杀，但恋爱流打法](https://www.xcposji.com/book/jnj8v7/)
@@ -442,7 +440,6 @@
 - [[综英美]和亲友群穿哥谭以后](https://www.xcposji.com/book/jnisbl/)
 - [自大狂](https://www.xcposji.com/book/jnio84/)
 - [暴君偏头痛](https://www.xcposji.com/book/jniif0/)
-- [纯爱宇智波基本恋爱法](https://www.xcposji.com/book/jnhg4f/)
 - [[封神]圣人生欲](https://www.xcposji.com/book/jnhf96/)
 - [被四皇错看成小动物后](https://www.xcposji.com/book/jnhekj/)
 - [高调装神，猥琐发育](https://www.xcposji.com/book/jnheam/)

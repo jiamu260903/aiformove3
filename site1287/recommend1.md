@@ -1,7 +1,7 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-06 03:29:14
+更新时间：2026-09-07 03:30:22
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.hzciic.com/book/1sjvhsi/)
-- [揣崽丧夫后被情敌强娶了](https://www.hzciic.com/book/1sjvhsh/)
 - [失忆后和死对头有了崽](https://www.hzciic.com/book/1sjvhsg/)
 - [在年代文里跑运输](https://www.hzciic.com/book/1sjvhsf/)
 - [清穿女回来后[天幕]](https://www.hzciic.com/book/1sjvhse/)
@@ -89,7 +88,6 @@
 - [星际团宠小人鱼](https://www.hzciic.com/book/1sjvhjj/)
 - [十九世纪贵族厨房（美食）](https://www.hzciic.com/book/1sjvhj4/)
 - [[封神]圣人生欲](https://www.hzciic.com/book/1sjvhiu/)
-- [九零首富的替嫁小媳妇](https://www.hzciic.com/book/1sjvhip/)
 - [高调装神，猥琐发育](https://www.hzciic.com/book/1sjvhid/)
 - [假少爷离开后](https://www.hzciic.com/book/1sjvhib/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.hzciic.com/book/1sjvhgq/)
@@ -98,6 +96,7 @@
 - [路人攻了主角攻［快穿］](https://www.hzciic.com/book/1sjvg3f/)
 - [昭暮](https://www.hzciic.com/book/1sjv6go/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.hzciic.com/book/1sjuggq/)
+- [老公对不起](https://www.hzciic.com/book/1sju39t/)
 - [上个鬼班[无限]](https://www.hzciic.com/book/1sjtri4/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.hzciic.com/book/1sjtojr/)
 - [[足球]足坛人生模拟器](https://www.hzciic.com/book/1sjtlie/)

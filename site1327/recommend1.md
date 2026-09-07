@@ -1,14 +1,13 @@
 
 # 家家福顶点书包 - 免费TXT小说下载, 手机电子书资源
 
-更新时间：2026-09-06 03:29:47
+更新时间：2026-09-07 03:30:55
 
 家家福顶点书包为您提供最新最全的小说资源，包括但不限于txt电子书、手机txt小说下载等服务，所有内容均支持全本免费下载，是小说爱好者的理想选择。
 
 - [家家福顶点书包](https://www.jjfbaijia.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.jjfbaijia.com/book/8hhvkuk/)
 - [和八个男人在极寒游戏求生](https://www.jjfbaijia.com/book/8hhvkuj/)
 - [国师](https://www.jjfbaijia.com/book/8hhvkui/)
 - [穿为龙傲天发妻后](https://www.jjfbaijia.com/book/8hhvkuh/)
@@ -87,7 +86,6 @@
 - [[封神]圣人生欲](https://www.jjfbaijia.com/book/8hhvkmp/)
 - [原配夫人](https://www.jjfbaijia.com/book/8hhvkmk/)
 - [始乱终弃清冷首辅后](https://www.jjfbaijia.com/book/8hhvkm6/)
-- [九零首富的替嫁小媳妇](https://www.jjfbaijia.com/book/8hhvkln/)
 - [星际团宠小人鱼](https://www.jjfbaijia.com/book/8hhvkl5/)
 - [十九世纪贵族厨房（美食）](https://www.jjfbaijia.com/book/8hhvkkl/)
 - [高调装神，猥琐发育](https://www.jjfbaijia.com/book/8hhvkkh/)
@@ -98,6 +96,7 @@
 - [路人攻了主角攻［快穿］](https://www.jjfbaijia.com/book/8hhvj53/)
 - [昭暮](https://www.jjfbaijia.com/book/8hhv9iq/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.jjfbaijia.com/book/8hhuubg/)
+- [老公对不起](https://www.jjfbaijia.com/book/8hhuge2/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.jjfbaijia.com/book/8hhts2v/)
 - [[足球]足坛人生模拟器](https://www.jjfbaijia.com/book/8hhtrc9/)
 - [上个鬼班[无限]](https://www.jjfbaijia.com/book/8hhtoqs/)

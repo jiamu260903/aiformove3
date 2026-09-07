@@ -1,7 +1,7 @@
 
 # 创意小说网 - 最热门的小说在线阅读
 
-更新时间：2026-09-06 03:24:57
+更新时间：2026-09-07 03:26:04
 
 创意小说网是一个广大书友喜欢的小说网，免费为您提供热门小说无弹窗在线阅读和txt下载。
 
@@ -19,13 +19,13 @@
 - [咦？我爸爸复活啦](https://www.chuangyi1687.com/book/1hvgp17/)
 - [清穿女回来后[天幕]](https://www.chuangyi1687.com/book/1hvgp16/)
 - [自知之明](https://www.chuangyi1687.com/book/1hvgp15/)
+- [欲加之罪](https://www.chuangyi1687.com/book/1hvgp0p/)
 - [全世界名为爱的恶意](https://www.chuangyi1687.com/book/1hvgp0o/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.chuangyi1687.com/book/1hvgp0j/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.chuangyi1687.com/book/1hvgp0d/)
 - [渡鬼](https://www.chuangyi1687.com/book/1hvgoun/)
 - [躲避原书剧情五年后](https://www.chuangyi1687.com/book/1hvgotm/)
 - [[综英美]让我统治哥谭！！！](https://www.chuangyi1687.com/book/1hvgota/)
-- [失而复得的白月光[快穿]](https://www.chuangyi1687.com/book/1hvgosl/)
 - [青城玩家明明超强却过分谨慎](https://www.chuangyi1687.com/book/1hvgosi/)
 - [暴君偏头痛](https://www.chuangyi1687.com/book/1hvgorj/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.chuangyi1687.com/book/1hvgor5/)
@@ -34,7 +34,6 @@
 - [你，后室管理员](https://www.chuangyi1687.com/book/1hvgop8/)
 - [高调装神，猥琐发育](https://www.chuangyi1687.com/book/1hvgooe/)
 - [京秋婚约](https://www.chuangyi1687.com/book/1hvgomi/)
-- [纯爱宇智波基本恋爱法](https://www.chuangyi1687.com/book/1hvgojv/)
 - [阴郁路人不想被喜欢](https://www.chuangyi1687.com/book/1hvgoju/)
 - [直男咒术师的限制级游戏](https://www.chuangyi1687.com/book/1hvgojn/)
 - [求生游戏：当邪神成为生活玩家后](https://www.chuangyi1687.com/book/1hvgoj6/)
@@ -399,7 +398,6 @@
 - [癫骨](https://www.chuangyi1687.com/book/4vvu37/)
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.chuangyi1687.com/book/4vvu36/)
 - [作家与读者](https://www.chuangyi1687.com/book/4vvu1c/)
-- [被阴湿坏女人缠上后](https://www.chuangyi1687.com/book/4vvtit/)
 - [司寝宫女](https://www.chuangyi1687.com/book/4vvth5/)
 - [[足球]在比利时我们只玩天赋](https://www.chuangyi1687.com/book/4vvtci/)
 - [小狗向导，世界瑰宝！](https://www.chuangyi1687.com/book/4vvtb2/)

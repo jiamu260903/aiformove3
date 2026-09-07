@@ -1,7 +1,7 @@
 
 # 笔趣阁_书友最值得收藏的网络小说阅读网_新笔趣阁5200
 
-更新时间：2026-09-06 03:30:21
+更新时间：2026-09-07 03:31:28
 
 笔趣阁是广大书友最值得收藏的网络小说阅读网，新笔趣阁网站收录了当前最火热的网络小说，笔趣阁5200免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.kangrunwangye.com/book/1o9mgam/)
-- [揣崽丧夫后被情敌强娶了](https://www.kangrunwangye.com/book/1o9mgal/)
 - [魔咒请说普通话[西幻]](https://www.kangrunwangye.com/book/1o9mgak/)
 - [漫画取材所引发的修罗场](https://www.kangrunwangye.com/book/1o9mgaj/)
 - [咦？我爸爸复活啦](https://www.kangrunwangye.com/book/1o9mgai/)
@@ -84,7 +83,6 @@
 - [暗恋的价格是三万块](https://www.kangrunwangye.com/book/1o9mg8b/)
 - [我们生活玩家是这样的](https://www.kangrunwangye.com/book/1o9mg6e/)
 - [我司艺人永不塌房](https://www.kangrunwangye.com/book/1o9mg3b/)
-- [九零首富的替嫁小媳妇](https://www.kangrunwangye.com/book/1o9mg2d/)
 - [星际团宠小人鱼](https://www.kangrunwangye.com/book/1o9mg2c/)
 - [十九世纪贵族厨房（美食）](https://www.kangrunwangye.com/book/1o9mg1g/)
 - [原配夫人](https://www.kangrunwangye.com/book/1o9mg0n/)
@@ -98,6 +96,7 @@
 - [路人攻了主角攻［快穿］](https://www.kangrunwangye.com/book/1o9megj/)
 - [昭暮](https://www.kangrunwangye.com/book/1o9m4us/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.kangrunwangye.com/book/1o9lpcm/)
+- [老公对不起](https://www.kangrunwangye.com/book/1o9lbf0/)
 - [上个鬼班[无限]](https://www.kangrunwangye.com/book/1o9kvdn/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.kangrunwangye.com/book/1o9kn80/)
 - [[足球]足坛人生模拟器](https://www.kangrunwangye.com/book/1o9kh97/)
