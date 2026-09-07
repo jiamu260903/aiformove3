@@ -1,14 +1,13 @@
 
 # 看居中文网_免费小说在线阅读|无弹窗广告值得收藏
 
-更新时间：2026-09-06 03:30:38
+更新时间：2026-09-07 03:31:46
 
 看居中文网是最热门的免费小说网站，提供包括但不限于玄幻、都市、言情等多种类型的小说在线阅读服务。本站实时更新小说最新章节列表，拥有全面的小说排行榜，致力于为读者提供一个干净舒适的阅读环境，无弹窗广告干扰，是您寻找好书的理想之地。
 
 - [看居中文网](https://www.kanju688.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.kanju688.com/book/pb0bc6/)
 - [和八个男人在极寒游戏求生](https://www.kanju688.com/book/pb0bc5/)
 - [失忆后和死对头有了崽](https://www.kanju688.com/book/pb0bc2/)
 - [穿为龙傲天发妻后](https://www.kanju688.com/book/pb0bc1/)
@@ -103,7 +102,6 @@
 - [如何正确哄睡暴君](https://www.kanju688.com/book/pau5rb/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.kanju688.com/book/pau07f/)
 - [死遁的亡夫们都回来了](https://www.kanju688.com/book/pau01q/)
-- [九零首富的替嫁小媳妇](https://www.kanju688.com/book/patvmh/)
 - [怀了前任大哥的崽后](https://www.kanju688.com/book/patv34/)
 - [我骗家里的钱养你啊](https://www.kanju688.com/book/patu8n/)
 - [在民俗惊悚片被诸神庇护](https://www.kanju688.com/book/patnsn/)
@@ -163,6 +161,7 @@
 - [日化人生[科研]](https://www.kanju688.com/book/paqpe1/)
 - [直男咒术师的限制级游戏](https://www.kanju688.com/book/paqpcv/)
 - [成为养成系练习生后](https://www.kanju688.com/book/paqor8/)
+- [老公对不起](https://www.kanju688.com/book/paqopr/)
 - [海岛求生：生活玩家种田囤货](https://www.kanju688.com/book/paqomg/)
 - [95美国贵族高中模拟](https://www.kanju688.com/book/paqob4/)
 - [六零之成了卷王的妹妹](https://www.kanju688.com/book/paqo70/)

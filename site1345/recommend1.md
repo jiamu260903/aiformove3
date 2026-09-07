@@ -1,7 +1,7 @@
 
 # 探秘笔神阁小说-好看小说快速更新,页面清新流畅的免费小说网
 
-更新时间：2026-09-06 03:40:04
+更新时间：2026-09-07 03:41:16
 
 探秘笔神阁小说收录了大量受欢迎的小说作品，以极快的速度进行更新，并且保证用户在阅读时能够享受到清新流畅的页面体验。作为一个完全免费的小说网站，它深受广大网友的喜爱。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.tanmi818.com/book/977fhbm/)
-- [揣崽丧夫后被情敌强娶了](https://www.tanmi818.com/book/977fhbl/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.tanmi818.com/book/977fhbg/)
 - [恐游里的邻居们[万人迷]](https://www.tanmi818.com/book/977fhba/)
 - [占有欲Daddy是我老公？](https://www.tanmi818.com/book/977fhb7/)
@@ -105,7 +104,6 @@
 - [怀了前任大哥的崽后](https://www.tanmi818.com/book/977d62n/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.tanmi818.com/book/977d5og/)
 - [死遁的亡夫们都回来了](https://www.tanmi818.com/book/977d5bi/)
-- [九零首富的替嫁小媳妇](https://www.tanmi818.com/book/977d4ca/)
 - [死对头又在挑衅我](https://www.tanmi818.com/book/977ctk1/)
 - [沈助理又在隐藏他的超能力](https://www.tanmi818.com/book/977ct1c/)
 - [在民俗惊悚片被诸神庇护](https://www.tanmi818.com/book/977cr9l/)
@@ -167,6 +165,7 @@
 - [巨物致富：回乡开钓场](https://www.tanmi818.com/book/9779u0g/)
 - [高门小婢](https://www.tanmi818.com/book/9779tok/)
 - [95美国贵族高中模拟](https://www.tanmi818.com/book/9779tnu/)
+- [老公对不起](https://www.tanmi818.com/book/9779tdq/)
 - [六零之成了卷王的妹妹](https://www.tanmi818.com/book/9779td8/)
 - [[娱乐圈]过分美丽的她](https://www.tanmi818.com/book/9779tck/)
 - [日化人生[科研]](https://www.tanmi818.com/book/9779t9l/)

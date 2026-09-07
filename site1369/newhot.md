@@ -1,7 +1,7 @@
 
 # 武侠文学网 - 值得收藏的小说阅读平台
 
-更新时间：2026-09-06 03:43:24
+更新时间：2026-09-07 03:44:41
 
 武侠文学网为您提供丰富多样的小说资源，在这里您可以找到最新最热门的小说作品。无论是经典文学还是现代流行小说，都是您值得收藏的阅读选择。
 
@@ -11,6 +11,7 @@
 - [清穿女回来后[天幕]](https://www.wuxia988.com/book/1ms38ov/)
 - [等我吃腻了再倒闭可以吗](https://www.wuxia988.com/book/1ms38ot/)
 - [自知之明](https://www.wuxia988.com/book/1ms38o3/)
+- [欲加之罪](https://www.wuxia988.com/book/1ms38n8/)
 - [全世界名为爱的恶意](https://www.wuxia988.com/book/1ms38ms/)
 - [[综英美]和亲友群穿哥谭以后](https://www.wuxia988.com/book/1ms38mo/)
 - [穿为龙傲天发妻后](https://www.wuxia988.com/book/1ms38m5/)
@@ -89,7 +90,6 @@
 - [满级后我的外挂到账了[全息]](https://www.wuxia988.com/book/1ms16bj/)
 - [这个迫嫁我愿意的](https://www.wuxia988.com/book/1ms168b/)
 - [恐惧玫瑰](https://www.wuxia988.com/book/1ms15vu/)
-- [失而复得的白月光[快穿]](https://www.wuxia988.com/book/1ms15tq/)
 - [我被一个古人教会了爱情](https://www.wuxia988.com/book/1ms14l7/)
 - [反派真少爷搞了个抱错综艺后[穿书]](https://www.wuxia988.com/book/1ms14ap/)
 - [逃荒[快穿]](https://www.wuxia988.com/book/1ms1476/)
@@ -397,7 +397,6 @@
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.wuxia988.com/book/1mrvqjt/)
 - [直播捏玩具被榜一大哥撅了](https://www.wuxia988.com/book/1mrvqje/)
 - [高冷影后逼我标记她](https://www.wuxia988.com/book/1mrvqin/)
-- [被阴湿坏女人缠上后](https://www.wuxia988.com/book/1mrvqg9/)
 - [失忆后，和五条激情互演](https://www.wuxia988.com/book/1mrvqg2/)
 - [[足球]罗蜜第一志愿](https://www.wuxia988.com/book/1mrvqg0/)
 - [青空来信](https://www.wuxia988.com/book/1mrvq7j/)
@@ -423,7 +422,6 @@
 - [求生游戏：当邪神成为生活玩家后](https://www.wuxia988.com/book/1mrvjpv/)
 - [我最讨厌打球了！](https://www.wuxia988.com/book/1mrvio2/)
 - [[足球]小小鸟堂堂来袭](https://www.wuxia988.com/book/1mrvec2/)
-- [盛夏晴浓](https://www.wuxia988.com/book/1mrvdc3/)
 - [幼崽假少爷选择回归寒门](https://www.wuxia988.com/book/1mrvcsc/)
 - [好巧，你也是妹控？[综崩铁]](https://www.wuxia988.com/book/1mrvc91/)
 - [欢迎来到重生点](https://www.wuxia988.com/book/1mrvbbr/)
@@ -439,7 +437,6 @@
 - [暴君偏头痛](https://www.wuxia988.com/book/1mruug6/)
 - [和室友他爸恋爱后](https://www.wuxia988.com/book/1mrus0m/)
 - [阴郁路人不想被喜欢](https://www.wuxia988.com/book/1mrtn8s/)
-- [纯爱宇智波基本恋爱法](https://www.wuxia988.com/book/1mrtmlq/)
 - [直男咒术师的限制级游戏](https://www.wuxia988.com/book/1mrtltr/)
 - [京秋婚约](https://www.wuxia988.com/book/1mrtkt7/)
 ## 相关内容

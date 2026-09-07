@@ -1,7 +1,7 @@
 
 # 落秋文学网 - 免费全本小说阅读,最新章节更新,无弹窗广告
 
-更新时间：2026-09-06 03:42:07
+更新时间：2026-09-07 03:43:22
 
 落秋文学网提供最快最新的网络小说更新服务，推荐最好看的网络小说排行榜。全站支持无弹窗广告阅读体验，全本小说均可免费在线阅读。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.wenxue868.com/book/rlcn86/)
-- [揣崽丧夫后被情敌强娶了](https://www.wenxue868.com/book/rlcn85/)
 - [魔改剧本后我爆火了[娱乐圈]](https://www.wenxue868.com/book/rlcn81/)
 - [人，今晚土拨鼠站岗](https://www.wenxue868.com/book/rlcn80/)
 - [在中世纪做奴隶](https://www.wenxue868.com/book/rlcn7v/)
@@ -101,7 +100,6 @@
 - [让你们无剧本可走（快穿）](https://www.wenxue868.com/book/rlak0j/)
 - [我与龙傲天寿命共享](https://www.wenxue868.com/book/rlaip9/)
 - [如何正确哄睡暴君](https://www.wenxue868.com/book/rlahgo/)
-- [九零首富的替嫁小媳妇](https://www.wenxue868.com/book/rlacav/)
 - [我骗家里的钱养你啊](https://www.wenxue868.com/book/rlac1s/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.wenxue868.com/book/rlaang/)
 - [怀了前任大哥的崽后](https://www.wenxue868.com/book/rlaacu/)
@@ -154,6 +152,7 @@
 - [权宋一只统](https://www.wenxue868.com/book/rl88hg/)
 - [爱好和平但狂拆机甲](https://www.wenxue868.com/book/rl822n/)
 - [大瑛弟国](https://www.wenxue868.com/book/rl7650/)
+- [老公对不起](https://www.wenxue868.com/book/rl75ke/)
 - [高门小婢](https://www.wenxue868.com/book/rl75ij/)
 - [六零之成了卷王的妹妹](https://www.wenxue868.com/book/rl75g4/)
 - [假少爷离开后](https://www.wenxue868.com/book/rl75aq/)

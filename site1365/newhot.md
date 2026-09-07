@@ -1,7 +1,7 @@
 
 # 书城读书网_免费小说在线阅读|无弹窗广告
 
-更新时间：2026-09-06 03:38:05
+更新时间：2026-09-07 03:39:14
 
 书城读书网是最热门的免费小说网站，提供包括玄幻、都市、言情等多种类型的小说在线阅读服务。这里不仅有最新章节的实时更新，还有全面的小说排行榜，让您轻松找到喜欢的作品。阅读体验极佳，全程无弹窗广告干扰，值得收藏！
 
@@ -15,6 +15,7 @@
 - [清穿女回来后[天幕]](https://www.shucheng168.com/book/47fpa8g/)
 - [全世界名为爱的恶意](https://www.shucheng168.com/book/47fpa8c/)
 - [这个替嫁让我来！](https://www.shucheng168.com/book/47fpa83/)
+- [欲加之罪](https://www.shucheng168.com/book/47fpa7u/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.shucheng168.com/book/47fpa7c/)
 - [自知之明](https://www.shucheng168.com/book/47fpa79/)
 - [修仙界都为我神魂颠倒](https://www.shucheng168.com/book/47fp86r/)
@@ -87,7 +88,6 @@
 - [被马甲团宠的我开启地狱模式](https://www.shucheng168.com/book/47fn786/)
 - [我被一个古人教会了爱情](https://www.shucheng168.com/book/47fn77a/)
 - [逃荒[快穿]](https://www.shucheng168.com/book/47fn6oj/)
-- [失而复得的白月光[快穿]](https://www.shucheng168.com/book/47fn6k7/)
 - [反派真少爷搞了个抱错综艺后[穿书]](https://www.shucheng168.com/book/47fn68h/)
 - [这个迫嫁我愿意的](https://www.shucheng168.com/book/47fn67q/)
 - [满级后我的外挂到账了[全息]](https://www.shucheng168.com/book/47fn62d/)
@@ -408,7 +408,6 @@
 - [某柯学的正义伙伴](https://www.shucheng168.com/book/47flqqn/)
 - [我靠玛丽苏系统伪装神女](https://www.shucheng168.com/book/47flqmc/)
 - [每天都在和太宰互换身体](https://www.shucheng168.com/book/47flqkj/)
-- [被阴湿坏女人缠上后](https://www.shucheng168.com/book/47flqg8/)
 - [[足球]罗蜜第一志愿](https://www.shucheng168.com/book/47flqfn/)
 - [咒术师，但队友是侦探](https://www.shucheng168.com/book/47flqb1/)
 - [末世山居日常](https://www.shucheng168.com/book/47flq4l/)
@@ -422,7 +421,6 @@
 - [求生游戏：当邪神成为生活玩家后](https://www.shucheng168.com/book/47flmfj/)
 - [我最讨厌打球了！](https://www.shucheng168.com/book/47flmei/)
 - [刀子精手心的人偶崽崽](https://www.shucheng168.com/book/47flkbb/)
-- [盛夏晴浓](https://www.shucheng168.com/book/47flet7/)
 - [[足球]小小鸟堂堂来袭](https://www.shucheng168.com/book/47fleov/)
 - [幼崽假少爷选择回归寒门](https://www.shucheng168.com/book/47fleel/)
 - [好巧，你也是妹控？[综崩铁]](https://www.shucheng168.com/book/47flcgh/)
@@ -441,7 +439,6 @@
 - [京秋婚约](https://www.shucheng168.com/book/47fjouq/)
 - [直男咒术师的限制级游戏](https://www.shucheng168.com/book/47fjonv/)
 - [阴郁路人不想被喜欢](https://www.shucheng168.com/book/47fjo3m/)
-- [纯爱宇智波基本恋爱法](https://www.shucheng168.com/book/47fjn9g/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1365/index.md)

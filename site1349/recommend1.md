@@ -1,14 +1,13 @@
 
 # 文学小说668 - 全球最新最热的小说阅读平台
 
-更新时间：2026-09-06 03:41:52
+更新时间：2026-09-07 03:43:07
 
 文学小说668是全球最新、最热的小说阅读网站之一，汇集了包括言情小说、玄幻小说、穿越小说在内的各类优质小说资源，让读者能够尽情享受阅读的乐趣。
 
 - [文学小说668](https://www.wenxue668.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.wenxue668.com/book/44ff1hn/)
 - [和八个男人在极寒游戏求生](https://www.wenxue668.com/book/44ff1hm/)
 - [我们小区穿末世](https://www.wenxue668.com/book/44ff1hl/)
 - [乖乖女的杂货铺[八零]](https://www.wenxue668.com/book/44ff1hj/)
@@ -101,7 +100,6 @@
 - [摄政王家的咸鱼夫郎](https://www.wenxue668.com/book/44fct2c/)
 - [我与龙傲天寿命共享](https://www.wenxue668.com/book/44fcsv3/)
 - [如何正确哄睡暴君](https://www.wenxue668.com/book/44fcreu/)
-- [九零首富的替嫁小媳妇](https://www.wenxue668.com/book/44fcloa/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.wenxue668.com/book/44fclnd/)
 - [我骗家里的钱养你啊](https://www.wenxue668.com/book/44fcl1f/)
 - [怀了前任大哥的崽后](https://www.wenxue668.com/book/44fckr2/)
@@ -162,6 +160,7 @@
 - [海岛求生：生活玩家种田囤货](https://www.wenxue668.com/book/44f9f5l/)
 - [我有一座安全城](https://www.wenxue668.com/book/44f9f17/)
 - [巨物致富：回乡开钓场](https://www.wenxue668.com/book/44f9epc/)
+- [老公对不起](https://www.wenxue668.com/book/44f9ekq/)
 - [我是唯一地上神国](https://www.wenxue668.com/book/44f9eiu/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.wenxue668.com/book/44f9eir/)
 - [[娱乐圈]过分美丽的她](https://www.wenxue668.com/book/44f9ef1/)

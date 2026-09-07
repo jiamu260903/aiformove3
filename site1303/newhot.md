@@ -1,7 +1,7 @@
 
 # 顶点小说 - 无广告无弹窗在线小说阅读网站
 
-更新时间：2026-09-06 03:34:55
+更新时间：2026-09-07 03:36:04
 
 顶点小说致力于提供一个无广告、无弹窗干扰的高质量在线小说阅读体验。支持多种类型的小说在线阅读与TXT格式下载，界面设计简洁友好。
 
@@ -9,8 +9,10 @@
 
 ## 最新小说
 - [禁止继承限制级雌君](https://www.panyuplastic.com/book/6h8ug37/)
+- [欲加之罪](https://www.panyuplastic.com/book/6h8ug2v/)
 - [穿为龙傲天发妻后](https://www.panyuplastic.com/book/6h8ug2e/)
 - [重组家庭，但美校搞基！](https://www.panyuplastic.com/book/6h8ug1n/)
+- [抢了哨向文渣攻的老婆后](https://www.panyuplastic.com/book/6h8ug1g/)
 - [清穿女回来后[天幕]](https://www.panyuplastic.com/book/6h8ug17/)
 - [被俄罗斯小疯子娇养了](https://www.panyuplastic.com/book/6h8ug15/)
 - [[全职高手]带着魔性美貌穿越有什么用](https://www.panyuplastic.com/book/6h8ug0s/)
@@ -31,7 +33,6 @@
 - [每晚在梦里当暴君](https://www.panyuplastic.com/book/6h8ufsp/)
 - [李玉灯](https://www.panyuplastic.com/book/6h8ufs9/)
 - [豪门养子怀了大哥的崽](https://www.panyuplastic.com/book/6h8ufs1/)
-- [就算是龙傲天也不可以[快穿]](https://www.panyuplastic.com/book/6h8ufrq/)
 - [[综英美]和亲友群穿哥谭以后](https://www.panyuplastic.com/book/6h8ufrf/)
 - [矩阵干扰](https://www.panyuplastic.com/book/6h8ufre/)
 - [在女仆咖啡店兼职被校草缠上后](https://www.panyuplastic.com/book/6h8ufr4/)
@@ -58,7 +59,6 @@
 - [战死的阿爹回来了[年代]](https://www.panyuplastic.com/book/6h8ufml/)
 - [炮灰的我该如何上位？](https://www.panyuplastic.com/book/6h8ufmf/)
 - [我骗家里的钱养你啊](https://www.panyuplastic.com/book/6h8ufme/)
-- [失而复得的白月光[快穿]](https://www.panyuplastic.com/book/6h8ufma/)
 - [青城玩家明明超强却过分谨慎](https://www.panyuplastic.com/book/6h8ufm4/)
 - [可怜的天然呆直男[快穿]](https://www.panyuplastic.com/book/6h8ufm0/)
 - [好兄弟暴富后非要跟我结婚](https://www.panyuplastic.com/book/6h8ufln/)
@@ -72,7 +72,6 @@
 - [好巧，你也是妹控？[综崩铁]](https://www.panyuplastic.com/book/6h8uec8/)
 - [大美人怀了enigma上司的崽](https://www.panyuplastic.com/book/6h8uebv/)
 - [高调装神，猥琐发育](https://www.panyuplastic.com/book/6h8uebr/)
-- [纯爱宇智波基本恋爱法](https://www.panyuplastic.com/book/6h8uebp/)
 - [皇后守则[快穿]](https://www.panyuplastic.com/book/6h8ueb7/)
 - [刀子精手心的人偶崽崽](https://www.panyuplastic.com/book/6h8ueb6/)
 - [我不可能舔一个漂亮捞子](https://www.panyuplastic.com/book/6h8ueav/)
@@ -81,7 +80,6 @@
 - [阴郁路人不想被喜欢](https://www.panyuplastic.com/book/6h8ue9e/)
 - [善逸拒绝成为咒术师](https://www.panyuplastic.com/book/6h8ue98/)
 - [微臣怜惜公主](https://www.panyuplastic.com/book/6h8ta08/)
-- [盛夏晴浓](https://www.panyuplastic.com/book/6h8ta07/)
 - [某柯学的正义伙伴](https://www.panyuplastic.com/book/6h8t9vp/)
 - [[足球]能不能好好模拟游戏](https://www.panyuplastic.com/book/6h8t9vn/)
 - [被双胞胎竹马轮番娇养](https://www.panyuplastic.com/book/6h8t9u4/)
@@ -130,7 +128,6 @@
 - [龙傲天未婚妻不退婚了](https://www.panyuplastic.com/book/6h8ro5n/)
 - [我靠玛丽苏系统伪装神女](https://www.panyuplastic.com/book/6h8ro23/)
 - [汉武帝戾太子什么含金量](https://www.panyuplastic.com/book/6h8ro0s/)
-- [被阴湿坏女人缠上后](https://www.panyuplastic.com/book/6h8rntp/)
 - [cos穿，但美强惨刀子精](https://www.panyuplastic.com/book/6h8rnqg/)
 - [虫族治愈师，但恐虫](https://www.panyuplastic.com/book/6h8rncd/)
 - [这死beta老说我们不可能](https://www.panyuplastic.com/book/6h8rna0/)

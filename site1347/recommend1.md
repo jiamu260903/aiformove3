@@ -1,14 +1,13 @@
 
 # 故事来书吧-免费阅读全网最新最热小说
 
-更新时间：2026-09-06 03:28:41
+更新时间：2026-09-07 03:29:49
 
 故事来书吧提供海量免费无弹窗小说在线阅读服务，涵盖言情、都市、玄幻、武侠等多种类型，让你随时随地享受阅读的乐趣。
 
 - [故事来书吧](https://www.gushi688.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.gushi688.com/book/5121cvm/)
 - [和八个男人在极寒游戏求生](https://www.gushi688.com/book/5121cvl/)
 - [世界伏于她刀下[无限]](https://www.gushi688.com/book/5121cvj/)
 - [漫画取材所引发的修罗场](https://www.gushi688.com/book/5121cvi/)
@@ -105,7 +104,6 @@
 - [我骗家里的钱养你啊](https://www.gushi688.com/book/511v1si/)
 - [怀了前任大哥的崽后](https://www.gushi688.com/book/511v1kp/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.gushi688.com/book/511v1k5/)
-- [九零首富的替嫁小媳妇](https://www.gushi688.com/book/511v17b/)
 - [沈助理又在隐藏他的超能力](https://www.gushi688.com/book/511un2e/)
 - [死对头又在挑衅我](https://www.gushi688.com/book/511un2b/)
 - [在民俗惊悚片被诸神庇护](https://www.gushi688.com/book/511umpk/)
@@ -164,6 +162,7 @@
 - [海岛求生：生活玩家种田囤货](https://www.gushi688.com/book/511rq69/)
 - [直男咒术师的限制级游戏](https://www.gushi688.com/book/511rq5e/)
 - [清澈女大的六零年代](https://www.gushi688.com/book/511rq3r/)
+- [老公对不起](https://www.gushi688.com/book/511rq2f/)
 - [[娱乐圈]过分美丽的她](https://www.gushi688.com/book/511rpqt/)
 - [我有一座安全城](https://www.gushi688.com/book/511rppg/)
 - [95美国贵族高中模拟](https://www.gushi688.com/book/511rpl8/)

@@ -1,14 +1,13 @@
 
 # 精英文学 - 书友最值得收藏的小说免费阅读网
 
-更新时间：2026-09-06 03:43:39
+更新时间：2026-09-07 03:44:55
 
 精英文学为您提供一个干净舒适的阅读环境，作为书友最值得收藏的小说免费阅读网之一，我们致力于打造无广告干扰的最佳在线阅读体验。
 
 - [精英文学](https://www.xcposji.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.xcposji.com/book/jnmv6d/)
 - [和八个男人在极寒游戏求生](https://www.xcposji.com/book/jnmv5f/)
 - [世界伏于她刀下[无限]](https://www.xcposji.com/book/jnmrpr/)
 - [好心的俄罗斯人](https://www.xcposji.com/book/jnmrpq/)
@@ -158,12 +157,12 @@
 - [[封神]圣人生欲](https://www.xcposji.com/book/jnhf96/)
 - [十九世纪贵族厨房（美食）](https://www.xcposji.com/book/jnhf8f/)
 - [六零之成了卷王的妹妹](https://www.xcposji.com/book/jnhf7n/)
+- [老公对不起](https://www.xcposji.com/book/jnhf7h/)
 - [五十年代港城日常](https://www.xcposji.com/book/jnhf6m/)
 - [大瑛弟国](https://www.xcposji.com/book/jnhf0a/)
 - [巨物致富：回乡开钓场](https://www.xcposji.com/book/jnherk/)
 - [假少爷离开后](https://www.xcposji.com/book/jnheql/)
 - [[娱乐圈]过分美丽的她](https://www.xcposji.com/book/jnhef6/)
-- [九零首富的替嫁小媳妇](https://www.xcposji.com/book/jnheep/)
 - [我是唯一地上神国](https://www.xcposji.com/book/jnhee4/)
 - [原配夫人](https://www.xcposji.com/book/jnhecl/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.xcposji.com/book/jnhecg/)

@@ -1,7 +1,7 @@
 
 # 三三言情小说 - 全本网文免费阅读, 最新最热言情故事
 
-更新时间：2026-09-06 03:47:06
+更新时间：2026-09-07 03:48:24
 
 三三言情小说为您提供海量全本完结的言情小说资源，在这里您可以免费在线阅读最新、最受欢迎的爱情故事。无论您是喜欢经典还是追求潮流的新作，我们都有丰富的选择等待着您来探索。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.zhaoxingangjiegou.com/book/1duot4n/)
-- [揣崽丧夫后被情敌强娶了](https://www.zhaoxingangjiegou.com/book/1duot4m/)
 - [八零法医，带全家致富](https://www.zhaoxingangjiegou.com/book/1duot4l/)
 - [星露谷，但日本战国](https://www.zhaoxingangjiegou.com/book/1duot4k/)
 - [欲和离？夫君他目不识丁](https://www.zhaoxingangjiegou.com/book/1duot4j/)
@@ -87,7 +86,6 @@
 - [十九世纪贵族厨房（美食）](https://www.zhaoxingangjiegou.com/book/1duossb/)
 - [星际团宠小人鱼](https://www.zhaoxingangjiegou.com/book/1duoss5/)
 - [始乱终弃清冷首辅后](https://www.zhaoxingangjiegou.com/book/1duoss3/)
-- [九零首富的替嫁小媳妇](https://www.zhaoxingangjiegou.com/book/1duosrq/)
 - [原配夫人](https://www.zhaoxingangjiegou.com/book/1duosrl/)
 - [[封神]圣人生欲](https://www.zhaoxingangjiegou.com/book/1duosql/)
 - [高调装神，猥琐发育](https://www.zhaoxingangjiegou.com/book/1duosqh/)
@@ -99,6 +97,7 @@
 - [昭暮](https://www.zhaoxingangjiegou.com/book/1duohpd/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.zhaoxingangjiegou.com/book/1dunr34/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.zhaoxingangjiegou.com/book/1dunbt6/)
+- [老公对不起](https://www.zhaoxingangjiegou.com/book/1dun2ng/)
 - [[足球]足坛人生模拟器](https://www.zhaoxingangjiegou.com/book/1dun1rj/)
 - [上个鬼班[无限]](https://www.zhaoxingangjiegou.com/book/1dumvh9/)
 - [在卷王和废物之间选择做吉祥物](https://www.zhaoxingangjiegou.com/book/1dumn9j/)

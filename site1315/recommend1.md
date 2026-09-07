@@ -1,7 +1,7 @@
 
 # 连载小说网, 新笔趣小说阅读网 - 热门小说在线免费阅读
 
-更新时间：2026-09-06 03:32:47
+更新时间：2026-09-07 03:33:56
 
 连载小说网为您提供最新最全的小说资源，当顶点小说网无法访问时，请选择我们作为替代。这里是书友们的聚集地，拥有海量热门小说供您免费在线阅读。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.lianzai007.com/book/6g3n1mn/)
-- [揣崽丧夫后被情敌强娶了](https://www.lianzai007.com/book/6g3n1mm/)
 - [[足球]小小鸟堂堂来袭](https://www.lianzai007.com/book/6g3n1ml/)
 - [SSS级异种都是我前任](https://www.lianzai007.com/book/6g3n1mk/)
 - [八零法医，带全家致富](https://www.lianzai007.com/book/6g3n1mj/)
@@ -84,7 +83,6 @@
 - [恐游作精女配求生指南](https://www.lianzai007.com/book/6g3n1kc/)
 - [我们生活玩家是这样的](https://www.lianzai007.com/book/6g3n1ig/)
 - [我司艺人永不塌房](https://www.lianzai007.com/book/6g3n1i4/)
-- [九零首富的替嫁小媳妇](https://www.lianzai007.com/book/6g3n1et/)
 - [[封神]圣人生欲](https://www.lianzai007.com/book/6g3n1ej/)
 - [星际团宠小人鱼](https://www.lianzai007.com/book/6g3n1eg/)
 - [原配夫人](https://www.lianzai007.com/book/6g3n1dm/)
@@ -98,6 +96,7 @@
 - [路人攻了主角攻［快穿］](https://www.lianzai007.com/book/6g3mvu2/)
 - [昭暮](https://www.lianzai007.com/book/6g3mmar/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.lianzai007.com/book/6g3ma3d/)
+- [老公对不起](https://www.lianzai007.com/book/6g3lje8/)
 - [[足球]足坛人生模拟器](https://www.lianzai007.com/book/6g3l97c/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.lianzai007.com/book/6g3l7rn/)
 - [上个鬼班[无限]](https://www.lianzai007.com/book/6g3l0p3/)

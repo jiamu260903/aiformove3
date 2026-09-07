@@ -1,14 +1,13 @@
 
 # 书迷村-免费高质量网络小说阅读网,热门男生女生小说大全
 
-更新时间：2026-09-06 03:23:38
+更新时间：2026-09-07 03:24:43
 
 书迷村是广大书友最值得收藏的网络小说阅读平台，提供最新最全的男生小说、女生小说以及孟静薇等作者的作品。在这里可以免费阅读到高质量的小说章节内容，是小说爱好者的首选网站。
 
 - [书迷村](https://www.aurorawj.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.aurorawj.com/book/3bebrmd/)
 - [和八个男人在极寒游戏求生](https://www.aurorawj.com/book/3bebrl0/)
 - [禁止继承限制级雌君](https://www.aurorawj.com/book/3bebo9n/)
 - [死遁APP](https://www.aurorawj.com/book/3bebo9m/)
@@ -147,11 +146,11 @@
 - [趁她之危](https://www.aurorawj.com/book/3be6o1u/)
 - [全民求生:从小木屋到魔法农场](https://www.aurorawj.com/book/3be6o10/)
 - [六零之成了卷王的妹妹](https://www.aurorawj.com/book/3be6nu8/)
+- [老公对不起](https://www.aurorawj.com/book/3be6nt5/)
 - [我有一座安全城](https://www.aurorawj.com/book/3be6ns3/)
 - [十九世纪贵族厨房（美食）](https://www.aurorawj.com/book/3be6nrr/)
 - [我是唯一地上神国](https://www.aurorawj.com/book/3be6nqu/)
 - [成为养成系练习生后](https://www.aurorawj.com/book/3be6nnb/)
-- [九零首富的替嫁小媳妇](https://www.aurorawj.com/book/3be6nn8/)
 - [海岛求生：生活玩家种田囤货](https://www.aurorawj.com/book/3be6ngn/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.aurorawj.com/book/3be6n4u/)
 - [完蛋！被恨孕男包围了！](https://www.aurorawj.com/book/3be6n16/)

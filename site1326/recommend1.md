@@ -1,7 +1,7 @@
 
 # 欣怡书屋 - 免费最新章节小说阅读,全本无弹窗
 
-更新时间：2026-09-06 03:47:58
+更新时间：2026-09-07 03:49:15
 
 欣怡书屋是最值得收藏的小说阅读网之一，提供大量热门网络小说的免费阅读服务。所有小说均为高质量，并且支持最新章节即时更新与全本无弹窗浏览体验。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.znenghs.com/book/5n2k96k/)
-- [揣崽丧夫后被情敌强娶了](https://www.znenghs.com/book/5n2k96j/)
 - [[全职高手]治疗什么的不干了！](https://www.znenghs.com/book/5n2k96i/)
 - [魔法种田，从退队经营农场开始](https://www.znenghs.com/book/5n2k96h/)
 - [魔尊闭关十年连生十一子？！](https://www.znenghs.com/book/5n2k96g/)
@@ -86,7 +85,6 @@
 - [我司艺人永不塌房](https://www.znenghs.com/book/5n2k920/)
 - [[封神]圣人生欲](https://www.znenghs.com/book/5n2k8uq/)
 - [始乱终弃清冷首辅后](https://www.znenghs.com/book/5n2k8up/)
-- [九零首富的替嫁小媳妇](https://www.znenghs.com/book/5n2k8u7/)
 - [星际团宠小人鱼](https://www.znenghs.com/book/5n2k8ss/)
 - [原配夫人](https://www.znenghs.com/book/5n2k8sp/)
 - [十九世纪贵族厨房（美食）](https://www.znenghs.com/book/5n2k8sj/)
@@ -98,6 +96,7 @@
 - [路人攻了主角攻［快穿］](https://www.znenghs.com/book/5n2k7cr/)
 - [昭暮](https://www.znenghs.com/book/5n2jtr8/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.znenghs.com/book/5n2j75i/)
+- [老公对不起](https://www.znenghs.com/book/5n2iqa9/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.znenghs.com/book/5n2iie5/)
 - [[足球]足坛人生模拟器](https://www.znenghs.com/book/5n2ieo0/)
 - [上个鬼班[无限]](https://www.znenghs.com/book/5n2idqi/)

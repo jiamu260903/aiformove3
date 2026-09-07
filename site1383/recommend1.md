@@ -1,7 +1,7 @@
 
 # 紫竹原始小说 - 最新最全的小说文学网站
 
-更新时间：2026-09-06 03:25:33
+更新时间：2026-09-07 03:26:40
 
 紫竹原始小说是一个专注于分享最新、最全的小说文学作品的网站。我们致力于为读者带来全新的阅读体验，欢迎访问我们的网站，尽情享受文学的魅力。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.cnysxc.com/book/8ee0m8a/)
-- [揣崽丧夫后被情敌强娶了](https://www.cnysxc.com/book/8ee0m75/)
 - [占有欲Daddy是我老公？](https://www.cnysxc.com/book/8ee0is8/)
 - [好心的俄罗斯人](https://www.cnysxc.com/book/8ee0is4/)
 - [全民求生，但剑三](https://www.cnysxc.com/book/8ee0is1/)
@@ -158,12 +157,12 @@
 - [巨物致富：回乡开钓场](https://www.cnysxc.com/book/8edrat5/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.cnysxc.com/book/8edraru/)
 - [[封神]圣人生欲](https://www.cnysxc.com/book/8edrare/)
-- [九零首富的替嫁小媳妇](https://www.cnysxc.com/book/8edraju/)
 - [高调装神，猥琐发育](https://www.cnysxc.com/book/8edraiu/)
 - [卷王后妈，八零养娃](https://www.cnysxc.com/book/8edrai4/)
 - [成为养成系练习生后](https://www.cnysxc.com/book/8edragr/)
 - [95美国贵族高中模拟](https://www.cnysxc.com/book/8edraeh/)
 - [我有一座安全城](https://www.cnysxc.com/book/8edrac5/)
+- [老公对不起](https://www.cnysxc.com/book/8edraba/)
 - [十九世纪贵族厨房（美食）](https://www.cnysxc.com/book/8edra5q/)
 - [星际团宠小人鱼](https://www.cnysxc.com/book/8edr9sk/)
 - [六零之成了卷王的妹妹](https://www.cnysxc.com/book/8edr9k4/)

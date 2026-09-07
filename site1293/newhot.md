@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-09-06 03:24:39
+更新时间：2026-09-07 03:25:46
 
 速阅阁小说网为您提供最新、最全的网络小说资源，在线阅读无限制，支持多种格式下载，打造书友们最爱的小说阅读体验。
 
@@ -20,11 +20,11 @@
 - [穿为龙傲天发妻后](https://www.ccccenergy.com/book/7car6bi/)
 - [咦？我爸爸复活啦](https://www.ccccenergy.com/book/7car6b7/)
 - [[足球]小小鸟堂堂来袭](https://www.ccccenergy.com/book/7car6b4/)
+- [欲加之罪](https://www.ccccenergy.com/book/7car6ai/)
 - [同时扮演贵族学院F4和平民校花](https://www.ccccenergy.com/book/7car6ab/)
 - [我骗家里的钱养你啊](https://www.ccccenergy.com/book/7car6aa/)
 - [青城玩家明明超强却过分谨慎](https://www.ccccenergy.com/book/7car691/)
 - [暴君偏头痛](https://www.ccccenergy.com/book/7car684/)
-- [失而复得的白月光[快穿]](https://www.ccccenergy.com/book/7car67a/)
 - [躲避原书剧情五年后](https://www.ccccenergy.com/book/7car66c/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.ccccenergy.com/book/7car668/)
 - [[综英美]让我统治哥谭！！！](https://www.ccccenergy.com/book/7car660/)
@@ -35,7 +35,6 @@
 - [高调装神，猥琐发育](https://www.ccccenergy.com/book/7car62g/)
 - [京秋婚约](https://www.ccccenergy.com/book/7car5vo/)
 - [直男咒术师的限制级游戏](https://www.ccccenergy.com/book/7car5tj/)
-- [纯爱宇智波基本恋爱法](https://www.ccccenergy.com/book/7car5tc/)
 - [阴郁路人不想被喜欢](https://www.ccccenergy.com/book/7car5tb/)
 - [求生游戏：当邪神成为生活玩家后](https://www.ccccenergy.com/book/7car5t8/)
 - [昭暮](https://www.ccccenergy.com/book/7caqr3e/)
@@ -370,7 +369,6 @@
 - [超忆症大佬在古代破案](https://www.ccccenergy.com/book/nkakqh/)
 - [转生成为伊路米的双生姐姐](https://www.ccccenergy.com/book/nkakp7/)
 - [末世山居日常](https://www.ccccenergy.com/book/nkakp3/)
-- [被阴湿坏女人缠上后](https://www.ccccenergy.com/book/nkakl4/)
 - [普通高中生，但兼职咒术师](https://www.ccccenergy.com/book/nkakba/)
 - [癫骨](https://www.ccccenergy.com/book/nkak99/)
 - [随便捡小狗会出大问题](https://www.ccccenergy.com/book/nkak0p/)

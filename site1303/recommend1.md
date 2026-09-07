@@ -1,7 +1,7 @@
 
 # 顶点小说 - 无广告无弹窗在线小说阅读网站
 
-更新时间：2026-09-06 03:34:55
+更新时间：2026-09-07 03:36:04
 
 顶点小说致力于提供一个无广告、无弹窗干扰的高质量在线小说阅读体验。支持多种类型的小说在线阅读与TXT格式下载，界面设计简洁友好。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.panyuplastic.com/book/6h8ug3s/)
-- [揣崽丧夫后被情敌强娶了](https://www.panyuplastic.com/book/6h8ug3r/)
 - [漫画取材所引发的修罗场](https://www.panyuplastic.com/book/6h8ug3q/)
 - [正是冬雪沸腾时](https://www.panyuplastic.com/book/6h8ug3p/)
 - [人，今晚土拨鼠站岗](https://www.panyuplastic.com/book/6h8ug3o/)
@@ -97,7 +96,6 @@
 - [如何正确哄睡暴君](https://www.panyuplastic.com/book/6h8uebc/)
 - [昭暮](https://www.panyuplastic.com/book/6h8ueag/)
 - [和治君只是饭搭子的关系](https://www.panyuplastic.com/book/6h8ta0b/)
-- [九零首富的替嫁小媳妇](https://www.panyuplastic.com/book/6h8t9vh/)
 - [神豪文男主是我爸](https://www.panyuplastic.com/book/6h8t9ve/)
 - [如何嫁给当朝首辅](https://www.panyuplastic.com/book/6h8t9v7/)
 - [卷王后妈，八零养娃](https://www.panyuplastic.com/book/6h8t6d8/)
@@ -126,6 +124,7 @@
 - [带清冷女主回乡养螃蟹[种田]](https://www.panyuplastic.com/book/6h8t51k/)
 - [在魔法贵族学院当白月光](https://www.panyuplastic.com/book/6h8t51e/)
 - [怀了前任大哥的崽后](https://www.panyuplastic.com/book/6h8t519/)
+- [老公对不起](https://www.panyuplastic.com/book/6h8t517/)
 - [摄政王家的咸鱼夫郎](https://www.panyuplastic.com/book/6h8t4rl/)
 - [被天使之王骗婚后[诡秘之主]](https://www.panyuplastic.com/book/6h8s6qn/)
 - [成为养成系练习生后](https://www.panyuplastic.com/book/6h8s6pg/)

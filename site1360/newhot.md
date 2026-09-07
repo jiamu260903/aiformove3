@@ -1,7 +1,7 @@
 
 # 生活文学小说-质感小说文学网站|高质量文学作品与创作交流平台
 
-更新时间：2026-09-06 03:37:20
+更新时间：2026-09-07 03:38:29
 
 生活文学小说是一个专注于提供质感小说文学的网站，致力于为文学爱好者打造一个高质量的文学作品和创作交流平台，在这里可以享受到独特的夜间文学之美。
 
@@ -11,6 +11,7 @@
 - [这个替嫁让我来！](https://www.shenghuo988.com/book/86gb7o2/)
 - [清穿女回来后[天幕]](https://www.shenghuo988.com/book/86gb7no/)
 - [自知之明](https://www.shenghuo988.com/book/86gb7n1/)
+- [欲加之罪](https://www.shenghuo988.com/book/86gb7mt/)
 - [穿为龙傲天发妻后](https://www.shenghuo988.com/book/86gb7lr/)
 - [禁止继承限制级雌君](https://www.shenghuo988.com/book/86gb7lp/)
 - [等我吃腻了再倒闭可以吗](https://www.shenghuo988.com/book/86gb7lh/)
@@ -88,7 +89,6 @@
 - [这个迫嫁我愿意的](https://www.shenghuo988.com/book/86g94r7/)
 - [被马甲团宠的我开启地狱模式](https://www.shenghuo988.com/book/86g94p7/)
 - [反派真少爷搞了个抱错综艺后[穿书]](https://www.shenghuo988.com/book/86g94no/)
-- [失而复得的白月光[快穿]](https://www.shenghuo988.com/book/86g93rb/)
 - [满级后我的外挂到账了[全息]](https://www.shenghuo988.com/book/86g93qh/)
 - [[足球]听克圣的话，成了米兰金童](https://www.shenghuo988.com/book/86g93it/)
 - [逃荒[快穿]](https://www.shenghuo988.com/book/86g938p/)
@@ -396,7 +396,6 @@
 - [每天都在和太宰互换身体](https://www.shenghuo988.com/book/86g7psl/)
 - [让我再吃一口](https://www.shenghuo988.com/book/86g7pk6/)
 - [请问夫君你哪位](https://www.shenghuo988.com/book/86g7pia/)
-- [被阴湿坏女人缠上后](https://www.shenghuo988.com/book/86g7pb4/)
 - [在重男兄弟间夹缝求生](https://www.shenghuo988.com/book/86g7pb2/)
 - [顶流他姐有神豪系统](https://www.shenghuo988.com/book/86g7p3t/)
 - [青山不渡](https://www.shenghuo988.com/book/86g7p09/)
@@ -424,7 +423,6 @@
 - [求生游戏：当邪神成为生活玩家后](https://www.shenghuo988.com/book/86g7ilc/)
 - [幼崽假少爷选择回归寒门](https://www.shenghuo988.com/book/86g7ce8/)
 - [[足球]小小鸟堂堂来袭](https://www.shenghuo988.com/book/86g7cdu/)
-- [盛夏晴浓](https://www.shenghuo988.com/book/86g7btt/)
 - [好巧，你也是妹控？[综崩铁]](https://www.shenghuo988.com/book/86g7b6b/)
 - [欢迎来到重生点](https://www.shenghuo988.com/book/86g796c/)
 - [青城玩家明明超强却过分谨慎](https://www.shenghuo988.com/book/86g7937/)
@@ -439,7 +437,6 @@
 - [自大狂](https://www.shenghuo988.com/book/86g6tdg/)
 - [和室友他爸恋爱后](https://www.shenghuo988.com/book/86g6q62/)
 - [京秋婚约](https://www.shenghuo988.com/book/86g5m3e/)
-- [纯爱宇智波基本恋爱法](https://www.shenghuo988.com/book/86g5lcf/)
 - [直男咒术师的限制级游戏](https://www.shenghuo988.com/book/86g5l2b/)
 - [阴郁路人不想被喜欢](https://www.shenghuo988.com/book/86g5k7b/)
 ## 相关内容

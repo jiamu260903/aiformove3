@@ -1,7 +1,7 @@
 
 # 国威御林小说_国威御林小说小说在线阅读
 
-更新时间：2026-09-06 03:27:53
+更新时间：2026-09-07 03:29:00
 
 国威御林小说是拥有海量的完结全本小说作品, 提供热门小说排行榜免费在线阅读, 每日更新言情、都市、穿越、青春、悬疑等作品连载。
 
@@ -19,6 +19,7 @@
 - [咦？我爸爸复活啦](https://www.guoweiyulin.com/book/360q2e3/)
 - [[足球]小小鸟堂堂来袭](https://www.guoweiyulin.com/book/360q2dj/)
 - [清穿女回来后[天幕]](https://www.guoweiyulin.com/book/360q2d4/)
+- [欲加之罪](https://www.guoweiyulin.com/book/360q2cs/)
 - [[综英美]和亲友群穿哥谭以后](https://www.guoweiyulin.com/book/360q2cr/)
 - [暴君偏头痛](https://www.guoweiyulin.com/book/360q1is/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.guoweiyulin.com/book/360q1ik/)
@@ -132,7 +133,6 @@
 - [东映排球部](https://www.guoweiyulin.com/book/360nna0/)
 - [漂亮作精绑定换装系统后［快穿］](https://www.guoweiyulin.com/book/360nn98/)
 - [被公用的美人陪读/美校](https://www.guoweiyulin.com/book/360nn5o/)
-- [失而复得的白月光[快穿]](https://www.guoweiyulin.com/book/360nmqr/)
 - [梵高夫人](https://www.guoweiyulin.com/book/360nmie/)
 - [我妈是大佬[快穿]](https://www.guoweiyulin.com/book/360nm2a/)
 - [忍界修罗带球跑](https://www.guoweiyulin.com/book/360nlgh/)
@@ -381,7 +381,6 @@
 - [小寡夫还有两幅面孔](https://www.guoweiyulin.com/book/360mkt6/)
 - [骑！就要骑在宿敌头上作威作福](https://www.guoweiyulin.com/book/360mkrt/)
 - [[足球]能不能好好模拟游戏](https://www.guoweiyulin.com/book/360mkri/)
-- [被阴湿坏女人缠上后](https://www.guoweiyulin.com/book/360mkr0/)
 - [咒术师，但队友是侦探](https://www.guoweiyulin.com/book/360mkq9/)
 - [普通高中生，但兼职咒术师](https://www.guoweiyulin.com/book/360mkq8/)
 - [在重男兄弟间夹缝求生](https://www.guoweiyulin.com/book/360mkm6/)
@@ -419,7 +418,6 @@
 - [青空来信](https://www.guoweiyulin.com/book/360mgog/)
 - [某柯学的正义伙伴](https://www.guoweiyulin.com/book/360mfcn/)
 - [可怜的天然呆直男[快穿]](https://www.guoweiyulin.com/book/360mept/)
-- [纯爱宇智波基本恋爱法](https://www.guoweiyulin.com/book/360mee6/)
 - [老公是松散生命体](https://www.guoweiyulin.com/book/360mdov/)
 - [善逸拒绝成为咒术师](https://www.guoweiyulin.com/book/360mcjh/)
 - [被四皇错看成小动物后](https://www.guoweiyulin.com/book/360mal1/)
@@ -427,7 +425,6 @@
 - [战死的阿爹回来了[年代]](https://www.guoweiyulin.com/book/360m5a2/)
 - [刀子精手心的人偶崽崽](https://www.guoweiyulin.com/book/360m450/)
 - [[综英美]让我统治哥谭！！！](https://www.guoweiyulin.com/book/360m2s9/)
-- [盛夏晴浓](https://www.guoweiyulin.com/book/360m2ls/)
 - [欢迎来到重生点](https://www.guoweiyulin.com/book/360lvms/)
 - [好巧，你也是妹控？[综崩铁]](https://www.guoweiyulin.com/book/360luah/)
 - [好兄弟暴富后非要跟我结婚](https://www.guoweiyulin.com/book/360lr6f/)

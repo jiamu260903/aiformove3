@@ -1,14 +1,13 @@
 
 # 春日书屋-免费热门小说在线阅读平台|晋江文学|全本免费畅读
 
-更新时间：2026-09-06 03:37:35
+更新时间：2026-09-07 03:38:45
 
 春日书屋是一个专注于提供免费全本小说的在线阅读平台。精选海量热门网络小说，涵盖玄幻、言情、都市、仙侠等各类题材，所有书籍均可免费畅读。致力于为广大书友打造一个无弹窗、更新快的纯净阅读空间，让您轻松追更，尽享阅读乐趣！
 
 - [春日书屋小说](https://www.shenyuanhg.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.shenyuanhg.com/book/7gie9ja/)
 - [和八个男人在极寒游戏求生](https://www.shenyuanhg.com/book/7gie9j9/)
 - [魔改剧本后我爆火了[娱乐圈]](https://www.shenyuanhg.com/book/7gie9j8/)
 - [前妻她肯定会后悔](https://www.shenyuanhg.com/book/7gie9j5/)
@@ -107,7 +106,6 @@
 - [摄政王家的咸鱼夫郎](https://www.shenyuanhg.com/book/7gic2k7/)
 - [我与龙傲天寿命共享](https://www.shenyuanhg.com/book/7gibvks/)
 - [如何正确哄睡暴君](https://www.shenyuanhg.com/book/7gibt0n/)
-- [九零首富的替嫁小媳妇](https://www.shenyuanhg.com/book/7gibn9p/)
 - [怀了前任大哥的崽后](https://www.shenyuanhg.com/book/7gibmap/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.shenyuanhg.com/book/7gibkrv/)
 - [沈助理又在隐藏他的超能力](https://www.shenyuanhg.com/book/7gibj48/)
@@ -169,6 +167,7 @@
 - [高门小婢](https://www.shenyuanhg.com/book/7gi8mbh/)
 - [我是唯一地上神国](https://www.shenyuanhg.com/book/7gi8mac/)
 - [成为养成系练习生后](https://www.shenyuanhg.com/book/7gi8m6o/)
+- [老公对不起](https://www.shenyuanhg.com/book/7gi8m4f/)
 - [大瑛弟国](https://www.shenyuanhg.com/book/7gi8lpk/)
 - [老实人妻，但顶级魅魔](https://www.shenyuanhg.com/book/7gi8liq/)
 ## 相关内容

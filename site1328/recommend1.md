@@ -1,7 +1,7 @@
 
 # 新乐文小说 - 最热门免费在线阅读平台 | 玄幻、网游、言情、穿越、都市全本小说
 
-更新时间：2026-09-06 03:32:29
+更新时间：2026-09-07 03:33:38
 
 新乐文小说为您提供一个无广告无弹窗的纯净阅读环境，专注于玄幻、网游、言情、穿越、都市等多种类型的小说在线阅读体验。在这里可以找到最新最热的小说章节更新，享受舒适的阅读时光。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.ksqinlida.com/book/1svdokl/)
-- [揣崽丧夫后被情敌强娶了](https://www.ksqinlida.com/book/1svdokk/)
 - [万人嫌从末世回来了](https://www.ksqinlida.com/book/1svdokj/)
 - [[足球]小小鸟堂堂来袭](https://www.ksqinlida.com/book/1svdoki/)
 - [强取师尊后](https://www.ksqinlida.com/book/1svdokh/)
@@ -84,7 +83,6 @@
 - [同时扮演贵族学院F4和平民校花](https://www.ksqinlida.com/book/1svdoia/)
 - [我司艺人永不塌房](https://www.ksqinlida.com/book/1svdof7/)
 - [我们生活玩家是这样的](https://www.ksqinlida.com/book/1svdodb/)
-- [九零首富的替嫁小媳妇](https://www.ksqinlida.com/book/1svdoci/)
 - [十九世纪贵族厨房（美食）](https://www.ksqinlida.com/book/1svdoca/)
 - [原配夫人](https://www.ksqinlida.com/book/1svdoc4/)
 - [[封神]圣人生欲](https://www.ksqinlida.com/book/1svdobm/)
@@ -98,6 +96,7 @@
 - [路人攻了主角攻［快穿］](https://www.ksqinlida.com/book/1svdmrd/)
 - [昭暮](https://www.ksqinlida.com/book/1svddb9/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.ksqinlida.com/book/1svd14c/)
+- [老公对不起](https://www.ksqinlida.com/book/1svcacb/)
 - [上个鬼班[无限]](https://www.ksqinlida.com/book/1svc3oa/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.ksqinlida.com/book/1svc2q3/)
 - [[足球]足坛人生模拟器](https://www.ksqinlida.com/book/1svbp90/)

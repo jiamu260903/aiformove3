@@ -1,7 +1,7 @@
 
 # 梦翔橙子小说网-全本小说最值得收藏的在线阅读平台
 
-更新时间：2026-09-06 03:33:56
+更新时间：2026-09-07 03:35:04
 
 梦翔橙子小说网为您提供最新、最热门的小说资源，拥有全网最全面的小说库。无论是全本还是连载中，都能在这里找到。是解决书荒问题的理想选择，让您的阅读体验更加流畅愉快。
 
@@ -16,6 +16,7 @@
 - [[综英美]和亲友群穿哥谭以后](https://www.mengxiang668.com/book/2nrq7ce/)
 - [自知之明](https://www.mengxiang668.com/book/2nrq7ca/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.mengxiang668.com/book/2nrq7be/)
+- [欲加之罪](https://www.mengxiang668.com/book/2nrq7b2/)
 - [全世界名为爱的恶意](https://www.mengxiang668.com/book/2nrq7au/)
 - [修仙界都为我神魂颠倒](https://www.mengxiang668.com/book/2nrq5bl/)
 - [[足球]这只后锋小熊是你家俱乐部掉的吗？](https://www.mengxiang668.com/book/2nrq57l/)
@@ -86,7 +87,6 @@
 - [我被一个古人教会了爱情](https://www.mengxiang668.com/book/2nro52m/)
 - [[足球]听克圣的话，成了米兰金童](https://www.mengxiang668.com/book/2nro4sv/)
 - [被马甲团宠的我开启地狱模式](https://www.mengxiang668.com/book/2nro4oi/)
-- [失而复得的白月光[快穿]](https://www.mengxiang668.com/book/2nro4mr/)
 - [逃荒[快穿]](https://www.mengxiang668.com/book/2nro43a/)
 - [反派真少爷搞了个抱错综艺后[穿书]](https://www.mengxiang668.com/book/2nro3uj/)
 - [逃生游戏[无限]](https://www.mengxiang668.com/book/2nro3st/)
@@ -415,7 +415,6 @@
 - [请问夫君你哪位](https://www.mengxiang668.com/book/2nrmnfh/)
 - [司寝宫女](https://www.mengxiang668.com/book/2nrmn91/)
 - [普通高中生，但兼职咒术师](https://www.mengxiang668.com/book/2nrmn6i/)
-- [被阴湿坏女人缠上后](https://www.mengxiang668.com/book/2nrmn5r/)
 - [青空来信](https://www.mengxiang668.com/book/2nrmn3m/)
 - [举朝上下为我的神仙人设头疼中](https://www.mengxiang668.com/book/2nrmmvi/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.mengxiang668.com/book/2nrmlka/)
@@ -423,7 +422,6 @@
 - [求生游戏：当邪神成为生活玩家后](https://www.mengxiang668.com/book/2nrmis8/)
 - [刀子精手心的人偶崽崽](https://www.mengxiang668.com/book/2nrmi4t/)
 - [幼崽假少爷选择回归寒门](https://www.mengxiang668.com/book/2nrmcnb/)
-- [盛夏晴浓](https://www.mengxiang668.com/book/2nrmbg1/)
 - [[足球]小小鸟堂堂来袭](https://www.mengxiang668.com/book/2nrmbe3/)
 - [欢迎来到重生点](https://www.mengxiang668.com/book/2nrm95g/)
 - [青城玩家明明超强却过分谨慎](https://www.mengxiang668.com/book/2nrm911/)
@@ -439,7 +437,6 @@
 - [暴君偏头痛](https://www.mengxiang668.com/book/2nrluav/)
 - [和室友他爸恋爱后](https://www.mengxiang668.com/book/2nrlrur/)
 - [京秋婚约](https://www.mengxiang668.com/book/2nrkm92/)
-- [纯爱宇智波基本恋爱法](https://www.mengxiang668.com/book/2nrklae/)
 - [阴郁路人不想被喜欢](https://www.mengxiang668.com/book/2nrkkbs/)
 - [直男咒术师的限制级游戏](https://www.mengxiang668.com/book/2nrkjf6/)
 ## 相关内容

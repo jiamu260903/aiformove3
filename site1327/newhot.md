@@ -1,7 +1,7 @@
 
 # 家家福顶点书包 - 免费TXT小说下载, 手机电子书资源
 
-更新时间：2026-09-06 03:29:47
+更新时间：2026-09-07 03:30:55
 
 家家福顶点书包为您提供最新最全的小说资源，包括但不限于txt电子书、手机txt小说下载等服务，所有内容均支持全本免费下载，是小说爱好者的理想选择。
 
@@ -20,6 +20,7 @@
 - [［综英美］蝙蝠崽？我不是啊！](https://www.jjfbaijia.com/book/8hhvktd/)
 - [同时扮演贵族学院F4和平民校花](https://www.jjfbaijia.com/book/8hhvktc/)
 - [咦？我爸爸复活啦](https://www.jjfbaijia.com/book/8hhvktb/)
+- [欲加之罪](https://www.jjfbaijia.com/book/8hhvksj/)
 - [[足球]小小鸟堂堂来袭](https://www.jjfbaijia.com/book/8hhvksh/)
 - [禁止继承限制级雌君](https://www.jjfbaijia.com/book/8hhvks9/)
 - [[综英美]让我统治哥谭！！！](https://www.jjfbaijia.com/book/8hhvkpo/)
@@ -33,7 +34,6 @@
 - [被四皇错看成小动物后](https://www.jjfbaijia.com/book/8hhvkli/)
 - [高调装神，猥琐发育](https://www.jjfbaijia.com/book/8hhvkkh/)
 - [京秋婚约](https://www.jjfbaijia.com/book/8hhvkjp/)
-- [纯爱宇智波基本恋爱法](https://www.jjfbaijia.com/book/8hhvkj1/)
 - [阴郁路人不想被喜欢](https://www.jjfbaijia.com/book/8hhvkib/)
 - [直男咒术师的限制级游戏](https://www.jjfbaijia.com/book/8hhvki1/)
 - [求生游戏：当邪神成为生活玩家后](https://www.jjfbaijia.com/book/8hhvkf7/)
@@ -403,7 +403,6 @@
 - [神之子与排球的适配性](https://www.jjfbaijia.com/book/rbe6hv/)
 - [当了卧底的我发现遍地熟人](https://www.jjfbaijia.com/book/rbe6fd/)
 - [癫骨](https://www.jjfbaijia.com/book/rbe6aq/)
-- [被阴湿坏女人缠上后](https://www.jjfbaijia.com/book/rbe5dj/)
 - [忍界观察日记](https://www.jjfbaijia.com/book/rbe5a8/)
 - [无能的丈夫们](https://www.jjfbaijia.com/book/rbe52m/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.jjfbaijia.com/book/rbe43i/)
