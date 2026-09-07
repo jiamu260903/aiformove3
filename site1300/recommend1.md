@@ -1,14 +1,13 @@
 
 # 棉花糖小说网-最好的免费小说阅读网站
 
-更新时间：2026-09-06 03:33:05
+更新时间：2026-09-07 03:34:13
 
 棉花糖小说网提供当前最火热的小说资源，支持免费在线阅读及TXT格式下载，致力于为读者带来优质的阅读体验。
 
 - [棉花糖小说网](https://www.littlemissribbon.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.littlemissribbon.com/book/5asij4m/)
 - [和八个男人在极寒游戏求生](https://www.littlemissribbon.com/book/5asij4l/)
 - [[综英美]和亲友群穿哥谭以后](https://www.littlemissribbon.com/book/5asij4k/)
 - [欲和离？夫君他目不识丁](https://www.littlemissribbon.com/book/5asij4j/)
@@ -89,7 +88,6 @@
 - [[封神]圣人生欲](https://www.littlemissribbon.com/book/5asiisf/)
 - [十九世纪贵族厨房（美食）](https://www.littlemissribbon.com/book/5asiisb/)
 - [星际团宠小人鱼](https://www.littlemissribbon.com/book/5asiire/)
-- [九零首富的替嫁小媳妇](https://www.littlemissribbon.com/book/5asiiqv/)
 - [高调装神，猥琐发育](https://www.littlemissribbon.com/book/5asiiqh/)
 - [假少爷离开后](https://www.littlemissribbon.com/book/5asiiqf/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.littlemissribbon.com/book/5asiim3/)
@@ -98,6 +96,7 @@
 - [路人攻了主角攻［快穿］](https://www.littlemissribbon.com/book/5asihd9/)
 - [昭暮](https://www.littlemissribbon.com/book/5asi7qf/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.littlemissribbon.com/book/5ashrs2/)
+- [老公对不起](https://www.littlemissribbon.com/book/5ash52d/)
 - [上个鬼班[无限]](https://www.littlemissribbon.com/book/5asgv6c/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.littlemissribbon.com/book/5asgq6f/)
 - [[足球]足坛人生模拟器](https://www.littlemissribbon.com/book/5asghhb/)

@@ -1,7 +1,7 @@
 
 # 紫玉海小说 - 好看的言情小说推荐,热门小说在线阅读
 
-更新时间：2026-09-06 03:47:40
+更新时间：2026-09-07 03:48:57
 
 紫玉海小说网提供好看的言情小说推荐，热门小说推荐，包括都市言情、霸道总裁、古代言情、穿越重生等优质资源在线阅读，好小说尽在自由屋推书网。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.ziyuhai.com/book/84rn5al/)
-- [揣崽丧夫后被情敌强娶了](https://www.ziyuhai.com/book/84rn5ak/)
 - [清穿女回来后[天幕]](https://www.ziyuhai.com/book/84rn5aj/)
 - [欲加之罪](https://www.ziyuhai.com/book/84rn5ai/)
 - [魔尊闭关十年连生十一子？！](https://www.ziyuhai.com/book/84rn5ah/)
@@ -89,7 +88,6 @@
 - [原配夫人](https://www.ziyuhai.com/book/84rn529/)
 - [十九世纪贵族厨房（美食）](https://www.ziyuhai.com/book/84rn527/)
 - [始乱终弃清冷首辅后](https://www.ziyuhai.com/book/84rn51r/)
-- [九零首富的替嫁小媳妇](https://www.ziyuhai.com/book/84rn515/)
 - [高调装神，猥琐发育](https://www.ziyuhai.com/book/84rn50f/)
 - [假少爷离开后](https://www.ziyuhai.com/book/84rn50e/)
 - [直男咒术师的限制级游戏](https://www.ziyuhai.com/book/84rn4s3/)
@@ -98,6 +96,7 @@
 - [路人攻了主角攻［快穿］](https://www.ziyuhai.com/book/84rn3hr/)
 - [昭暮](https://www.ziyuhai.com/book/84rmq1q/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.ziyuhai.com/book/84rme9l/)
+- [老公对不起](https://www.ziyuhai.com/book/84rm0co/)
 - [上个鬼班[无限]](https://www.ziyuhai.com/book/84rld9o/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.ziyuhai.com/book/84rlah0/)
 - [[足球]足坛人生模拟器](https://www.ziyuhai.com/book/84rl70i/)

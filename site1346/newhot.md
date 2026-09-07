@@ -1,7 +1,7 @@
 
 # 奇幻凤影台小说-都市玄幻言情仙侠免费小说在线阅读
 
-更新时间：2026-09-06 03:35:41
+更新时间：2026-09-07 03:36:50
 
 奇幻凤影台小说提供都市玄幻、言情仙侠等类型的小说在线免费阅读服务。让您的通勤路上不再无聊，无论是日常出行还是夜晚静谧时刻，总有一本好书陪伴您度过美好时光。
 
@@ -13,6 +13,7 @@
 - [自知之明](https://www.qihuan868.com/book/42idtff/)
 - [等我吃腻了再倒闭可以吗](https://www.qihuan868.com/book/42idteo/)
 - [这个替嫁让我来！](https://www.qihuan868.com/book/42idtdq/)
+- [欲加之罪](https://www.qihuan868.com/book/42idtdo/)
 - [[综英美]和亲友群穿哥谭以后](https://www.qihuan868.com/book/42idtde/)
 - [穿为龙傲天发妻后](https://www.qihuan868.com/book/42idtd2/)
 - [全世界名为爱的恶意](https://www.qihuan868.com/book/42idtci/)
@@ -82,7 +83,6 @@
 - [[综英美]flash小游戏，哥谭出品](https://www.qihuan868.com/book/42ibtg2/)
 - [[综英美]是谁家的小鹿](https://www.qihuan868.com/book/42ibscl/)
 - [超A奶龙饲养指南](https://www.qihuan868.com/book/42ibs2q/)
-- [失而复得的白月光[快穿]](https://www.qihuan868.com/book/42ibrk2/)
 - [被马甲团宠的我开启地狱模式](https://www.qihuan868.com/book/42ibqpg/)
 - [满级后我的外挂到账了[全息]](https://www.qihuan868.com/book/42ibqo0/)
 - [期春思](https://www.qihuan868.com/book/42ibqmj/)
@@ -405,7 +405,6 @@
 - [普通高中生，但兼职咒术师](https://www.qihuan868.com/book/42iae62/)
 - [每天都在和太宰互换身体](https://www.qihuan868.com/book/42iae4r/)
 - [小狗向导，世界瑰宝！](https://www.qihuan868.com/book/42iae0d/)
-- [被阴湿坏女人缠上后](https://www.qihuan868.com/book/42iadr3/)
 - [癫骨](https://www.qihuan868.com/book/42iadq6/)
 - [让我再吃一口](https://www.qihuan868.com/book/42iadjm/)
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.qihuan868.com/book/42iadj9/)
@@ -423,7 +422,6 @@
 - [刀子精手心的人偶崽崽](https://www.qihuan868.com/book/42ia97g/)
 - [我最讨厌打球了！](https://www.qihuan868.com/book/42ia8mr/)
 - [[足球]小小鸟堂堂来袭](https://www.qihuan868.com/book/42ia3i0/)
-- [盛夏晴浓](https://www.qihuan868.com/book/42ia36h/)
 - [幼崽假少爷选择回归寒门](https://www.qihuan868.com/book/42ia2um/)
 - [青城玩家明明超强却过分谨慎](https://www.qihuan868.com/book/42ia128/)
 - [欢迎来到重生点](https://www.qihuan868.com/book/42ia088/)
@@ -439,7 +437,6 @@
 - [关于我虚构了一个男友这件事](https://www.qihuan868.com/book/42i9nho/)
 - [和室友他爸恋爱后](https://www.qihuan868.com/book/42i9hen/)
 - [阴郁路人不想被喜欢](https://www.qihuan868.com/book/42i8cb8/)
-- [纯爱宇智波基本恋爱法](https://www.qihuan868.com/book/42i8b5f/)
 - [京秋婚约](https://www.qihuan868.com/book/42i8b2h/)
 - [直男咒术师的限制级游戏](https://www.qihuan868.com/book/42i8anr/)
 ## 相关内容

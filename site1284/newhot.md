@@ -1,7 +1,7 @@
 
 # 爱你中文网-最热门的免费小说网|全本小说在线阅读
 
-更新时间：2026-09-06 03:33:23
+更新时间：2026-09-07 03:34:31
 
 爱你中文网致力于打造一个无广告无弹窗的在线小说阅读平台，提供包括但不限于玄幻、网游、言情、穿越及都市等多种类型的小说在线阅读服务。网站页面简洁，支持小说最新章节快速更新。
 
@@ -20,6 +20,7 @@
 - [[综英美]和亲友群穿哥谭以后](https://www.longjiangstone.com/book/34b4ot/)
 - [咦？我爸爸复活啦](https://www.longjiangstone.com/book/34b4ol/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.longjiangstone.com/book/34b4oi/)
+- [欲加之罪](https://www.longjiangstone.com/book/34b4od/)
 - [禁止继承限制级雌君](https://www.longjiangstone.com/book/34b4ob/)
 - [穿为龙傲天发妻后](https://www.longjiangstone.com/book/34b4oa/)
 - [渡鬼](https://www.longjiangstone.com/book/34b4nt/)
@@ -28,12 +29,10 @@
 - [暴君偏头痛](https://www.longjiangstone.com/book/34b4m4/)
 - [青城玩家明明超强却过分谨慎](https://www.longjiangstone.com/book/34b4ki/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.longjiangstone.com/book/34b4kh/)
-- [失而复得的白月光[快穿]](https://www.longjiangstone.com/book/34b4jc/)
 - [你，后室管理员](https://www.longjiangstone.com/book/34b4hl/)
 - [[封神]圣人生欲](https://www.longjiangstone.com/book/34b4ha/)
 - [被四皇错看成小动物后](https://www.longjiangstone.com/book/34b4h7/)
 - [高调装神，猥琐发育](https://www.longjiangstone.com/book/34b4gf/)
-- [纯爱宇智波基本恋爱法](https://www.longjiangstone.com/book/34b4f0/)
 - [直男咒术师的限制级游戏](https://www.longjiangstone.com/book/34b4cq/)
 - [阴郁路人不想被喜欢](https://www.longjiangstone.com/book/34b4ck/)
 - [京秋婚约](https://www.longjiangstone.com/book/34b4bm/)
@@ -400,7 +399,6 @@
 - [[足球]在比利时我们只玩天赋](https://www.longjiangstone.com/book/a2i5f/)
 - [虫族治愈师，但恐虫](https://www.longjiangstone.com/book/a2i54/)
 - [直播捏玩具被榜一大哥撅了](https://www.longjiangstone.com/book/a2i50/)
-- [被阴湿坏女人缠上后](https://www.longjiangstone.com/book/a2hud/)
 - [无能的丈夫们](https://www.longjiangstone.com/book/a2hp8/)
 - [神之子与排球的适配性](https://www.longjiangstone.com/book/a2hkr/)
 - [隔壁班的松田君](https://www.longjiangstone.com/book/a2h9n/)

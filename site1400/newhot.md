@@ -1,15 +1,18 @@
 
 # 都来读小说网 - 免费电子书阅读平台
 
-更新时间：2026-09-06 03:39:50
+更新时间：2026-09-07 03:41:02
 
 都来读小说网提供快速更新的海量免费小说资源，主要以TXT格式为主，致力于为读者带来优质的阅读体验。
 
 - [都来读小说网](https://www.swazs.com/)
 
 ## 最新小说
+- [我超凶的！[快穿]](https://www.swazs.com/book/1u7kog7/)
+- [我比反派先崩坏[快穿]](https://www.swazs.com/book/1u7knks/)
 - [cos温迪后玩到真崩铁了](https://www.swazs.com/book/1u7kj5t/)
 - [躲避原书剧情五年后](https://www.swazs.com/book/1u7kj2f/)
+- [欲加之罪](https://www.swazs.com/book/1u7kius/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.swazs.com/book/1u7kitl/)
 - [自知之明](https://www.swazs.com/book/1u7kis3/)
 - [清穿女回来后[天幕]](https://www.swazs.com/book/1u7kis2/)
@@ -154,7 +157,6 @@
 - [苗疆蛊女模拟器](https://www.swazs.com/book/1u7ig82/)
 - [沈助理又在隐藏他的超能力](https://www.swazs.com/book/1u7ig3g/)
 - [渣攻试图洗白[快穿]](https://www.swazs.com/book/1u7ifv7/)
-- [就算是龙傲天也不可以[快穿]](https://www.swazs.com/book/1u7ifu8/)
 - [纨绔渣A拒绝入赘长公主府](https://www.swazs.com/book/1u7ifs1/)
 - [和室友他爸恋爱后](https://www.swazs.com/book/1u7ifr5/)
 - [[全职高手]小船](https://www.swazs.com/book/1u7ifmc/)
@@ -389,7 +391,6 @@
 - [[崩铁]自恋值拉满穿越被水仙了](https://www.swazs.com/book/1u7hm77/)
 - [放开那个黑暗哨兵！](https://www.swazs.com/book/1u7hm4t/)
 - [撕毁女配剧本的我被神之子读心了](https://www.swazs.com/book/1u7hm28/)
-- [被阴湿坏女人缠上后](https://www.swazs.com/book/1u7hm08/)
 - [神之子与排球的适配性](https://www.swazs.com/book/1u7hlu4/)
 - [请问夫君你哪位](https://www.swazs.com/book/1u7hlt2/)
 - [咒术师，但队友是侦探](https://www.swazs.com/book/1u7hls7/)
@@ -425,7 +426,6 @@
 - [我，剑圣，养生中，勿扰](https://www.swazs.com/book/1u7hi0l/)
 - [欢迎来到重生点](https://www.swazs.com/book/1u7hgth/)
 - [李玉灯](https://www.swazs.com/book/1u7hgsv/)
-- [盛夏晴浓](https://www.swazs.com/book/1u7hf8g/)
 - [等我吃腻了再倒闭可以吗](https://www.swazs.com/book/1u7heun/)
 - [[综英美]和亲友群穿哥谭以后](https://www.swazs.com/book/1u7hcuo/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.swazs.com/book/1u7hc1v/)
@@ -435,7 +435,6 @@
 - [被四皇错看成小动物后](https://www.swazs.com/book/1u7fi8k/)
 - [你，后室管理员](https://www.swazs.com/book/1u7fgu9/)
 - [误入反派培养直播后](https://www.swazs.com/book/1u7fgog/)
-- [纯爱宇智波基本恋爱法](https://www.swazs.com/book/1u7fgnv/)
 - [[封神]圣人生欲](https://www.swazs.com/book/1u7fg6j/)
 - [高调装神，猥琐发育](https://www.swazs.com/book/1u7fft4/)
 ## 相关内容

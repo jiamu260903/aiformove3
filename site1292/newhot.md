@@ -1,7 +1,7 @@
 
 # 酷匠小说网 - 专注手机阅读，免费小说在线阅读及下载
 
-更新时间：2026-09-06 03:46:48
+更新时间：2026-09-07 03:48:06
 
 酷匠小说网提供最新免费小说在线阅读及下载。包括都市小说，玄幻小说，言情小说等。精致排版，每天更新，打造极致阅读体验，让您静享“精品阅读时光”。
 
@@ -20,6 +20,7 @@
 - [我骗家里的钱养你啊](https://www.yumin66.com/book/5q5ndd/)
 - [禁止继承限制级雌君](https://www.yumin66.com/book/5q5ndb/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.yumin66.com/book/5q5nd3/)
+- [欲加之罪](https://www.yumin66.com/book/5q5nd0/)
 - [穿为龙傲天发妻后](https://www.yumin66.com/book/5q5ncq/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.yumin66.com/book/5q5ncf/)
 - [[综英美]让我统治哥谭！！！](https://www.yumin66.com/book/5q5nav/)
@@ -35,7 +36,6 @@
 - [直男咒术师的限制级游戏](https://www.yumin66.com/book/5q5n44/)
 - [阴郁路人不想被喜欢](https://www.yumin66.com/book/5q5n20/)
 - [京秋婚约](https://www.yumin66.com/book/5q5n0u/)
-- [纯爱宇智波基本恋爱法](https://www.yumin66.com/book/5q5n0g/)
 - [求生游戏：当邪神成为生活玩家后](https://www.yumin66.com/book/5q5mv8/)
 - [昭暮](https://www.yumin66.com/book/5q5c2s/)
 - [修仙界都为我神魂颠倒](https://www.yumin66.com/book/5q5c2d/)
@@ -394,7 +394,6 @@
 - [苦咒琉璃](https://www.yumin66.com/book/il84n/)
 - [直播捏玩具被榜一大哥撅了](https://www.yumin66.com/book/il7o2/)
 - [顶流他姐有神豪系统](https://www.yumin66.com/book/il7ii/)
-- [被阴湿坏女人缠上后](https://www.yumin66.com/book/il7fj/)
 - [青山不渡](https://www.yumin66.com/book/il7b5/)
 - [失忆后，和五条激情互演](https://www.yumin66.com/book/il703/)
 - [无能的丈夫们](https://www.yumin66.com/book/il6on/)

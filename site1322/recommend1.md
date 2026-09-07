@@ -1,14 +1,13 @@
 
 # 文学小说网手机版_好看的文学小说TXT下载,无弹窗手机小说网
 
-更新时间：2026-09-06 03:41:34
+更新时间：2026-09-07 03:42:49
 
 文学小说网收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者最值得收藏的网络小说阅读网,精彩小说尽在文学小说网(无弹窗小说网)。
 
 - [文学小说网](https://www.wenxue521.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.wenxue521.com/book/93olskj/)
 - [和八个男人在极寒游戏求生](https://www.wenxue521.com/book/93olski/)
 - [欲加之罪](https://www.wenxue521.com/book/93olskh/)
 - [占有欲Daddy是我老公？](https://www.wenxue521.com/book/93olskg/)
@@ -87,7 +86,6 @@
 - [星际团宠小人鱼](https://www.wenxue521.com/book/93olsc5/)
 - [十九世纪贵族厨房（美食）](https://www.wenxue521.com/book/93olsc4/)
 - [始乱终弃清冷首辅后](https://www.wenxue521.com/book/93olsbs/)
-- [九零首富的替嫁小媳妇](https://www.wenxue521.com/book/93olsbj/)
 - [[封神]圣人生欲](https://www.wenxue521.com/book/93olsba/)
 - [原配夫人](https://www.wenxue521.com/book/93olsb6/)
 - [高调装神，猥琐发育](https://www.wenxue521.com/book/93olsaf/)
@@ -98,6 +96,7 @@
 - [路人攻了主角攻［快穿］](https://www.wenxue521.com/book/93olqrg/)
 - [昭暮](https://www.wenxue521.com/book/93olh8o/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.wenxue521.com/book/93ol5q3/)
+- [老公对不起](https://www.wenxue521.com/book/93oknqe/)
 - [[足球]足坛人生模拟器](https://www.wenxue521.com/book/93ok7mu/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.wenxue521.com/book/93ok66f/)
 - [上个鬼班[无限]](https://www.wenxue521.com/book/93ok53g/)

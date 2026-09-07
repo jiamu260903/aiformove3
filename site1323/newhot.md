@@ -1,7 +1,7 @@
 
 # 阅读小说网-免费分享优质完结小说下载阅读平台
 
-更新时间：2026-09-06 03:46:15
+更新时间：2026-09-07 03:47:33
 
 阅读小说网为广大读者提供丰富多样的网络免费小说资源，包括但不限于完本小说、玄幻小说、言情小说、耽美小说以及各种经典名著。支持小说上传、下载和在线免费阅读服务。
 
@@ -12,6 +12,7 @@
 - [等我吃腻了再倒闭可以吗](https://www.yuedu687.com/book/2bu5j0f/)
 - [我骗家里的钱养你啊](https://www.yuedu687.com/book/2bu5j0b/)
 - [全世界名为爱的恶意](https://www.yuedu687.com/book/2bu5j00/)
+- [欲加之罪](https://www.yuedu687.com/book/2bu5ivo/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.yuedu687.com/book/2bu5ivn/)
 - [自知之明](https://www.yuedu687.com/book/2bu5ivi/)
 - [同时扮演贵族学院F4和平民校花](https://www.yuedu687.com/book/2bu5iv9/)
@@ -22,7 +23,6 @@
 - [[综英美]和亲友群穿哥谭以后](https://www.yuedu687.com/book/2bu5ium/)
 - [清穿女回来后[天幕]](https://www.yuedu687.com/book/2bu5iuj/)
 - [[足球]小小鸟堂堂来袭](https://www.yuedu687.com/book/2bu5iug/)
-- [失而复得的白月光[快穿]](https://www.yuedu687.com/book/2bu5itf/)
 - [[综英美]让我统治哥谭！！！](https://www.yuedu687.com/book/2bu5it6/)
 - [渡鬼](https://www.yuedu687.com/book/2bu5ist/)
 - [青城玩家明明超强却过分谨慎](https://www.yuedu687.com/book/2bu5is8/)
@@ -36,7 +36,6 @@
 - [京秋婚约](https://www.yuedu687.com/book/2bu5img/)
 - [阴郁路人不想被喜欢](https://www.yuedu687.com/book/2bu5iko/)
 - [直男咒术师的限制级游戏](https://www.yuedu687.com/book/2bu5iis/)
-- [纯爱宇智波基本恋爱法](https://www.yuedu687.com/book/2bu5iim/)
 - [求生游戏：当邪神成为生活玩家后](https://www.yuedu687.com/book/2bu5iha/)
 - [昭暮](https://www.yuedu687.com/book/2bu57l3/)
 - [修仙界都为我神魂颠倒](https://www.yuedu687.com/book/2bu57h9/)
@@ -406,7 +405,6 @@
 - [[足球]在比利时我们只玩天赋](https://www.yuedu687.com/book/7j1v59/)
 - [直播捏玩具被榜一大哥撅了](https://www.yuedu687.com/book/7j1v02/)
 - [作家与读者](https://www.yuedu687.com/book/7j1uho/)
-- [被阴湿坏女人缠上后](https://www.yuedu687.com/book/7j1u52/)
 - [你也没死？](https://www.yuedu687.com/book/7j1t26/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.yuedu687.com/book/7j1rdl/)
 - [老公是松散生命体](https://www.yuedu687.com/book/7j1qih/)

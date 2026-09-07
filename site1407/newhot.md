@@ -1,13 +1,15 @@
 
 # 苏秦家小说网 - 免费在线阅读无弹窗小说
 
-更新时间：2026-09-06 03:39:36
+更新时间：2026-09-07 03:40:48
 
 苏秦家小说网为您提供一个干净、舒适的阅读环境，专注于提供免费且无任何弹窗干扰的小说在线阅读服务。
 
 - [苏秦家小说网](https://www.suqinjia.com/)
 
 ## 最新小说
+- [我超凶的！[快穿]](https://www.suqinjia.com/book/3av3kpc/)
+- [我比反派先崩坏[快穿]](https://www.suqinjia.com/book/3av3jtl/)
 - [cos温迪后玩到真崩铁了](https://www.suqinjia.com/book/3av3fg5/)
 - [躲避原书剧情五年后](https://www.suqinjia.com/book/3av3fe8/)
 - [清穿女回来后[天幕]](https://www.suqinjia.com/book/3av3f8u/)
@@ -15,6 +17,7 @@
 - [穿为龙傲天发妻后](https://www.suqinjia.com/book/3av3f6n/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.suqinjia.com/book/3av3f69/)
 - [自知之明](https://www.suqinjia.com/book/3av3f5k/)
+- [欲加之罪](https://www.suqinjia.com/book/3av3f55/)
 - [娇气点怎么啦？［快穿］](https://www.suqinjia.com/book/3av3eub/)
 - [[崩铁]这丰饶孽物我当定了！](https://www.suqinjia.com/book/3av3e7q/)
 - [不义世界都是我马甲[综英美]](https://www.suqinjia.com/book/3av3e0k/)
@@ -156,7 +159,6 @@
 - [渣攻试图洗白[快穿]](https://www.suqinjia.com/book/3av1ce5/)
 - [战死的阿爹回来了[年代]](https://www.suqinjia.com/book/3av1cdb/)
 - [和室友他爸恋爱后](https://www.suqinjia.com/book/3av1c6o/)
-- [就算是龙傲天也不可以[快穿]](https://www.suqinjia.com/book/3av1c4o/)
 - [忍界有文学](https://www.suqinjia.com/book/3av1buv/)
 - [[综英美]让我统治哥谭！！！](https://www.suqinjia.com/book/3av1bs7/)
 - [[全职高手]小船](https://www.suqinjia.com/book/3av1ba8/)
@@ -390,7 +392,6 @@
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.suqinjia.com/book/3av0icc/)
 - [暴君偏头痛](https://www.suqinjia.com/book/3av0i8i/)
 - [好兄弟暴富后非要跟我结婚](https://www.suqinjia.com/book/3av0i6l/)
-- [被阴湿坏女人缠上后](https://www.suqinjia.com/book/3av0i3a/)
 - [虫族治愈师，但恐虫](https://www.suqinjia.com/book/3av0i26/)
 - [请问夫君你哪位](https://www.suqinjia.com/book/3av0hn3/)
 - [刀子精手心的人偶崽崽](https://www.suqinjia.com/book/3av0hld/)
@@ -426,14 +427,12 @@
 - [柯学剧本杀，但恋爱流打法](https://www.suqinjia.com/book/3av0d6a/)
 - [李玉灯](https://www.suqinjia.com/book/3av0d5h/)
 - [等我吃腻了再倒闭可以吗](https://www.suqinjia.com/book/3av0b0f/)
-- [盛夏晴浓](https://www.suqinjia.com/book/3av0a8a/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.suqinjia.com/book/3av085n/)
 - [[综英美]和亲友群穿哥谭以后](https://www.suqinjia.com/book/3av07ci/)
 - [自大狂](https://www.suqinjia.com/book/3av003t/)
 - [书呆子扮演渣攻翻车【快穿】](https://www.suqinjia.com/book/3auvoe4/)
 - [丧尸老婆喂养日记](https://www.suqinjia.com/book/3auvf2e/)
 - [你，后室管理员](https://www.suqinjia.com/book/3auuetm/)
-- [纯爱宇智波基本恋爱法](https://www.suqinjia.com/book/3auueg0/)
 - [高调装神，猥琐发育](https://www.suqinjia.com/book/3auudm4/)
 - [误入反派培养直播后](https://www.suqinjia.com/book/3auud44/)
 - [[封神]圣人生欲](https://www.suqinjia.com/book/3auucvl/)

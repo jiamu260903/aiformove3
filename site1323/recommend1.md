@@ -1,14 +1,13 @@
 
 # 阅读小说网-免费分享优质完结小说下载阅读平台
 
-更新时间：2026-09-06 03:46:15
+更新时间：2026-09-07 03:47:33
 
 阅读小说网为广大读者提供丰富多样的网络免费小说资源，包括但不限于完本小说、玄幻小说、言情小说、耽美小说以及各种经典名著。支持小说上传、下载和在线免费阅读服务。
 
 - [阅读小说网](https://www.yuedu687.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.yuedu687.com/book/2bu5j0o/)
 - [和八个男人在极寒游戏求生](https://www.yuedu687.com/book/2bu5j0n/)
 - [[洪荒]成为太清妹妹后](https://www.yuedu687.com/book/2bu5j0m/)
 - [[足球]雏鸟](https://www.yuedu687.com/book/2bu5j0l/)
@@ -85,7 +84,6 @@
 - [我们生活玩家是这样的](https://www.yuedu687.com/book/2bu5isd/)
 - [我司艺人永不塌房](https://www.yuedu687.com/book/2bu5iru/)
 - [始乱终弃清冷首辅后](https://www.yuedu687.com/book/2bu5ip1/)
-- [九零首富的替嫁小媳妇](https://www.yuedu687.com/book/2bu5iob/)
 - [十九世纪贵族厨房（美食）](https://www.yuedu687.com/book/2bu5ioa/)
 - [原配夫人](https://www.yuedu687.com/book/2bu5io3/)
 - [星际团宠小人鱼](https://www.yuedu687.com/book/2bu5ink/)
@@ -98,6 +96,7 @@
 - [路人攻了主角攻［快穿］](https://www.yuedu687.com/book/2bu5h87/)
 - [昭暮](https://www.yuedu687.com/book/2bu57l3/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.yuedu687.com/book/2bu4sae/)
+- [老公对不起](https://www.yuedu687.com/book/2bu4e87/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.yuedu687.com/book/2bu40v1/)
 - [[足球]足坛人生模拟器](https://www.yuedu687.com/book/2bu3j38/)
 - [上个鬼班[无限]](https://www.yuedu687.com/book/2bu3hbh/)

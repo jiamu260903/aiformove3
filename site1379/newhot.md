@@ -1,7 +1,7 @@
 
 # 云南野人山野小说网 - 创意小说与文学作品分享平台
 
-更新时间：2026-09-06 03:45:45
+更新时间：2026-09-07 03:47:03
 
 欢迎来到云南野人山野小说网 - 专注于创意小说和文学作品分享的在线平台。探索精选的小说系列及文学佳作，加入我们，与众多才华横溢的作者交流心得，共同创造美好的阅读旅程。
 
@@ -23,6 +23,7 @@
 - [穿为龙傲天发妻后](https://www.ynyrsy.com/book/dfe5l4/)
 - [全世界名为爱的恶意](https://www.ynyrsy.com/book/dfe5ke/)
 - [禁止继承限制级雌君](https://www.ynyrsy.com/book/dfe5j2/)
+- [欲加之罪](https://www.ynyrsy.com/book/dfe5is/)
 - [自知之明](https://www.ynyrsy.com/book/dfe5hv/)
 - [等我吃腻了再倒闭可以吗](https://www.ynyrsy.com/book/dfe5hq/)
 - [当甚尔转生成继国](https://www.ynyrsy.com/book/dfe3dt/)
@@ -72,7 +73,6 @@
 - [女装生崽，娃爹宇智波](https://www.ynyrsy.com/book/dfcf4i/)
 - [优质攻不做恋爱脑[快穿]](https://www.ynyrsy.com/book/dfcesf/)
 - [我当县令那些年](https://www.ynyrsy.com/book/dfcehr/)
-- [失而复得的白月光[快穿]](https://www.ynyrsy.com/book/dfce0i/)
 - [躲避原书剧情五年后](https://www.ynyrsy.com/book/dfcd7f/)
 - [五美元在哥谭活一月](https://www.ynyrsy.com/book/dfccvr/)
 - [[足球]听克圣的话，成了米兰金童](https://www.ynyrsy.com/book/dfcbvo/)
@@ -409,7 +409,6 @@
 - [神之子与排球的适配性](https://www.ynyrsy.com/book/dfas84/)
 - [咒术师，但队友是侦探](https://www.ynyrsy.com/book/dfas1e/)
 - [穿成影后的作死前妻](https://www.ynyrsy.com/book/dfas0t/)
-- [被阴湿坏女人缠上后](https://www.ynyrsy.com/book/dfarrc/)
 - [放开那个黑暗哨兵！](https://www.ynyrsy.com/book/dfarm9/)
 - [请问夫君你哪位](https://www.ynyrsy.com/book/dfarlr/)
 - [癫骨](https://www.ynyrsy.com/book/dfarlo/)
@@ -429,7 +428,6 @@
 - [青城玩家明明超强却过分谨慎](https://www.ynyrsy.com/book/dfamij/)
 - [矩阵干扰](https://www.ynyrsy.com/book/dfakn9/)
 - [法外狂猫](https://www.ynyrsy.com/book/dfak0o/)
-- [盛夏晴浓](https://www.ynyrsy.com/book/dfajaj/)
 - [欢迎来到重生点](https://www.ynyrsy.com/book/dfaj4i/)
 - [柯学剧本杀，但恋爱流打法](https://www.ynyrsy.com/book/dfaio8/)
 - [好兄弟暴富后非要跟我结婚](https://www.ynyrsy.com/book/dfagl7/)
@@ -443,7 +441,6 @@
 - [自大狂](https://www.ynyrsy.com/book/dfa347/)
 - [暴君偏头痛](https://www.ynyrsy.com/book/df9s6m/)
 - [你，后室管理员](https://www.ynyrsy.com/book/df8q1k/)
-- [纯爱宇智波基本恋爱法](https://www.ynyrsy.com/book/df8p9l/)
 - [误入反派培养直播后](https://www.ynyrsy.com/book/df8p3e/)
 - [被四皇错看成小动物后](https://www.ynyrsy.com/book/df8oq3/)
 - [高调装神，猥琐发育](https://www.ynyrsy.com/book/df8olq/)

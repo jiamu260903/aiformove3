@@ -1,7 +1,7 @@
 
 # 笔下文学-无广告免费在线小说阅读网站
 
-更新时间：2026-09-06 03:27:07
+更新时间：2026-09-07 03:28:14
 
 笔下文学提供了一个完全免费的小说在线阅读与下载平台。我们承诺给用户一个无广告、无弹窗干扰的阅读环境，让每位读者都能享受纯净舒适的阅读体验。
 
@@ -9,6 +9,7 @@
 
 ## 最新小说
 - [［综英美］蝙蝠崽？我不是啊！](https://www.fshxjd.com/book/74i3msu/)
+- [欲加之罪](https://www.fshxjd.com/book/74i3msp/)
 - [全世界名为爱的恶意](https://www.fshxjd.com/book/74i3ms9/)
 - [[综英美]和亲友群穿哥谭以后](https://www.fshxjd.com/book/74i3mqq/)
 - [[足球]小小鸟堂堂来袭](https://www.fshxjd.com/book/74i3mqd/)
@@ -126,7 +127,6 @@
 - [我不想当男太后[穿书]](https://www.fshxjd.com/book/74i1cen/)
 - [来自深渊的救世者](https://www.fshxjd.com/book/74i1c4u/)
 - [备胎的我重生成万人迷](https://www.fshxjd.com/book/74i1bod/)
-- [失而复得的白月光[快穿]](https://www.fshxjd.com/book/74i1bmh/)
 - [漂亮作精绑定换装系统后［快穿］](https://www.fshxjd.com/book/74i1bk9/)
 - [梵高夫人](https://www.fshxjd.com/book/74i1b79/)
 - [西幻抽卡装NPC](https://www.fshxjd.com/book/74i1an6/)
@@ -386,7 +386,6 @@
 - [这谁的沙雕二次元心声！](https://www.fshxjd.com/book/74i092l/)
 - [直播捏玩具被榜一大哥撅了](https://www.fshxjd.com/book/74i0923/)
 - [咒术师，但队友是侦探](https://www.fshxjd.com/book/74i08sm/)
-- [被阴湿坏女人缠上后](https://www.fshxjd.com/book/74i08s9/)
 - [每天都在和太宰互换身体](https://www.fshxjd.com/book/74i08nd/)
 - [小狗向导，世界瑰宝！](https://www.fshxjd.com/book/74i08n6/)
 - [请问夫君你哪位](https://www.fshxjd.com/book/74i08jg/)
@@ -421,12 +420,10 @@
 - [善逸拒绝成为咒术师](https://www.fshxjd.com/book/74i02k5/)
 - [老公是松散生命体](https://www.fshxjd.com/book/74i0229/)
 - [可怜的天然呆直男[快穿]](https://www.fshxjd.com/book/74i01fq/)
-- [纯爱宇智波基本恋爱法](https://www.fshxjd.com/book/74i01di/)
 - [被四皇错看成小动物后](https://www.fshxjd.com/book/74hvv7b/)
 - [[足球]罗蜜第一志愿](https://www.fshxjd.com/book/74hvu9j/)
 - [战死的阿爹回来了[年代]](https://www.fshxjd.com/book/74hvqcp/)
 - [刀子精手心的人偶崽崽](https://www.fshxjd.com/book/74hvptk/)
-- [盛夏晴浓](https://www.fshxjd.com/book/74hvmj8/)
 - [[综英美]让我统治哥谭！！！](https://www.fshxjd.com/book/74hvlbg/)
 - [好巧，你也是妹控？[综崩铁]](https://www.fshxjd.com/book/74hvjcq/)
 - [欢迎来到重生点](https://www.fshxjd.com/book/74hvi20/)

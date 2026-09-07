@@ -1,7 +1,7 @@
 
 # 左叶小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-09-06 03:35:11
+更新时间：2026-09-07 03:36:20
 
 左叶小说网为读者提供了一个丰富多样的小说阅读体验，汇集了各类热门、经典以及新作小说资源，是书友们寻找好书的理想之地。
 
@@ -18,6 +18,7 @@
 - [[综英美]和亲友群穿哥谭以后](https://www.pusytgp.com/book/7pbovfk/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.pusytgp.com/book/7pbovf7/)
 - [这个替嫁让我来！](https://www.pusytgp.com/book/7pbovf5/)
+- [欲加之罪](https://www.pusytgp.com/book/7pbovd8/)
 - [等我吃腻了再倒闭可以吗](https://www.pusytgp.com/book/7pbovd5/)
 - [全世界名为爱的恶意](https://www.pusytgp.com/book/7pbovcj/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.pusytgp.com/book/7pbouif/)
@@ -130,7 +131,6 @@
 - [西幻抽卡装NPC](https://www.pusytgp.com/book/7pbmkai/)
 - [梵高夫人](https://www.pusytgp.com/book/7pbmk6h/)
 - [当小狗炮灰分手后](https://www.pusytgp.com/book/7pbmk37/)
-- [失而复得的白月光[快穿]](https://www.pusytgp.com/book/7pbmjnu/)
 - [忍界修罗带球跑](https://www.pusytgp.com/book/7pbmj91/)
 - [堕魔](https://www.pusytgp.com/book/7pbmj65/)
 - [漂亮作精绑定换装系统后［快穿］](https://www.pusytgp.com/book/7pbmj05/)
@@ -412,13 +412,11 @@
 - [救命！猫尾巴藏不住了](https://www.pusytgp.com/book/7pblf41/)
 - [神之子与排球的适配性](https://www.pusytgp.com/book/7pblf2d/)
 - [在重男兄弟间夹缝求生](https://www.pusytgp.com/book/7pblf2a/)
-- [被阴湿坏女人缠上后](https://www.pusytgp.com/book/7pblf1n/)
 - [转生成为伊路米的双生姐姐](https://www.pusytgp.com/book/7pblf13/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.pusytgp.com/book/7pbledd/)
 - [[封神]圣人生欲](https://www.pusytgp.com/book/7pblds0/)
 - [青空来信](https://www.pusytgp.com/book/7pblcej/)
 - [某柯学的正义伙伴](https://www.pusytgp.com/book/7pblc0i/)
-- [纯爱宇智波基本恋爱法](https://www.pusytgp.com/book/7pblbln/)
 - [善逸拒绝成为咒术师](https://www.pusytgp.com/book/7pblbde/)
 - [老公是松散生命体](https://www.pusytgp.com/book/7pblagb/)
 - [可怜的天然呆直男[快穿]](https://www.pusytgp.com/book/7pbl9v3/)
@@ -426,7 +424,6 @@
 - [被四皇错看成小动物后](https://www.pusytgp.com/book/7pbl7v1/)
 - [战死的阿爹回来了[年代]](https://www.pusytgp.com/book/7pbl0of/)
 - [刀子精手心的人偶崽崽](https://www.pusytgp.com/book/7pbl0kn/)
-- [盛夏晴浓](https://www.pusytgp.com/book/7pbl05o/)
 - [[综英美]让我统治哥谭！！！](https://www.pusytgp.com/book/7pbkumb/)
 - [好巧，你也是妹控？[综崩铁]](https://www.pusytgp.com/book/7pbksfn/)
 - [欢迎来到重生点](https://www.pusytgp.com/book/7pbks23/)

@@ -1,14 +1,13 @@
 
 # 作品思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-09-06 03:48:16
+更新时间：2026-09-07 03:49:33
 
 作品思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等全本小说免费阅读,最新完本小说阅读就在思路客。
 
 - [作品思路客](https://www.zuopin666.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.zuopin666.com/book/8befhkk/)
 - [和八个男人在极寒游戏求生](https://www.zuopin666.com/book/8befhkj/)
 - [怨明月不独照](https://www.zuopin666.com/book/8befhki/)
 - [病美人重生日记](https://www.zuopin666.com/book/8befhkh/)
@@ -86,7 +85,6 @@
 - [我们生活玩家是这样的](https://www.zuopin666.com/book/8befhhe/)
 - [星际团宠小人鱼](https://www.zuopin666.com/book/8befhcl/)
 - [[封神]圣人生欲](https://www.zuopin666.com/book/8befhcb/)
-- [九零首富的替嫁小媳妇](https://www.zuopin666.com/book/8befhc6/)
 - [原配夫人](https://www.zuopin666.com/book/8befhc2/)
 - [十九世纪贵族厨房（美食）](https://www.zuopin666.com/book/8befhbj/)
 - [始乱终弃清冷首辅后](https://www.zuopin666.com/book/8befhan/)
@@ -98,6 +96,7 @@
 - [路人攻了主角攻［快穿］](https://www.zuopin666.com/book/8beffqi/)
 - [昭暮](https://www.zuopin666.com/book/8bef68s/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.zuopin666.com/book/8beeqsd/)
+- [老公对不起](https://www.zuopin666.com/book/8beecq6/)
 - [[足球]足坛人生模拟器](https://www.zuopin666.com/book/8beds13/)
 - [上个鬼班[无限]](https://www.zuopin666.com/book/8bedqbs/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.zuopin666.com/book/8bedh39/)

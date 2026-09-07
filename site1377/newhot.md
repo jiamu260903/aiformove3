@@ -1,7 +1,7 @@
 
 # 牛魔王JJ电子书 - 小说阅读网, 全本免费完结小说在线阅读及下载
 
-更新时间：2026-09-06 03:34:26
+更新时间：2026-09-07 03:35:34
 
 牛魔王JJ电子书提供精彩小说阅读服务，包括各种类型的小说排行榜、免费好看的小说等。涵盖穿越小说、都市小说、言情小说、玄幻小说等多种类别，支持全本全集完结小说在线阅读以及TXT下载。
 
@@ -24,6 +24,7 @@
 - [禁止继承限制级雌君](https://www.nmwjj.com/book/18cjhi1/)
 - [等我吃腻了再倒闭可以吗](https://www.nmwjj.com/book/18cjhht/)
 - [清穿女回来后[天幕]](https://www.nmwjj.com/book/18cjhgi/)
+- [欲加之罪](https://www.nmwjj.com/book/18cjhft/)
 - [网球带给齐木的灾难](https://www.nmwjj.com/book/18cjhf7/)
 - [当甚尔转生成继国](https://www.nmwjj.com/book/18cjfb1/)
 - [节能型社恐靠交友存活打排球](https://www.nmwjj.com/book/18cjel5/)
@@ -73,7 +74,6 @@
 - [躲避原书剧情五年后](https://www.nmwjj.com/book/18chqei/)
 - [暗堕本丸，在线直播](https://www.nmwjj.com/book/18chpml/)
 - [五美元在哥谭活一月](https://www.nmwjj.com/book/18chpkv/)
-- [失而复得的白月光[快穿]](https://www.nmwjj.com/book/18chpdj/)
 - [女装生崽，娃爹宇智波](https://www.nmwjj.com/book/18chovc/)
 - [[足球]听克圣的话，成了米兰金童](https://www.nmwjj.com/book/18chokn/)
 - [[综英美]是谁家的小鹿](https://www.nmwjj.com/book/18chog3/)
@@ -393,7 +393,6 @@
 - [穿成影后的作死前妻](https://www.nmwjj.com/book/18cg9rg/)
 - [举朝上下为我的神仙人设头疼中](https://www.nmwjj.com/book/18cg9pm/)
 - [我最讨厌打球了！](https://www.nmwjj.com/book/18cg9n5/)
-- [被阴湿坏女人缠上后](https://www.nmwjj.com/book/18cg9it/)
 - [直播捏玩具被榜一大哥撅了](https://www.nmwjj.com/book/18cg9fa/)
 - [侯府打工人](https://www.nmwjj.com/book/18cg97o/)
 - [神之子与排球的适配性](https://www.nmwjj.com/book/18cg97h/)
@@ -427,7 +426,6 @@
 - [撕毁女配剧本的我被神之子读心了](https://www.nmwjj.com/book/18cg33l/)
 - [好巧，你也是妹控？[综崩铁]](https://www.nmwjj.com/book/18cg269/)
 - [[足球]小小鸟堂堂来袭](https://www.nmwjj.com/book/18cg16g/)
-- [盛夏晴浓](https://www.nmwjj.com/book/18cg0oi/)
 - [法外狂猫](https://www.nmwjj.com/book/18cg0a1/)
 - [矩阵干扰](https://www.nmwjj.com/book/18cg072/)
 - [柯学剧本杀，但恋爱流打法](https://www.nmwjj.com/book/18cfvjj/)
@@ -444,7 +442,6 @@
 - [暴君偏头痛](https://www.nmwjj.com/book/18cf8o7/)
 - [你，后室管理员](https://www.nmwjj.com/book/18ce6ep/)
 - [[封神]圣人生欲](https://www.nmwjj.com/book/18ce5p4/)
-- [纯爱宇智波基本恋爱法](https://www.nmwjj.com/book/18ce5ls/)
 - [误入反派培养直播后](https://www.nmwjj.com/book/18ce594/)
 - [高调装神，猥琐发育](https://www.nmwjj.com/book/18ce4lp/)
 - [被四皇错看成小动物后](https://www.nmwjj.com/book/18ce4g3/)

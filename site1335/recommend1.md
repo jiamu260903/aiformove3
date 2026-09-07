@@ -1,14 +1,13 @@
 
 # 奇书网 - 奇书网epub,mobi,txt全本电子书免费下载
 
-更新时间：2026-09-06 03:30:05
+更新时间：2026-09-07 03:31:13
 
 奇书网提供最新的奇书网txt格式全本电子书资源免费下载服务，涵盖各种类型的小说，满足您的阅读需求。
 
 - [奇书网](https://www.jxbfsz.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.jxbfsz.com/book/29i1pb6/)
 - [和八个男人在极寒游戏求生](https://www.jxbfsz.com/book/29i1pb5/)
 - [仙尊心尖宠，但被魔尊抢了](https://www.jxbfsz.com/book/29i1pav/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.jxbfsz.com/book/29i1pau/)
@@ -108,7 +107,6 @@
 - [我与龙傲天寿命共享](https://www.jxbfsz.com/book/29hvgeq/)
 - [如何正确哄睡暴君](https://www.jxbfsz.com/book/29hvemd/)
 - [怀了前任大哥的崽后](https://www.jxbfsz.com/book/29hv8q1/)
-- [九零首富的替嫁小媳妇](https://www.jxbfsz.com/book/29hv7co/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.jxbfsz.com/book/29hv5o7/)
 - [被天使之王骗婚后[诡秘之主]](https://www.jxbfsz.com/book/29hv2kk/)
 - [死对头又在挑衅我](https://www.jxbfsz.com/book/29hv2b1/)
@@ -165,6 +163,7 @@
 - [日化人生[科研]](https://www.jxbfsz.com/book/29hs6p3/)
 - [路人攻了主角攻［快穿］](https://www.jxbfsz.com/book/29hs6g6/)
 - [成为养成系练习生后](https://www.jxbfsz.com/book/29hs6ep/)
+- [老公对不起](https://www.jxbfsz.com/book/29hs5vj/)
 - [六零之成了卷王的妹妹](https://www.jxbfsz.com/book/29hs5t6/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.jxbfsz.com/book/29hs5gv/)
 - [巨物致富：回乡开钓场](https://www.jxbfsz.com/book/29hs5dv/)

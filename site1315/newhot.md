@@ -1,7 +1,7 @@
 
 # 连载小说网, 新笔趣小说阅读网 - 热门小说在线免费阅读
 
-更新时间：2026-09-06 03:32:47
+更新时间：2026-09-07 03:33:56
 
 连载小说网为您提供最新最全的小说资源，当顶点小说网无法访问时，请选择我们作为替代。这里是书友们的聚集地，拥有海量热门小说供您免费在线阅读。
 
@@ -21,11 +21,11 @@
 - [[综英美]和亲友群穿哥谭以后](https://www.lianzai007.com/book/6g3n1lh/)
 - [等我吃腻了再倒闭可以吗](https://www.lianzai007.com/book/6g3n1lf/)
 - [穿为龙傲天发妻后](https://www.lianzai007.com/book/6g3n1ks/)
+- [欲加之罪](https://www.lianzai007.com/book/6g3n1kp/)
 - [自知之明](https://www.lianzai007.com/book/6g3n1kl/)
 - [暴君偏头痛](https://www.lianzai007.com/book/6g3n1k5/)
 - [渡鬼](https://www.lianzai007.com/book/6g3n1jv/)
 - [躲避原书剧情五年后](https://www.lianzai007.com/book/6g3n1is/)
-- [失而复得的白月光[快穿]](https://www.lianzai007.com/book/6g3n1h2/)
 - [[综英美]让我统治哥谭！！！](https://www.lianzai007.com/book/6g3n1fv/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.lianzai007.com/book/6g3n1fp/)
 - [青城玩家明明超强却过分谨慎](https://www.lianzai007.com/book/6g3n1fn/)
@@ -33,7 +33,6 @@
 - [被四皇错看成小动物后](https://www.lianzai007.com/book/6g3n1da/)
 - [你，后室管理员](https://www.lianzai007.com/book/6g3n1d5/)
 - [高调装神，猥琐发育](https://www.lianzai007.com/book/6g3n1cj/)
-- [纯爱宇智波基本恋爱法](https://www.lianzai007.com/book/6g3n1c3/)
 - [阴郁路人不想被喜欢](https://www.lianzai007.com/book/6g3n1bj/)
 - [直男咒术师的限制级游戏](https://www.lianzai007.com/book/6g3n1ad/)
 - [京秋婚约](https://www.lianzai007.com/book/6g3n19d/)
@@ -403,7 +402,6 @@
 - [穿成影后的作死前妻](https://www.lianzai007.com/book/kq0hua/)
 - [苦咒琉璃](https://www.lianzai007.com/book/kq0htp/)
 - [直播捏玩具被榜一大哥撅了](https://www.lianzai007.com/book/kq0hqs/)
-- [被阴湿坏女人缠上后](https://www.lianzai007.com/book/kq0hbv/)
 - [隔壁班的松田君](https://www.lianzai007.com/book/kq0h7b/)
 - [当了卧底的我发现遍地熟人](https://www.lianzai007.com/book/kq0gkf/)
 - [虫族治愈师，但恐虫](https://www.lianzai007.com/book/kq0f9k/)

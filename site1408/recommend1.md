@@ -1,14 +1,13 @@
 
 # 顶点小说 - 无广告无弹窗在线小说阅读网站
 
-更新时间：2026-09-06 03:40:51
+更新时间：2026-09-07 03:42:05
 
 顶点小说致力于提供一个无广告、无弹窗干扰的高质量在线小说阅读体验。支持多种类型的小说在线阅读与TXT格式下载，界面设计简洁友好。
 
 - [顶点中文小说](https://www.wangrn.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.wangrn.com/book/4bbo64n/)
 - [和八个男人在极寒游戏求生](https://www.wangrn.com/book/4bbo62m/)
 - [星露谷，但日本战国](https://www.wangrn.com/book/4bbo2nl/)
 - [强取师尊后](https://www.wangrn.com/book/4bbo2ni/)
@@ -149,13 +148,13 @@
 - [卷王后妈，八零养娃](https://www.wangrn.com/book/4bbj1ug/)
 - [成为养成系练习生后](https://www.wangrn.com/book/4bbj1tb/)
 - [全民求生:从小木屋到魔法农场](https://www.wangrn.com/book/4bbj1rf/)
+- [老公对不起](https://www.wangrn.com/book/4bbj1ok/)
 - [海岛求生：生活玩家种田囤货](https://www.wangrn.com/book/4bbj1oh/)
 - [日化人生[科研]](https://www.wangrn.com/book/4bbj1og/)
 - [十九世纪贵族厨房（美食）](https://www.wangrn.com/book/4bbj19h/)
 - [趁她之危](https://www.wangrn.com/book/4bbj101/)
 - [始乱终弃清冷首辅后](https://www.wangrn.com/book/4bbj0n4/)
 - [六零之成了卷王的妹妹](https://www.wangrn.com/book/4bbj0l2/)
-- [九零首富的替嫁小媳妇](https://www.wangrn.com/book/4bbj0hi/)
 - [[封神]圣人生欲](https://www.wangrn.com/book/4bbj0ge/)
 - [原配夫人](https://www.wangrn.com/book/4bbj0en/)
 - [我是唯一地上神国](https://www.wangrn.com/book/4bbj0em/)

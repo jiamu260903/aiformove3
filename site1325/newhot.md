@@ -1,7 +1,7 @@
 
 # 炫书网-免费全本小说在线阅读分享平台
 
-更新时间：2026-09-06 03:44:40
+更新时间：2026-09-07 03:45:58
 
 炫书网提供免费全本小说在线阅读服务，是国内领先的全集全本完结TXT电子书免费下载分享平台。用户可以上传或下载各种类型的优秀电子书籍。
 
@@ -16,6 +16,7 @@
 - [清穿女回来后[天幕]](https://www.xqwz8bk.com/book/1igm35u/)
 - [[综英美]和亲友群穿哥谭以后](https://www.xqwz8bk.com/book/1igm35n/)
 - [同时扮演贵族学院F4和平民校花](https://www.xqwz8bk.com/book/1igm35k/)
+- [欲加之罪](https://www.xqwz8bk.com/book/1igm35f/)
 - [我骗家里的钱养你啊](https://www.xqwz8bk.com/book/1igm35d/)
 - [等我吃腻了再倒闭可以吗](https://www.xqwz8bk.com/book/1igm35c/)
 - [自知之明](https://www.xqwz8bk.com/book/1igm357/)
@@ -34,7 +35,6 @@
 - [高调装神，猥琐发育](https://www.xqwz8bk.com/book/1igm2sj/)
 - [阴郁路人不想被喜欢](https://www.xqwz8bk.com/book/1igm2r3/)
 - [京秋婚约](https://www.xqwz8bk.com/book/1igm2qv/)
-- [纯爱宇智波基本恋爱法](https://www.xqwz8bk.com/book/1igm2ok/)
 - [直男咒术师的限制级游戏](https://www.xqwz8bk.com/book/1igm2nn/)
 - [求生游戏：当邪神成为生活玩家后](https://www.xqwz8bk.com/book/1igm2na/)
 - [修仙界都为我神魂颠倒](https://www.xqwz8bk.com/book/1iglnru/)
@@ -404,7 +404,6 @@
 - [直播捏玩具被榜一大哥撅了](https://www.xqwz8bk.com/book/51mq51/)
 - [虫族治愈师，但恐虫](https://www.xqwz8bk.com/book/51mpnt/)
 - [癫骨](https://www.xqwz8bk.com/book/51mpkg/)
-- [被阴湿坏女人缠上后](https://www.xqwz8bk.com/book/51mpju/)
 - [隔壁班的松田君](https://www.xqwz8bk.com/book/51mpic/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.xqwz8bk.com/book/51moha/)
 - [你也没死？](https://www.xqwz8bk.com/book/51mnqs/)
