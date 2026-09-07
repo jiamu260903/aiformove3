@@ -1,7 +1,7 @@
 
 # 笔趣阁小说网 - 免费在线阅读百万小说
 
-更新时间：2026-09-06 03:44:07
+更新时间：2026-09-07 03:45:25
 
 笔趣阁小说网提供免费的小说在线阅读服务，包括但不限于各类热门小说、经典文学等。网站支持书架同步功能，确保用户阅读进度永不丢失。快来加入我们，享受无障碍、无广告的纯净阅读体验吧！
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.xiaoshuo139.com/book/2ch7u8i/)
-- [揣崽丧夫后被情敌强娶了](https://www.xiaoshuo139.com/book/2ch7u8h/)
 - [谁说踢球就不能成为名侦探[足球]](https://www.xiaoshuo139.com/book/2ch7u8g/)
 - [[足球]雏鸟](https://www.xiaoshuo139.com/book/2ch7u8f/)
 - [穿为龙傲天发妻后](https://www.xiaoshuo139.com/book/2ch7u8e/)
@@ -86,7 +85,6 @@
 - [我们生活玩家是这样的](https://www.xiaoshuo139.com/book/2ch7u18/)
 - [十九世纪贵族厨房（美食）](https://www.xiaoshuo139.com/book/2ch7u01/)
 - [原配夫人](https://www.xiaoshuo139.com/book/2ch7tvu/)
-- [九零首富的替嫁小媳妇](https://www.xiaoshuo139.com/book/2ch7tvm/)
 - [[封神]圣人生欲](https://www.xiaoshuo139.com/book/2ch7tus/)
 - [始乱终弃清冷首辅后](https://www.xiaoshuo139.com/book/2ch7tuh/)
 - [星际团宠小人鱼](https://www.xiaoshuo139.com/book/2ch7tug/)
@@ -98,6 +96,7 @@
 - [路人攻了主角攻［快穿］](https://www.xiaoshuo139.com/book/2ch7sdm/)
 - [昭暮](https://www.xiaoshuo139.com/book/2ch7its/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.xiaoshuo139.com/book/2ch77ao/)
+- [老公对不起](https://www.xiaoshuo139.com/book/2ch6pbn/)
 - [[足球]足坛人生模拟器](https://www.xiaoshuo139.com/book/2ch6apm/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.xiaoshuo139.com/book/2ch664u/)
 - [上个鬼班[无限]](https://www.xiaoshuo139.com/book/2ch64mm/)

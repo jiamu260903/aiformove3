@@ -1,7 +1,7 @@
 
 # 文学小说网手机版_好看的文学小说TXT下载,无弹窗手机小说网
 
-更新时间：2026-09-06 03:41:34
+更新时间：2026-09-07 03:42:49
 
 文学小说网收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者最值得收藏的网络小说阅读网,精彩小说尽在文学小说网(无弹窗小说网)。
 
@@ -9,6 +9,7 @@
 
 ## 最新小说
 - [幼崽假少爷选择回归寒门](https://www.wenxue521.com/book/93olskk/)
+- [欲加之罪](https://www.wenxue521.com/book/93olskh/)
 - [禁止继承限制级雌君](https://www.wenxue521.com/book/93olskf/)
 - [等我吃腻了再倒闭可以吗](https://www.wenxue521.com/book/93olske/)
 - [同时扮演贵族学院F4和平民校花](https://www.wenxue521.com/book/93olsjp/)
@@ -26,7 +27,6 @@
 - [渡鬼](https://www.wenxue521.com/book/93olshk/)
 - [青城玩家明明超强却过分谨慎](https://www.wenxue521.com/book/93olsg6/)
 - [[综英美]让我统治哥谭！！！](https://www.wenxue521.com/book/93olsg3/)
-- [失而复得的白月光[快穿]](https://www.wenxue521.com/book/93olsfu/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.wenxue521.com/book/93olsfl/)
 - [暴君偏头痛](https://www.wenxue521.com/book/93olsev/)
 - [你，后室管理员](https://www.wenxue521.com/book/93olscq/)
@@ -35,7 +35,6 @@
 - [高调装神，猥琐发育](https://www.wenxue521.com/book/93olsaf/)
 - [直男咒术师的限制级游戏](https://www.wenxue521.com/book/93ols9s/)
 - [京秋婚约](https://www.wenxue521.com/book/93ols95/)
-- [纯爱宇智波基本恋爱法](https://www.wenxue521.com/book/93ols72/)
 - [阴郁路人不想被喜欢](https://www.wenxue521.com/book/93ols6h/)
 - [求生游戏：当邪神成为生活玩家后](https://www.wenxue521.com/book/93ols56/)
 - [昭暮](https://www.wenxue521.com/book/93olh8o/)
@@ -401,7 +400,6 @@
 - [作家与读者](https://www.wenxue521.com/book/t5mr03/)
 - [忍界观察日记](https://www.wenxue521.com/book/t5mqr4/)
 - [隔壁班的松田君](https://www.wenxue521.com/book/t5mqkc/)
-- [被阴湿坏女人缠上后](https://www.wenxue521.com/book/t5mqbo/)
 - [无能的丈夫们](https://www.wenxue521.com/book/t5mq7u/)
 - [[足球]在比利时我们只玩天赋](https://www.wenxue521.com/book/t5mq69/)
 - [当了卧底的我发现遍地熟人](https://www.wenxue521.com/book/t5mq55/)

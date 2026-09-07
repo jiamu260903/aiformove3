@@ -1,7 +1,7 @@
 
 # 爱阅读-最新优质免费无弹窗小说在线阅读
 
-更新时间：2026-09-06 03:46:33
+更新时间：2026-09-07 03:47:51
 
 爱阅读提供清爽干净、页面整洁没弹窗的网络小说阅读体验。这里有大量的免费小说、完本小说供您选择，包括热门言情小说、玄幻小说、仙侠小说等多种类型。是广大书友必备的纯绿色小说阅读网站。
 
@@ -14,6 +14,7 @@
 - [自知之明](https://www.yuedu788.com/book/1on7bl0/)
 - [全世界名为爱的恶意](https://www.yuedu788.com/book/1on7bjn/)
 - [[综英美]和亲友群穿哥谭以后](https://www.yuedu788.com/book/1on7bji/)
+- [欲加之罪](https://www.yuedu788.com/book/1on7bio/)
 - [穿为龙傲天发妻后](https://www.yuedu788.com/book/1on7bi4/)
 - [禁止继承限制级雌君](https://www.yuedu788.com/book/1on7bhu/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.yuedu788.com/book/1on7bgv/)
@@ -84,7 +85,6 @@
 - [[综英美]是谁家的小鹿](https://www.yuedu788.com/book/1on59u0/)
 - [这个迫嫁我愿意的](https://www.yuedu788.com/book/1on59rl/)
 - [[足球]听克圣的话，成了米兰金童](https://www.yuedu788.com/book/1on5995/)
-- [失而复得的白月光[快穿]](https://www.yuedu788.com/book/1on594r/)
 - [被马甲团宠的我开启地狱模式](https://www.yuedu788.com/book/1on58rn/)
 - [反派真少爷搞了个抱错综艺后[穿书]](https://www.yuedu788.com/book/1on58da/)
 - [我被一个古人教会了爱情](https://www.yuedu788.com/book/1on58be/)
@@ -401,7 +401,6 @@
 - [神之子与排球的适配性](https://www.yuedu788.com/book/1on3t0j/)
 - [青山不渡](https://www.yuedu788.com/book/1on3sun/)
 - [癫骨](https://www.yuedu788.com/book/1on3su9/)
-- [被阴湿坏女人缠上后](https://www.yuedu788.com/book/1on3spt/)
 - [普通高中生，但兼职咒术师](https://www.yuedu788.com/book/1on3sm4/)
 - [国舅太难追了](https://www.yuedu788.com/book/1on3sll/)
 - [失忆后，和五条激情互演](https://www.yuedu788.com/book/1on3sf5/)
@@ -422,7 +421,6 @@
 - [我最讨厌打球了！](https://www.yuedu788.com/book/1on3n5l/)
 - [刀子精手心的人偶崽崽](https://www.yuedu788.com/book/1on3mf2/)
 - [求生游戏：当邪神成为生活玩家后](https://www.yuedu788.com/book/1on3ljc/)
-- [盛夏晴浓](https://www.yuedu788.com/book/1on3hle/)
 - [幼崽假少爷选择回归寒门](https://www.yuedu788.com/book/1on3ge6/)
 - [[足球]小小鸟堂堂来袭](https://www.yuedu788.com/book/1on3fmp/)
 - [青城玩家明明超强却过分谨慎](https://www.yuedu788.com/book/1on3eo7/)
@@ -440,7 +438,6 @@
 - [和室友他爸恋爱后](https://www.yuedu788.com/book/1on2vhn/)
 - [阴郁路人不想被喜欢](https://www.yuedu788.com/book/1on1qbm/)
 - [京秋婚约](https://www.yuedu788.com/book/1on1pl1/)
-- [纯爱宇智波基本恋爱法](https://www.yuedu788.com/book/1on1ojk/)
 - [直男咒术师的限制级游戏](https://www.yuedu788.com/book/1on1no0/)
 ## 相关内容
 - [README](/README.md)

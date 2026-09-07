@@ -1,13 +1,14 @@
 
 # 文学小说668 - 全球最新最热的小说阅读平台
 
-更新时间：2026-09-06 03:41:52
+更新时间：2026-09-07 03:43:07
 
 文学小说668是全球最新、最热的小说阅读网站之一，汇集了包括言情小说、玄幻小说、穿越小说在内的各类优质小说资源，让读者能够尽情享受阅读的乐趣。
 
 - [文学小说668](https://www.wenxue668.com/)
 
 ## 最新小说
+- [欲加之罪](https://www.wenxue668.com/book/44ff1hg/)
 - [清穿女回来后[天幕]](https://www.wenxue668.com/book/44ff1h4/)
 - [全世界名为爱的恶意](https://www.wenxue668.com/book/44ff1gh/)
 - [[综英美]和亲友群穿哥谭以后](https://www.wenxue668.com/book/44ff1gc/)
@@ -90,7 +91,6 @@
 - [逃生游戏[无限]](https://www.wenxue668.com/book/44fculv/)
 - [恐惧玫瑰](https://www.wenxue668.com/book/44fctog/)
 - [[足球]听克圣的话，成了米兰金童](https://www.wenxue668.com/book/44fctkg/)
-- [失而复得的白月光[快穿]](https://www.wenxue668.com/book/44fcta2/)
 - [期春思](https://www.wenxue668.com/book/44fct77/)
 - [这个迫嫁我愿意的](https://www.wenxue668.com/book/44fct1h/)
 - [我的生活植入了游戏](https://www.wenxue668.com/book/44fcsn0/)
@@ -408,7 +408,6 @@
 - [国舅太难追了](https://www.wenxue668.com/book/44fbi95/)
 - [让我再吃一口](https://www.wenxue668.com/book/44fbi5n/)
 - [请问夫君你哪位](https://www.wenxue668.com/book/44fbi5b/)
-- [被阴湿坏女人缠上后](https://www.wenxue668.com/book/44fbi37/)
 - [咒术师，但队友是侦探](https://www.wenxue668.com/book/44fbhuj/)
 - [直播捏玩具被榜一大哥撅了](https://www.wenxue668.com/book/44fbhtc/)
 - [举朝上下为我的神仙人设头疼中](https://www.wenxue668.com/book/44fbhpo/)
@@ -422,7 +421,6 @@
 - [我最讨厌打球了！](https://www.wenxue668.com/book/44fbd6l/)
 - [刀子精手心的人偶崽崽](https://www.wenxue668.com/book/44fbcnp/)
 - [求生游戏：当邪神成为生活玩家后](https://www.wenxue668.com/book/44fbbau/)
-- [盛夏晴浓](https://www.wenxue668.com/book/44fb82k/)
 - [[足球]小小鸟堂堂来袭](https://www.wenxue668.com/book/44fb7i3/)
 - [幼崽假少爷选择回归寒门](https://www.wenxue668.com/book/44fb6jq/)
 - [好巧，你也是妹控？[综崩铁]](https://www.wenxue668.com/book/44fb4u7/)
@@ -440,7 +438,6 @@
 - [和室友他爸恋爱后](https://www.wenxue668.com/book/44fam6s/)
 - [直男咒术师的限制级游戏](https://www.wenxue668.com/book/44f9fgm/)
 - [京秋婚约](https://www.wenxue668.com/book/44f9f3p/)
-- [纯爱宇智波基本恋爱法](https://www.wenxue668.com/book/44f9el8/)
 - [阴郁路人不想被喜欢](https://www.wenxue668.com/book/44f9ee6/)
 ## 相关内容
 - [README](/README.md)

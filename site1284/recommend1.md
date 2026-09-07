@@ -1,7 +1,7 @@
 
 # 爱你中文网-最热门的免费小说网|全本小说在线阅读
 
-更新时间：2026-09-06 03:33:23
+更新时间：2026-09-07 03:34:31
 
 爱你中文网致力于打造一个无广告无弹窗的在线小说阅读平台，提供包括但不限于玄幻、网游、言情、穿越及都市等多种类型的小说在线阅读服务。网站页面简洁，支持小说最新章节快速更新。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.longjiangstone.com/book/34b4qk/)
-- [揣崽丧夫后被情敌强娶了](https://www.longjiangstone.com/book/34b4qj/)
 - [我骗家里的钱养你啊](https://www.longjiangstone.com/book/34b4qi/)
 - [谁说踢球就不能成为名侦探[足球]](https://www.longjiangstone.com/book/34b4qh/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.longjiangstone.com/book/34b4qg/)
@@ -86,7 +85,6 @@
 - [我司艺人永不塌房](https://www.longjiangstone.com/book/34b4mp/)
 - [原配夫人](https://www.longjiangstone.com/book/34b4it/)
 - [始乱终弃清冷首辅后](https://www.longjiangstone.com/book/34b4il/)
-- [九零首富的替嫁小媳妇](https://www.longjiangstone.com/book/34b4ib/)
 - [星际团宠小人鱼](https://www.longjiangstone.com/book/34b4hq/)
 - [[封神]圣人生欲](https://www.longjiangstone.com/book/34b4ha/)
 - [十九世纪贵族厨房（美食）](https://www.longjiangstone.com/book/34b4gl/)
@@ -98,6 +96,7 @@
 - [路人攻了主角攻［快穿］](https://www.longjiangstone.com/book/34b335/)
 - [昭暮](https://www.longjiangstone.com/book/34apg1/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.longjiangstone.com/book/34adn5/)
+- [老公对不起](https://www.longjiangstone.com/book/349vpi/)
 - [[足球]足坛人生模拟器](https://www.longjiangstone.com/book/349eju/)
 - [上个鬼班[无限]](https://www.longjiangstone.com/book/34944t/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.longjiangstone.com/book/34941d/)

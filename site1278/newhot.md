@@ -1,7 +1,7 @@
 
 # 紫玉海小说 - 好看的言情小说推荐,热门小说在线阅读
 
-更新时间：2026-09-06 03:47:40
+更新时间：2026-09-07 03:48:57
 
 紫玉海小说网提供好看的言情小说推荐，热门小说推荐，包括都市言情、霸道总裁、古代言情、穿越重生等优质资源在线阅读，好小说尽在自由屋推书网。
 
@@ -10,6 +10,7 @@
 ## 最新小说
 - [幼崽假少爷选择回归寒门](https://www.ziyuhai.com/book/84rn5am/)
 - [清穿女回来后[天幕]](https://www.ziyuhai.com/book/84rn5aj/)
+- [欲加之罪](https://www.ziyuhai.com/book/84rn5ai/)
 - [穿为龙傲天发妻后](https://www.ziyuhai.com/book/84rn5a9/)
 - [同时扮演贵族学院F4和平民校花](https://www.ziyuhai.com/book/84rn5a8/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.ziyuhai.com/book/84rn59s/)
@@ -24,7 +25,6 @@
 - [全世界名为爱的恶意](https://www.ziyuhai.com/book/84rn58d/)
 - [暴君偏头痛](https://www.ziyuhai.com/book/84rn57e/)
 - [[综英美]让我统治哥谭！！！](https://www.ziyuhai.com/book/84rn579/)
-- [失而复得的白月光[快穿]](https://www.ziyuhai.com/book/84rn571/)
 - [躲避原书剧情五年后](https://www.ziyuhai.com/book/84rn56h/)
 - [渡鬼](https://www.ziyuhai.com/book/84rn54o/)
 - [青城玩家明明超强却过分谨慎](https://www.ziyuhai.com/book/84rn54h/)
@@ -34,7 +34,6 @@
 - [被四皇错看成小动物后](https://www.ziyuhai.com/book/84rn521/)
 - [高调装神，猥琐发育](https://www.ziyuhai.com/book/84rn50f/)
 - [阴郁路人不想被喜欢](https://www.ziyuhai.com/book/84rn4vq/)
-- [纯爱宇智波基本恋爱法](https://www.ziyuhai.com/book/84rn4so/)
 - [直男咒术师的限制级游戏](https://www.ziyuhai.com/book/84rn4s3/)
 - [京秋婚约](https://www.ziyuhai.com/book/84rn4rh/)
 - [求生游戏：当邪神成为生活玩家后](https://www.ziyuhai.com/book/84rn4r8/)
@@ -405,7 +404,6 @@
 - [直播捏玩具被榜一大哥撅了](https://www.ziyuhai.com/book/q2q4r9/)
 - [作家与读者](https://www.ziyuhai.com/book/q2q43a/)
 - [隔壁班的松田君](https://www.ziyuhai.com/book/q2q3rs/)
-- [被阴湿坏女人缠上后](https://www.ziyuhai.com/book/q2q3m1/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.ziyuhai.com/book/q2q3hh/)
 - [[足球]在比利时我们只玩天赋](https://www.ziyuhai.com/book/q2q3ds/)
 - [你也没死？](https://www.ziyuhai.com/book/q2pvnh/)

@@ -1,7 +1,7 @@
 
 # 武侠文学网 - 值得收藏的小说阅读平台
 
-更新时间：2026-09-06 03:43:24
+更新时间：2026-09-07 03:44:41
 
 武侠文学网为您提供丰富多样的小说资源，在这里您可以找到最新最热门的小说作品。无论是经典文学还是现代流行小说，都是您值得收藏的阅读选择。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.wuxia988.com/book/1ms38pi/)
-- [揣崽丧夫后被情敌强娶了](https://www.wuxia988.com/book/1ms38ph/)
 - [我们小区穿末世](https://www.wuxia988.com/book/1ms38pg/)
 - [你让魔王组建勇者小队？](https://www.wuxia988.com/book/1ms38pc/)
 - [漫画取材所引发的修罗场](https://www.wuxia988.com/book/1ms38pb/)
@@ -103,7 +102,6 @@
 - [如何正确哄睡暴君](https://www.wuxia988.com/book/1ms122q/)
 - [死遁的亡夫们都回来了](https://www.wuxia988.com/book/1ms0tki/)
 - [怀了前任大哥的崽后](https://www.wuxia988.com/book/1ms0tgl/)
-- [九零首富的替嫁小媳妇](https://www.wuxia988.com/book/1ms0sse/)
 - [我骗家里的钱养你啊](https://www.wuxia988.com/book/1ms0sq4/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.wuxia988.com/book/1ms0s6g/)
 - [沈助理又在隐藏他的超能力](https://www.wuxia988.com/book/1ms0khm/)
@@ -161,6 +159,7 @@
 - [[娱乐圈]过分美丽的她](https://www.wuxia988.com/book/1mrtn00/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.wuxia988.com/book/1mrtmum/)
 - [清澈女大的六零年代](https://www.wuxia988.com/book/1mrtmtq/)
+- [老公对不起](https://www.wuxia988.com/book/1mrtmn6/)
 - [大瑛弟国](https://www.wuxia988.com/book/1mrtmj6/)
 - [95美国贵族高中模拟](https://www.wuxia988.com/book/1mrtmec/)
 - [巨物致富：回乡开钓场](https://www.wuxia988.com/book/1mrtmdu/)

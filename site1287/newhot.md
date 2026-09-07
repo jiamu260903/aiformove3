@@ -1,7 +1,7 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-06 03:29:14
+更新时间：2026-09-07 03:30:22
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
@@ -12,6 +12,7 @@
 - [清穿女回来后[天幕]](https://www.hzciic.com/book/1sjvhse/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.hzciic.com/book/1sjvhsc/)
 - [全世界名为爱的恶意](https://www.hzciic.com/book/1sjvhrv/)
+- [欲加之罪](https://www.hzciic.com/book/1sjvhru/)
 - [[综英美]和亲友群穿哥谭以后](https://www.hzciic.com/book/1sjvhrt/)
 - [[足球]小小鸟堂堂来袭](https://www.hzciic.com/book/1sjvhrm/)
 - [咦？我爸爸复活啦](https://www.hzciic.com/book/1sjvhr7/)
@@ -23,7 +24,6 @@
 - [我骗家里的钱养你啊](https://www.hzciic.com/book/1sjvhqf/)
 - [自知之明](https://www.hzciic.com/book/1sjvhqd/)
 - [躲避原书剧情五年后](https://www.hzciic.com/book/1sjvhpc/)
-- [失而复得的白月光[快穿]](https://www.hzciic.com/book/1sjvhof/)
 - [[综英美]让我统治哥谭！！！](https://www.hzciic.com/book/1sjvhne/)
 - [暴君偏头痛](https://www.hzciic.com/book/1sjvhmt/)
 - [渡鬼](https://www.hzciic.com/book/1sjvhmm/)
@@ -36,7 +36,6 @@
 - [直男咒术师的限制级游戏](https://www.hzciic.com/book/1sjvhgi/)
 - [京秋婚约](https://www.hzciic.com/book/1sjvhep/)
 - [阴郁路人不想被喜欢](https://www.hzciic.com/book/1sjvhee/)
-- [纯爱宇智波基本恋爱法](https://www.hzciic.com/book/1sjvhd6/)
 - [求生游戏：当邪神成为生活玩家后](https://www.hzciic.com/book/1sjvhd5/)
 - [昭暮](https://www.hzciic.com/book/1sjv6go/)
 - [修仙界都为我神魂颠倒](https://www.hzciic.com/book/1sjurdd/)
@@ -404,7 +403,6 @@
 - [神之子与排球的适配性](https://www.hzciic.com/book/621c1c/)
 - [普通高中生，但兼职咒术师](https://www.hzciic.com/book/621c19/)
 - [忍界观察日记](https://www.hzciic.com/book/621c08/)
-- [被阴湿坏女人缠上后](https://www.hzciic.com/book/621bkv/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.hzciic.com/book/6219fp/)
 - [你也没死？](https://www.hzciic.com/book/6218kb/)
 - [青空来信](https://www.hzciic.com/book/6217n9/)

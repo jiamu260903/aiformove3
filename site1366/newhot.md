@@ -1,7 +1,7 @@
 
 # 科幻188文学网-最新章节全文小说免费阅读
 
-更新时间：2026-09-06 03:31:26
+更新时间：2026-09-07 03:32:34
 
 科幻188文学网给广大网友提供最好的小说阅读服务，全站小说均可免费阅读且无任何弹窗干扰。这里是你寻找最新最全小说内容的理想之地。
 
@@ -16,6 +16,7 @@
 - [[综英美]和亲友群穿哥谭以后](https://www.kehuan188.com/book/56q39f0/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.kehuan188.com/book/56q39dh/)
 - [等我吃腻了再倒闭可以吗](https://www.kehuan188.com/book/56q39dg/)
+- [欲加之罪](https://www.kehuan188.com/book/56q39de/)
 - [禁止继承限制级雌君](https://www.kehuan188.com/book/56q39d8/)
 - [修仙界都为我神魂颠倒](https://www.kehuan188.com/book/56q37c4/)
 - [[足球]这只后锋小熊是你家俱乐部掉的吗？](https://www.kehuan188.com/book/56q378m/)
@@ -90,7 +91,6 @@
 - [逃荒[快穿]](https://www.kehuan188.com/book/56q16t0/)
 - [[足球]听克圣的话，成了米兰金童](https://www.kehuan188.com/book/56q16e1/)
 - [满级后我的外挂到账了[全息]](https://www.kehuan188.com/book/56q16b0/)
-- [失而复得的白月光[快穿]](https://www.kehuan188.com/book/56q161e/)
 - [我被一个古人教会了爱情](https://www.kehuan188.com/book/56q1605/)
 - [这个迫嫁我愿意的](https://www.kehuan188.com/book/56q158b/)
 - [七零年代闺蜜团的奋斗](https://www.kehuan188.com/book/56q14rj/)
@@ -406,7 +406,6 @@
 - [末世山居日常](https://www.kehuan188.com/book/56pvqak/)
 - [虫族治愈师，但恐虫](https://www.kehuan188.com/book/56pvq7m/)
 - [举朝上下为我的神仙人设头疼中](https://www.kehuan188.com/book/56pvq6s/)
-- [被阴湿坏女人缠上后](https://www.kehuan188.com/book/56pvq5o/)
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.kehuan188.com/book/56pvpjt/)
 - [在重男兄弟间夹缝求生](https://www.kehuan188.com/book/56pvpj8/)
 - [放开那个黑暗哨兵！](https://www.kehuan188.com/book/56pvpig/)
@@ -424,7 +423,6 @@
 - [我最讨厌打球了！](https://www.kehuan188.com/book/56pvjq7/)
 - [[足球]小小鸟堂堂来袭](https://www.kehuan188.com/book/56pvfuh/)
 - [幼崽假少爷选择回归寒门](https://www.kehuan188.com/book/56pve7l/)
-- [盛夏晴浓](https://www.kehuan188.com/book/56pvdv4/)
 - [青城玩家明明超强却过分谨慎](https://www.kehuan188.com/book/56pvcdl/)
 - [好巧，你也是妹控？[综崩铁]](https://www.kehuan188.com/book/56pvbgc/)
 - [欢迎来到重生点](https://www.kehuan188.com/book/56pvbb7/)
@@ -439,7 +437,6 @@
 - [暴君偏头痛](https://www.kehuan188.com/book/56puurj/)
 - [和室友他爸恋爱后](https://www.kehuan188.com/book/56pusje/)
 - [直男咒术师的限制级游戏](https://www.kehuan188.com/book/56ptnln/)
-- [纯爱宇智波基本恋爱法](https://www.kehuan188.com/book/56ptnb6/)
 - [阴郁路人不想被喜欢](https://www.kehuan188.com/book/56ptles/)
 - [京秋婚约](https://www.kehuan188.com/book/56ptle5/)
 ## 相关内容

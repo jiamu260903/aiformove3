@@ -1,7 +1,7 @@
 
 # 新华 MBA雷火小说网 - 最新最全的小说阅读平台
 
-更新时间：2026-09-06 03:43:53
+更新时间：2026-09-07 03:45:11
 
 新华 MBA雷火小说网提供海量正版小说资源，在线免费阅读最新热门小说，支持手机电脑多端同步阅读，是书友们值得收藏的优质小说阅读网站。
 
@@ -18,6 +18,7 @@
 - [我骗家里的钱养你啊](https://www.xhmba.com/book/7mj27fr/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.xhmba.com/book/7mj27et/)
 - [禁止继承限制级雌君](https://www.xhmba.com/book/7mj27d4/)
+- [欲加之罪](https://www.xhmba.com/book/7mj27d0/)
 - [我有嘉宾](https://www.xhmba.com/book/7mj26km/)
 - [孤独症崽崽穿越到狗血爽文里[穿书]](https://www.xhmba.com/book/7mj26is/)
 - [我，始皇闺女，未来皇帝，打钱](https://www.xhmba.com/book/7mj269c/)
@@ -159,7 +160,6 @@
 - [[全职高手]小船](https://www.xhmba.com/book/7mj06o3/)
 - [沈助理又在隐藏他的超能力](https://www.xhmba.com/book/7mj06m0/)
 - [纨绔渣A拒绝入赘长公主府](https://www.xhmba.com/book/7mj06gm/)
-- [就算是龙傲天也不可以[快穿]](https://www.xhmba.com/book/7mj06bs/)
 - [渣攻试图洗白[快穿]](https://www.xhmba.com/book/7mj068l/)
 - [普通人的乙女RPG[西幻]](https://www.xhmba.com/book/7mj05it/)
 - [[足球]那个德国队新皇](https://www.xhmba.com/book/7mj04o8/)
@@ -388,7 +388,6 @@
 - [吐槽役审神者会爆改幕后大boss吗](https://www.xhmba.com/book/7mivdji/)
 - [直播捏玩具被榜一大哥撅了](https://www.xhmba.com/book/7mivdgg/)
 - [无能的丈夫们](https://www.xhmba.com/book/7mivdfe/)
-- [被阴湿坏女人缠上后](https://www.xhmba.com/book/7mivddh/)
 - [高冷影后逼我标记她](https://www.xhmba.com/book/7mivdae/)
 - [顶流他姐有神豪系统](https://www.xhmba.com/book/7mivd8l/)
 - [神之子与排球的适配性](https://www.xhmba.com/book/7mivd26/)
@@ -414,7 +413,6 @@
 - [好兄弟暴富后非要跟我结婚](https://www.xhmba.com/book/7mivbgc/)
 - [普通高中生，但兼职咒术师](https://www.xhmba.com/book/7mivb6p/)
 - [好巧，你也是妹控？[综崩铁]](https://www.xhmba.com/book/7miv9ua/)
-- [盛夏晴浓](https://www.xhmba.com/book/7miv9mb/)
 - [欢迎来到重生点](https://www.xhmba.com/book/7miv9m1/)
 - [李玉灯](https://www.xhmba.com/book/7miv9aj/)
 - [柯学剧本杀，但恋爱流打法](https://www.xhmba.com/book/7miv8sl/)
@@ -432,7 +430,6 @@
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.xhmba.com/book/7miuk1q/)
 - [丧尸老婆喂养日记](https://www.xhmba.com/book/7miubjf/)
 - [你，后室管理员](https://www.xhmba.com/book/7mit9dn/)
-- [纯爱宇智波基本恋爱法](https://www.xhmba.com/book/7mit9c0/)
 - [[封神]圣人生欲](https://www.xhmba.com/book/7mit8aj/)
 - [误入反派培养直播后](https://www.xhmba.com/book/7mit7go/)
 - [高调装神，猥琐发育](https://www.xhmba.com/book/7mit7ee/)

@@ -1,14 +1,13 @@
 
 # 耽美小说 - 最新全本免费手机小说阅读推荐
 
-更新时间：2026-09-06 03:37:51
+更新时间：2026-09-07 03:38:59
 
 耽美小说为您提供最新最全的小说阅读体验，涵盖古言、现言、原创、玄幻、都市、言情、娱乐、种田、科幻、悬疑、穿越、重生等多种类型。支持手机在线阅读，全本免费小说尽在耽美小说！
 
 - [耽美小说](https://www.shgifts8.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.shgifts8.com/book/32uibam/)
 - [和八个男人在极寒游戏求生](https://www.shgifts8.com/book/32uib9c/)
 - [爱情的肯定句](https://www.shgifts8.com/book/32ui7ui/)
 - [欲加之罪](https://www.shgifts8.com/book/32ui7ug/)
@@ -156,9 +155,9 @@
 - [十九世纪贵族厨房（美食）](https://www.shgifts8.com/book/32ud6d3/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.shgifts8.com/book/32ud69n/)
 - [完蛋！被恨孕男包围了！](https://www.shgifts8.com/book/32ud60n/)
+- [老公对不起](https://www.shgifts8.com/book/32ud5v8/)
 - [我是唯一地上神国](https://www.shgifts8.com/book/32ud5um/)
 - [[封神]圣人生欲](https://www.shgifts8.com/book/32ud5t4/)
-- [九零首富的替嫁小媳妇](https://www.shgifts8.com/book/32ud5k5/)
 - [五十年代港城日常](https://www.shgifts8.com/book/32ud5i9/)
 - [[娱乐圈]过分美丽的她](https://www.shgifts8.com/book/32ud5i5/)
 - [高调装神，猥琐发育](https://www.shgifts8.com/book/32ud5eo/)

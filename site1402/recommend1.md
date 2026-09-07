@@ -1,14 +1,13 @@
 
 # 耽美小说网 - 最热门的耽美小说在线阅读
 
-更新时间：2026-09-06 03:34:40
+更新时间：2026-09-07 03:35:49
 
 耽美小说网是一个广大书友喜欢的小说网，免费为您提供热门耽美小说、女生小说、都市言情小说无弹窗在线阅读和txt下载。
 
 - [耽美小说网](https://www.nvwagen.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.nvwagen.com/book/8u4j8cb/)
 - [和八个男人在极寒游戏求生](https://www.nvwagen.com/book/8u4j8c4/)
 - [在年代文里跑运输](https://www.nvwagen.com/book/8u4j512/)
 - [死遁APP](https://www.nvwagen.com/book/8u4j511/)
@@ -154,6 +153,7 @@
 - [我有一座安全城](https://www.nvwagen.com/book/8u4e3e5/)
 - [在民俗惊悚片被诸神庇护](https://www.nvwagen.com/book/8u4e3dp/)
 - [[娱乐圈]过分美丽的她](https://www.nvwagen.com/book/8u4e3ab/)
+- [老公对不起](https://www.nvwagen.com/book/8u4e36c/)
 - [日化人生[科研]](https://www.nvwagen.com/book/8u4e35d/)
 - [原配夫人](https://www.nvwagen.com/book/8u4e32a/)
 - [清澈女大的六零年代](https://www.nvwagen.com/book/8u4e2uq/)
@@ -170,7 +170,6 @@
 - [[封神]圣人生欲](https://www.nvwagen.com/book/8u4e1vi/)
 - [我是唯一地上神国](https://www.nvwagen.com/book/8u4e1tr/)
 - [五十年代港城日常](https://www.nvwagen.com/book/8u4e1te/)
-- [九零首富的替嫁小媳妇](https://www.nvwagen.com/book/8u4e1r9/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1402/index.md)

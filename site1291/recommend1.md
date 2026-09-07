@@ -1,7 +1,7 @@
 
 # 笔趣阁啦 - 免费小说阅读网
 
-更新时间：2026-09-06 03:36:27
+更新时间：2026-09-07 03:37:36
 
 笔趣阁啦为您提供海量免费小说资源，在线畅读各类热门小说及最新章节更新，支持手机电脑等多种设备访问，让阅读更轻松便捷。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.qingyuchun.com/book/10578mk/)
-- [揣崽丧夫后被情敌强娶了](https://www.qingyuchun.com/book/10578mj/)
 - [禁止继承限制级雌君](https://www.qingyuchun.com/book/10578mi/)
 - [万人嫌从末世回来了](https://www.qingyuchun.com/book/10578mh/)
 - [好心的俄罗斯人](https://www.qingyuchun.com/book/10578mg/)
@@ -85,7 +84,6 @@
 - [我们生活玩家是这样的](https://www.qingyuchun.com/book/10578j6/)
 - [我司艺人永不塌房](https://www.qingyuchun.com/book/10578hr/)
 - [[封神]圣人生欲](https://www.qingyuchun.com/book/10578eh/)
-- [九零首富的替嫁小媳妇](https://www.qingyuchun.com/book/10578ea/)
 - [始乱终弃清冷首辅后](https://www.qingyuchun.com/book/10578e6/)
 - [星际团宠小人鱼](https://www.qingyuchun.com/book/10578e2/)
 - [原配夫人](https://www.qingyuchun.com/book/10578do/)
@@ -98,6 +96,7 @@
 - [路人攻了主角攻［快穿］](https://www.qingyuchun.com/book/10576u5/)
 - [昭暮](https://www.qingyuchun.com/book/1056tbq/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.qingyuchun.com/book/1056hi7/)
+- [老公对不起](https://www.qingyuchun.com/book/1055qo9/)
 - [上个鬼班[无限]](https://www.qingyuchun.com/book/1055ia9/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.qingyuchun.com/book/1055h0e/)
 - [[足球]足坛人生模拟器](https://www.qingyuchun.com/book/1055ct5/)

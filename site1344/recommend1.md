@@ -1,14 +1,13 @@
 
 # 国威御林小说_国威御林小说小说在线阅读
 
-更新时间：2026-09-06 03:27:53
+更新时间：2026-09-07 03:29:00
 
 国威御林小说是拥有海量的完结全本小说作品, 提供热门小说排行榜免费在线阅读, 每日更新言情、都市、穿越、青春、悬疑等作品连载。
 
 - [国威御林小说](https://www.guoweiyulin.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.guoweiyulin.com/book/360q2i2/)
 - [和八个男人在极寒游戏求生](https://www.guoweiyulin.com/book/360q2i1/)
 - [万人嫌从末世回来了](https://www.guoweiyulin.com/book/360q2hv/)
 - [[全职高手]治疗什么的不干了！](https://www.guoweiyulin.com/book/360q2hu/)
@@ -108,7 +107,6 @@
 - [我与龙傲天寿命共享](https://www.guoweiyulin.com/book/360np24/)
 - [如何正确哄睡暴君](https://www.guoweiyulin.com/book/360nl2q/)
 - [怀了前任大哥的崽后](https://www.guoweiyulin.com/book/360ngi1/)
-- [九零首富的替嫁小媳妇](https://www.guoweiyulin.com/book/360ng1g/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.guoweiyulin.com/book/360ne1p/)
 - [沈助理又在隐藏他的超能力](https://www.guoweiyulin.com/book/360nc2h/)
 - [被天使之王骗婚后[诡秘之主]](https://www.guoweiyulin.com/book/360nb97/)
@@ -163,6 +161,7 @@
 - [巨物致富：回乡开钓场](https://www.guoweiyulin.com/book/360kgju/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.guoweiyulin.com/book/360kgjd/)
 - [五十年代港城日常](https://www.guoweiyulin.com/book/360kgd9/)
+- [老公对不起](https://www.guoweiyulin.com/book/360kg6i/)
 - [我是唯一地上神国](https://www.guoweiyulin.com/book/360kfv7/)
 - [海岛求生：生活玩家种田囤货](https://www.guoweiyulin.com/book/360kfuu/)
 - [我有一座安全城](https://www.guoweiyulin.com/book/360kfs6/)

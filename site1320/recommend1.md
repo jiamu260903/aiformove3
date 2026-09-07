@@ -1,7 +1,7 @@
 
 # 故事文学网 - 精彩小说尽在其中
 
-更新时间：2026-09-06 03:28:08
+更新时间：2026-09-07 03:29:15
 
 故事文学网是一个专注于小说创作与阅读的网站，汇聚了众多优秀作品，为读者提供精彩的文学体验。欢迎您来到故事文学网，发现阅读的乐趣！
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.gushi1314.com/book/8m9juci/)
-- [揣崽丧夫后被情敌强娶了](https://www.gushi1314.com/book/8m9juch/)
 - [病美人重生日记](https://www.gushi1314.com/book/8m9jucg/)
 - [恐游作精女配求生指南](https://www.gushi1314.com/book/8m9jucf/)
 - [魔尊闭关十年连生十一子？！](https://www.gushi1314.com/book/8m9juce/)
@@ -85,7 +84,6 @@
 - [我们生活玩家是这样的](https://www.gushi1314.com/book/8m9ju6e/)
 - [我司艺人永不塌房](https://www.gushi1314.com/book/8m9ju57/)
 - [[封神]圣人生欲](https://www.gushi1314.com/book/8m9ju4p/)
-- [九零首富的替嫁小媳妇](https://www.gushi1314.com/book/8m9ju3k/)
 - [始乱终弃清冷首辅后](https://www.gushi1314.com/book/8m9ju35/)
 - [原配夫人](https://www.gushi1314.com/book/8m9ju2n/)
 - [十九世纪贵族厨房（美食）](https://www.gushi1314.com/book/8m9ju2m/)
@@ -98,6 +96,7 @@
 - [路人攻了主角攻［快穿］](https://www.gushi1314.com/book/8m9jsj1/)
 - [昭暮](https://www.gushi1314.com/book/8m9jj3h/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.gushi1314.com/book/8m9isu7/)
+- [老公对不起](https://www.gushi1314.com/book/8m9ifpo/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.gushi1314.com/book/8m9icev/)
 - [[足球]足坛人生模拟器](https://www.gushi1314.com/book/8m9ibsa/)
 - [上个鬼班[无限]](https://www.gushi1314.com/book/8m9i70h/)

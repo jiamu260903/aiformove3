@@ -1,7 +1,7 @@
 
 # 湾里早市时间小说网 - 免费小说阅读网_网络小说排行榜_最新小说推荐
 
-更新时间：2026-09-06 03:42:37
+更新时间：2026-09-07 03:43:53
 
 湾里早市时间小说网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。
 
@@ -21,6 +21,7 @@
 - [自知之明](https://www.wlzssj.com/book/4pmfc75/)
 - [清穿女回来后[天幕]](https://www.wlzssj.com/book/4pmfc69/)
 - [等我吃腻了再倒闭可以吗](https://www.wlzssj.com/book/4pmfc5r/)
+- [欲加之罪](https://www.wlzssj.com/book/4pmfc5e/)
 - [穿为龙傲天发妻后](https://www.wlzssj.com/book/4pmfc50/)
 - [全世界名为爱的恶意](https://www.wlzssj.com/book/4pmfc4c/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.wlzssj.com/book/4pmfc3s/)
@@ -71,7 +72,6 @@
 - [五美元在哥谭活一月](https://www.wlzssj.com/book/4pmdm1a/)
 - [躲避原书剧情五年后](https://www.wlzssj.com/book/4pmdljk/)
 - [女装生崽，娃爹宇智波](https://www.wlzssj.com/book/4pmdl8c/)
-- [失而复得的白月光[快穿]](https://www.wlzssj.com/book/4pmdkvc/)
 - [我当县令那些年](https://www.wlzssj.com/book/4pmdk38/)
 - [暗堕本丸，在线直播](https://www.wlzssj.com/book/4pmdjf1/)
 - [优质攻不做恋爱脑[快穿]](https://www.wlzssj.com/book/4pmdjdu/)
@@ -398,7 +398,6 @@
 - [放开那个黑暗哨兵！](https://www.wlzssj.com/book/4pmc44l/)
 - [普通高中生，但兼职咒术师](https://www.wlzssj.com/book/4pmc3pb/)
 - [我靠玛丽苏系统伪装神女](https://www.wlzssj.com/book/4pmc3mg/)
-- [被阴湿坏女人缠上后](https://www.wlzssj.com/book/4pmc3hn/)
 - [国舅太难追了](https://www.wlzssj.com/book/4pmc3a7/)
 - [高冷影后逼我标记她](https://www.wlzssj.com/book/4pmc39l/)
 - [让我再吃一口](https://www.wlzssj.com/book/4pmc34a/)
@@ -431,7 +430,6 @@
 - [矩阵干扰](https://www.wlzssj.com/book/4pmbr24/)
 - [法外狂猫](https://www.wlzssj.com/book/4pmbq55/)
 - [欢迎来到重生点](https://www.wlzssj.com/book/4pmbq0k/)
-- [盛夏晴浓](https://www.wlzssj.com/book/4pmbpdk/)
 - [好兄弟暴富后非要跟我结婚](https://www.wlzssj.com/book/4pmbni3/)
 - [我，剑圣，养生中，勿扰](https://www.wlzssj.com/book/4pmbl2g/)
 - [和室友他爸恋爱后](https://www.wlzssj.com/book/4pmbkp5/)
@@ -443,7 +441,6 @@
 - [自大狂](https://www.wlzssj.com/book/4pmba2o/)
 - [暴君偏头痛](https://www.wlzssj.com/book/4pmb2on/)
 - [你，后室管理员](https://www.wlzssj.com/book/4pma0ue/)
-- [纯爱宇智波基本恋爱法](https://www.wlzssj.com/book/4pma04q/)
 - [高调装神，猥琐发育](https://www.wlzssj.com/book/4pma045/)
 - [[封神]圣人生欲](https://www.wlzssj.com/book/4pm9vuc/)
 - [误入反派培养直播后](https://www.wlzssj.com/book/4pm9va0/)

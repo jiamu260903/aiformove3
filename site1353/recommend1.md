@@ -1,7 +1,7 @@
 
 # 书社1687小说免费-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-09-06 03:38:52
+更新时间：2026-09-07 03:40:02
 
 书社1687小说免费提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏书社1687小说，享受便捷的小说阅读体验。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.shushe1687.com/book/489h9hr/)
-- [揣崽丧夫后被情敌强娶了](https://www.shushe1687.com/book/489h9hq/)
 - [好心的俄罗斯人](https://www.shushe1687.com/book/489h9ho/)
 - [末世八年春，游戏降临](https://www.shushe1687.com/book/489h9hn/)
 - [[综英美]哥谭市民，在线抽卡](https://www.shushe1687.com/book/489h9hi/)
@@ -104,7 +103,6 @@
 - [我骗家里的钱养你啊](https://www.shushe1687.com/book/489eutr/)
 - [死遁的亡夫们都回来了](https://www.shushe1687.com/book/489eum7/)
 - [怀了前任大哥的崽后](https://www.shushe1687.com/book/489eu6o/)
-- [九零首富的替嫁小媳妇](https://www.shushe1687.com/book/489esk7/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.shushe1687.com/book/489esfk/)
 - [沈助理又在隐藏他的超能力](https://www.shushe1687.com/book/489em6a/)
 - [死对头又在挑衅我](https://www.shushe1687.com/book/489eler/)
@@ -156,6 +154,7 @@
 - [成为养成系练习生后](https://www.shushe1687.com/book/489bocp/)
 - [我有一座安全城](https://www.shushe1687.com/book/489bo57/)
 - [清澈女大的六零年代](https://www.shushe1687.com/book/489bnub/)
+- [老公对不起](https://www.shushe1687.com/book/489bnqi/)
 - [我是唯一地上神国](https://www.shushe1687.com/book/489bnog/)
 - [海岛求生：生活玩家种田囤货](https://www.shushe1687.com/book/489bnll/)
 - [95美国贵族高中模拟](https://www.shushe1687.com/book/489bnev/)

@@ -1,7 +1,7 @@
 
 # 看剧文学网 - 书友最值得收藏的小说阅读网
 
-更新时间：2026-09-06 03:30:54
+更新时间：2026-09-07 03:32:01
 
 看剧文学网，精选最好看的小说推荐给大家在线阅读。这里有网络小说大全，包括最火、最热门的小说最新章节，是书友最值得收藏的免费小说阅读网。
 
@@ -9,6 +9,7 @@
 
 ## 最新小说
 - [[综英美]和亲友群穿哥谭以后](https://www.kanju788.com/book/to4ujf/)
+- [欲加之罪](https://www.kanju788.com/book/to4uj7/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.kanju788.com/book/to4uj6/)
 - [清穿女回来后[天幕]](https://www.kanju788.com/book/to4uiu/)
 - [等我吃腻了再倒闭可以吗](https://www.kanju788.com/book/to4ui9/)
@@ -87,7 +88,6 @@
 - [我被一个古人教会了爱情](https://www.kanju788.com/book/to2sak/)
 - [逃生游戏[无限]](https://www.kanju788.com/book/to2saa/)
 - [被马甲团宠的我开启地狱模式](https://www.kanju788.com/book/to2rs3/)
-- [失而复得的白月光[快穿]](https://www.kanju788.com/book/to2rl7/)
 - [反派真少爷搞了个抱错综艺后[穿书]](https://www.kanju788.com/book/to2rjk/)
 - [这个迫嫁我愿意的](https://www.kanju788.com/book/to2rat/)
 - [满级后我的外挂到账了[全息]](https://www.kanju788.com/book/to2r2f/)
@@ -404,7 +404,6 @@
 - [神之子与排球的适配性](https://www.kanju788.com/book/to1fpl/)
 - [救命！猫尾巴藏不住了](https://www.kanju788.com/book/to1fld/)
 - [举朝上下为我的神仙人设头疼中](https://www.kanju788.com/book/to1fgp/)
-- [被阴湿坏女人缠上后](https://www.kanju788.com/book/to1ffg/)
 - [癫骨](https://www.kanju788.com/book/to1feu/)
 - [青空来信](https://www.kanju788.com/book/to1fe1/)
 - [青山不渡](https://www.kanju788.com/book/to1fab/)
@@ -423,7 +422,6 @@
 - [求生游戏：当邪神成为生活玩家后](https://www.kanju788.com/book/to18jh/)
 - [刀子精手心的人偶崽崽](https://www.kanju788.com/book/to18f3/)
 - [幼崽假少爷选择回归寒门](https://www.kanju788.com/book/to13lj/)
-- [盛夏晴浓](https://www.kanju788.com/book/to12nf/)
 - [[足球]小小鸟堂堂来袭](https://www.kanju788.com/book/to12el/)
 - [青城玩家明明超强却过分谨慎](https://www.kanju788.com/book/to114t/)
 - [欢迎来到重生点](https://www.kanju788.com/book/to10vl/)
@@ -438,7 +436,6 @@
 - [关于我虚构了一个男友这件事](https://www.kanju788.com/book/to0oig/)
 - [我，剑圣，养生中，勿扰](https://www.kanju788.com/book/to0nug/)
 - [和室友他爸恋爱后](https://www.kanju788.com/book/to0imn/)
-- [纯爱宇智波基本恋爱法](https://www.kanju788.com/book/tnvcdv/)
 - [阴郁路人不想被喜欢](https://www.kanju788.com/book/tnvbms/)
 - [直男咒术师的限制级游戏](https://www.kanju788.com/book/tnvb1d/)
 - [京秋婚约](https://www.kanju788.com/book/tnvat3/)
