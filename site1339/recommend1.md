@@ -1,14 +1,13 @@
 
 # 三哥小说网 - 最热门的免费小说阅读平台
 
-更新时间：2026-09-06 03:42:22
+更新时间：2026-09-07 03:43:37
 
 三哥小说网致力于为读者提供一个无广告无弹窗的在线小说阅读环境，涵盖玄幻、网游、言情、穿越及都市等多种类型的小说资源，支持全本小说在线阅读与最新章节更新。
 
 - [三哥小说网](https://www.wkntmcb.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.wkntmcb.com/book/48j2f1k/)
 - [和八个男人在极寒游戏求生](https://www.wkntmcb.com/book/48j2f1j/)
 - [国师](https://www.wkntmcb.com/book/48j2f1i/)
 - [失忆后和死对头有了崽](https://www.wkntmcb.com/book/48j2f1h/)
@@ -108,7 +107,6 @@
 - [我与龙傲天寿命共享](https://www.wkntmcb.com/book/48j06vj/)
 - [如何正确哄睡暴君](https://www.wkntmcb.com/book/48j036u/)
 - [怀了前任大哥的崽后](https://www.wkntmcb.com/book/48ivu4e/)
-- [九零首富的替嫁小媳妇](https://www.wkntmcb.com/book/48ivth2/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.wkntmcb.com/book/48ivqiv/)
 - [被天使之王骗婚后[诡秘之主]](https://www.wkntmcb.com/book/48ivooe/)
 - [死对头又在挑衅我](https://www.wkntmcb.com/book/48ivom9/)
@@ -162,6 +160,7 @@
 - [清澈女大的六零年代](https://www.wkntmcb.com/book/48istan/)
 - [95美国贵族高中模拟](https://www.wkntmcb.com/book/48istaj/)
 - [六零之成了卷王的妹妹](https://www.wkntmcb.com/book/48ist96/)
+- [老公对不起](https://www.wkntmcb.com/book/48ist5m/)
 - [高门小婢](https://www.wkntmcb.com/book/48issub/)
 - [巨物致富：回乡开钓场](https://www.wkntmcb.com/book/48issh3/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.wkntmcb.com/book/48issdk/)

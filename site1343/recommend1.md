@@ -1,14 +1,13 @@
 
 # 左叶小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-09-06 03:35:11
+更新时间：2026-09-07 03:36:20
 
 左叶小说网为读者提供了一个丰富多样的小说阅读体验，汇集了各类热门、经典以及新作小说资源，是书友们寻找好书的理想之地。
 
 - [左叶小说网](https://www.pusytgp.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.pusytgp.com/book/7pbovhk/)
 - [和八个男人在极寒游戏求生](https://www.pusytgp.com/book/7pbovhj/)
 - [双生子反派的端水抑郁妈[九零]](https://www.pusytgp.com/book/7pbovhh/)
 - [前妻她肯定会后悔](https://www.pusytgp.com/book/7pbovhe/)
@@ -107,7 +106,6 @@
 - [摄政王家的咸鱼夫郎](https://www.pusytgp.com/book/7pbmq4p/)
 - [我与龙傲天寿命共享](https://www.pusytgp.com/book/7pbmnka/)
 - [如何正确哄睡暴君](https://www.pusytgp.com/book/7pbmkpg/)
-- [九零首富的替嫁小媳妇](https://www.pusytgp.com/book/7pbmdh9/)
 - [怀了前任大哥的崽后](https://www.pusytgp.com/book/7pbmdam/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.pusytgp.com/book/7pbmb49/)
 - [沈助理又在隐藏他的超能力](https://www.pusytgp.com/book/7pbm95b/)
@@ -156,6 +154,7 @@
 - [爱好和平但狂拆机甲](https://www.pusytgp.com/book/7pbka6r/)
 - [95美国贵族高中模拟](https://www.pusytgp.com/book/7pbjebn/)
 - [[娱乐圈]过分美丽的她](https://www.pusytgp.com/book/7pbjebb/)
+- [老公对不起](https://www.pusytgp.com/book/7pbje2q/)
 - [海岛求生：生活玩家种田囤货](https://www.pusytgp.com/book/7pbje2o/)
 - [日化人生[科研]](https://www.pusytgp.com/book/7pbjdvq/)
 - [大瑛弟国](https://www.pusytgp.com/book/7pbjdv0/)

@@ -1,14 +1,13 @@
 
 # 新华 MBA雷火小说网 - 最新最全的小说阅读平台
 
-更新时间：2026-09-06 03:43:53
+更新时间：2026-09-07 03:45:11
 
 新华 MBA雷火小说网提供海量正版小说资源，在线免费阅读最新热门小说，支持手机电脑多端同步阅读，是书友们值得收藏的优质小说阅读网站。
 
 - [新华MBA雷火小说网](https://www.xhmba.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.xhmba.com/book/7mj2bk6/)
 - [和八个男人在极寒游戏求生](https://www.xhmba.com/book/7mj2bj8/)
 - [谁都不爱的和亲公主](https://www.xhmba.com/book/7mj27ir/)
 - [恐游里的邻居们[万人迷]](https://www.xhmba.com/book/7mj27ij/)
@@ -75,6 +74,7 @@
 - [上个鬼班[无限]](https://www.xhmba.com/book/7mj1tpl/)
 - [让暴君Alpha怀崽后](https://www.xhmba.com/book/7mj1st6/)
 - [在卷王和废物之间选择做吉祥物](https://www.xhmba.com/book/7mj1o8c/)
+- [老公对不起](https://www.xhmba.com/book/7mj1o63/)
 - [完蛋！被恨孕男包围了！](https://www.xhmba.com/book/7mj1nnf/)
 - [昭暮](https://www.xhmba.com/book/7mj1gd4/)
 - [从维多利亚时代开始](https://www.xhmba.com/book/7mj1fli/)
@@ -154,7 +154,6 @@
 - [95美国贵族高中模拟](https://www.xhmba.com/book/7mit9be/)
 - [我有一座安全城](https://www.xhmba.com/book/7mit97t/)
 - [十九世纪贵族厨房（美食）](https://www.xhmba.com/book/7mit95e/)
-- [九零首富的替嫁小媳妇](https://www.xhmba.com/book/7mit94a/)
 - [海岛求生：生活玩家种田囤货](https://www.xhmba.com/book/7mit913/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.xhmba.com/book/7mit90p/)
 - [星际团宠小人鱼](https://www.xhmba.com/book/7mit8o9/)

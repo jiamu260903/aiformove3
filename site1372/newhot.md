@@ -1,7 +1,7 @@
 
 # 落秋文学网 - 免费全本小说阅读,最新章节更新,无弹窗广告
 
-更新时间：2026-09-06 03:42:07
+更新时间：2026-09-07 03:43:22
 
 落秋文学网提供最快最新的网络小说更新服务，推荐最好看的网络小说排行榜。全站支持无弹窗广告阅读体验，全本小说均可免费在线阅读。
 
@@ -10,6 +10,7 @@
 ## 最新小说
 - [清穿女回来后[天幕]](https://www.wenxue868.com/book/rlcn7t/)
 - [禁止继承限制级雌君](https://www.wenxue868.com/book/rlcn7h/)
+- [欲加之罪](https://www.wenxue868.com/book/rlcn74/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.wenxue868.com/book/rlcn57/)
 - [这个替嫁让我来！](https://www.wenxue868.com/book/rlcn54/)
 - [等我吃腻了再倒闭可以吗](https://www.wenxue868.com/book/rlcn4t/)
@@ -85,7 +86,6 @@
 - [逃生游戏[无限]](https://www.wenxue868.com/book/rlale2/)
 - [恐惧玫瑰](https://www.wenxue868.com/book/rlakfo/)
 - [被马甲团宠的我开启地狱模式](https://www.wenxue868.com/book/rlak8f/)
-- [失而复得的白月光[快穿]](https://www.wenxue868.com/book/rlak3k/)
 - [反派真少爷搞了个抱错综艺后[穿书]](https://www.wenxue868.com/book/rlajrh/)
 - [[足球]听克圣的话，成了米兰金童](https://www.wenxue868.com/book/rlajkv/)
 - [期春思](https://www.wenxue868.com/book/rlajce/)
@@ -399,7 +399,6 @@
 - [救命！猫尾巴藏不住了](https://www.wenxue868.com/book/rl98gi/)
 - [青山不渡](https://www.wenxue868.com/book/rl98f9/)
 - [无能的丈夫们](https://www.wenxue868.com/book/rl98eo/)
-- [被阴湿坏女人缠上后](https://www.wenxue868.com/book/rl98cg/)
 - [请问夫君你哪位](https://www.wenxue868.com/book/rl97mm/)
 - [国舅太难追了](https://www.wenxue868.com/book/rl97lu/)
 - [咒术师，但队友是侦探](https://www.wenxue868.com/book/rl97l1/)
@@ -424,7 +423,6 @@
 - [刀子精手心的人偶崽崽](https://www.wenxue868.com/book/rl91cd/)
 - [[足球]小小鸟堂堂来袭](https://www.wenxue868.com/book/rl8t64/)
 - [幼崽假少爷选择回归寒门](https://www.wenxue868.com/book/rl8rr4/)
-- [盛夏晴浓](https://www.wenxue868.com/book/rl8r09/)
 - [青城玩家明明超强却过分谨慎](https://www.wenxue868.com/book/rl8qra/)
 - [好巧，你也是妹控？[综崩铁]](https://www.wenxue868.com/book/rl8p96/)
 - [欢迎来到重生点](https://www.wenxue868.com/book/rl8olc/)
@@ -441,7 +439,6 @@
 - [阴郁路人不想被喜欢](https://www.wenxue868.com/book/rl74j0/)
 - [直男咒术师的限制级游戏](https://www.wenxue868.com/book/rl7471/)
 - [京秋婚约](https://www.wenxue868.com/book/rl73tu/)
-- [纯爱宇智波基本恋爱法](https://www.wenxue868.com/book/rl73ni/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1372/index.md)

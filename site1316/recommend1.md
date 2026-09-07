@@ -1,14 +1,13 @@
 
 # 创意小说网 - 最热门的小说在线阅读
 
-更新时间：2026-09-06 03:24:57
+更新时间：2026-09-07 03:26:04
 
 创意小说网是一个广大书友喜欢的小说网，免费为您提供热门小说无弹窗在线阅读和txt下载。
 
 - [创意小说网](https://www.chuangyi1687.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.chuangyi1687.com/book/1hvgp2k/)
 - [和八个男人在极寒游戏求生](https://www.chuangyi1687.com/book/1hvgp2j/)
 - [双生子反派的端水抑郁妈[九零]](https://www.chuangyi1687.com/book/1hvgp2i/)
 - [夫人每天都在伪装](https://www.chuangyi1687.com/book/1hvgp2h/)
@@ -89,7 +88,6 @@
 - [原配夫人](https://www.chuangyi1687.com/book/1hvgoq2/)
 - [星际团宠小人鱼](https://www.chuangyi1687.com/book/1hvgopt/)
 - [始乱终弃清冷首辅后](https://www.chuangyi1687.com/book/1hvgoov/)
-- [九零首富的替嫁小媳妇](https://www.chuangyi1687.com/book/1hvgook/)
 - [高调装神，猥琐发育](https://www.chuangyi1687.com/book/1hvgooe/)
 - [假少爷离开后](https://www.chuangyi1687.com/book/1hvgood/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.chuangyi1687.com/book/1hvgoo9/)
@@ -98,6 +96,7 @@
 - [路人攻了主角攻［快穿］](https://www.chuangyi1687.com/book/1hvgn8t/)
 - [昭暮](https://www.chuangyi1687.com/book/1hvgdml/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.chuangyi1687.com/book/1hvg1gu/)
+- [老公对不起](https://www.chuangyi1687.com/book/1hvfapp/)
 - [上个鬼班[无限]](https://www.chuangyi1687.com/book/1hvf8kb/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.chuangyi1687.com/book/1hvf6d2/)
 - [[足球]足坛人生模拟器](https://www.chuangyi1687.com/book/1hvev9k/)

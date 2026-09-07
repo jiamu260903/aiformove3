@@ -1,7 +1,7 @@
 
 # 奇幻笔趣屋 - 书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-06 03:35:57
+更新时间：2026-09-07 03:37:05
 
 奇幻笔趣屋收录整理最新最全的热门网络小说，提供所有小说首发最新章节免费阅读服务，是书友们最值得收藏的小说阅读网站。
 
@@ -9,6 +9,7 @@
 
 ## 最新小说
 - [等我吃腻了再倒闭可以吗](https://www.qihuan958.com/book/4rau0ur/)
+- [欲加之罪](https://www.qihuan958.com/book/4rau0um/)
 - [自知之明](https://www.qihuan958.com/book/4rau0uk/)
 - [这个替嫁让我来！](https://www.qihuan958.com/book/4rau0uj/)
 - [清穿女回来后[天幕]](https://www.qihuan958.com/book/4rau0ud/)
@@ -82,7 +83,6 @@
 - [我有一座城](https://www.qihuan958.com/book/4ras0vd/)
 - [超A奶龙饲养指南](https://www.qihuan958.com/book/4rarvk7/)
 - [[综英美]flash小游戏，哥谭出品](https://www.qihuan958.com/book/4rarvbt/)
-- [失而复得的白月光[快穿]](https://www.qihuan958.com/book/4rarv5i/)
 - [满级后我的外挂到账了[全息]](https://www.qihuan958.com/book/4rarv0b/)
 - [逃生游戏[无限]](https://www.qihuan958.com/book/4raruec/)
 - [被马甲团宠的我开启地狱模式](https://www.qihuan958.com/book/4raru25/)
@@ -416,14 +416,12 @@
 - [神之子与排球的适配性](https://www.qihuan958.com/book/4raqgos/)
 - [末世山居日常](https://www.qihuan958.com/book/4raqgnb/)
 - [青山不渡](https://www.qihuan958.com/book/4raqgi4/)
-- [被阴湿坏女人缠上后](https://www.qihuan958.com/book/4raqggr/)
 - [我靠玛丽苏系统伪装神女](https://www.qihuan958.com/book/4raqgdl/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.qihuan958.com/book/4raqdft/)
 - [我最讨厌打球了！](https://www.qihuan958.com/book/4raqbtn/)
 - [刀子精手心的人偶崽崽](https://www.qihuan958.com/book/4raqbf6/)
 - [求生游戏：当邪神成为生活玩家后](https://www.qihuan958.com/book/4raqaj7/)
 - [幼崽假少爷选择回归寒门](https://www.qihuan958.com/book/4raq74h/)
-- [盛夏晴浓](https://www.qihuan958.com/book/4raq64f/)
 - [[足球]小小鸟堂堂来袭](https://www.qihuan958.com/book/4raq4r5/)
 - [青城玩家明明超强却过分谨慎](https://www.qihuan958.com/book/4raq4gd/)
 - [好巧，你也是妹控？[综崩铁]](https://www.qihuan958.com/book/4raq431/)
@@ -440,7 +438,6 @@
 - [和室友他爸恋爱后](https://www.qihuan958.com/book/4raplr7/)
 - [直男咒术师的限制级游戏](https://www.qihuan958.com/book/4raof4l/)
 - [阴郁路人不想被喜欢](https://www.qihuan958.com/book/4raoedu/)
-- [纯爱宇智波基本恋爱法](https://www.qihuan958.com/book/4raod64/)
 - [京秋婚约](https://www.qihuan958.com/book/4raoct7/)
 ## 相关内容
 - [README](/README.md)

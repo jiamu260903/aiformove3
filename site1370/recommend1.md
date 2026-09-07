@@ -1,7 +1,7 @@
 
 # 燃文故事小说网 - 无弹窗全本小说免费阅读
 
-更新时间：2026-09-06 03:28:26
+更新时间：2026-09-07 03:29:33
 
 燃文故事小说网提供无弹窗干扰的小说阅读体验，支持全本小说在线免费阅读。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.gushi687.com/book/63qvddf/)
-- [揣崽丧夫后被情敌强娶了](https://www.gushi687.com/book/63qvdde/)
 - [恐游作精女配求生指南](https://www.gushi687.com/book/63qvddd/)
 - [[洪荒]成为太清妹妹后](https://www.gushi687.com/book/63qvdd9/)
 - [魔法种田，从退队经营农场开始](https://www.gushi687.com/book/63qvdd7/)
@@ -103,7 +102,6 @@
 - [如何正确哄睡暴君](https://www.gushi687.com/book/63qt77t/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.gushi687.com/book/63qt2cm/)
 - [我骗家里的钱养你啊](https://www.gushi687.com/book/63qt1pp/)
-- [九零首富的替嫁小媳妇](https://www.gushi687.com/book/63qt1kk/)
 - [死遁的亡夫们都回来了](https://www.gushi687.com/book/63qt0ni/)
 - [怀了前任大哥的崽后](https://www.gushi687.com/book/63qt0ho/)
 - [在民俗惊悚片被诸神庇护](https://www.gushi687.com/book/63qson5/)
@@ -167,6 +165,7 @@
 - [海岛求生：生活玩家种田囤货](https://www.gushi687.com/book/63qpq56/)
 - [五十年代港城日常](https://www.gushi687.com/book/63qppp5/)
 - [[娱乐圈]过分美丽的她](https://www.gushi687.com/book/63qpp9q/)
+- [老公对不起](https://www.gushi687.com/book/63qpp5n/)
 - [日化人生[科研]](https://www.gushi687.com/book/63qpp58/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.gushi687.com/book/63qpp3o/)
 - [清澈女大的六零年代](https://www.gushi687.com/book/63qpp24/)

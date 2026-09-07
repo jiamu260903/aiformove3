@@ -1,7 +1,7 @@
 
 # 科幻188文学网-最新章节全文小说免费阅读
 
-更新时间：2026-09-06 03:31:26
+更新时间：2026-09-07 03:32:34
 
 科幻188文学网给广大网友提供最好的小说阅读服务，全站小说均可免费阅读且无任何弹窗干扰。这里是你寻找最新最全小说内容的理想之地。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.kehuan188.com/book/56q39i3/)
-- [揣崽丧夫后被情敌强娶了](https://www.kehuan188.com/book/56q39i2/)
 - [病美人重生日记](https://www.kehuan188.com/book/56q39hv/)
 - [魔尊闭关十年连生十一子？！](https://www.kehuan188.com/book/56q39hu/)
 - [好心的俄罗斯人](https://www.kehuan188.com/book/56q39hl/)
@@ -101,7 +100,6 @@
 - [社畜Beta也能被顶A觊觎吗](https://www.kehuan188.com/book/56q15dv/)
 - [让你们无剧本可走（快穿）](https://www.kehuan188.com/book/56q15bo/)
 - [如何正确哄睡暴君](https://www.kehuan188.com/book/56q133p/)
-- [九零首富的替嫁小媳妇](https://www.kehuan188.com/book/56q0u8u/)
 - [我骗家里的钱养你啊](https://www.kehuan188.com/book/56q0t7p/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.kehuan188.com/book/56q0t0q/)
 - [怀了前任大哥的崽后](https://www.kehuan188.com/book/56q0ssm/)
@@ -171,6 +169,7 @@
 - [日化人生[科研]](https://www.kehuan188.com/book/56ptlfu/)
 - [大瑛弟国](https://www.kehuan188.com/book/56ptl9q/)
 - [高门小婢](https://www.kehuan188.com/book/56ptl7f/)
+- [老公对不起](https://www.kehuan188.com/book/56ptl72/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1366/index.md)

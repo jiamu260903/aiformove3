@@ -1,14 +1,13 @@
 
 # 看书小说网 - 全本完结小说免费阅读, 最新章节更新最快, 网络小说排行榜
 
-更新时间：2026-09-06 03:31:09
+更新时间：2026-09-07 03:32:17
 
 看书小说网提供全本完结小说免费阅读服务，包括但不限于言情小说等类型。网站内所有小说均可免费阅读且无任何弹窗广告干扰。这里汇集了最好看的网络小说，同时保证了最新章节的快速更新。
 
 - [看书小说网](https://www.kanshu666.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.kanshu666.com/book/8jv7ign/)
 - [和八个男人在极寒游戏求生](https://www.kanshu666.com/book/8jv7igm/)
 - [烈火焚身[巴黎圣母院]](https://www.kanshu666.com/book/8jv7igl/)
 - [咦？我爸爸复活啦](https://www.kanshu666.com/book/8jv7igk/)
@@ -87,7 +86,6 @@
 - [十九世纪贵族厨房（美食）](https://www.kanshu666.com/book/8jv7i8q/)
 - [[封神]圣人生欲](https://www.kanshu666.com/book/8jv7i8c/)
 - [原配夫人](https://www.kanshu666.com/book/8jv7i80/)
-- [九零首富的替嫁小媳妇](https://www.kanshu666.com/book/8jv7i7v/)
 - [星际团宠小人鱼](https://www.kanshu666.com/book/8jv7i7j/)
 - [始乱终弃清冷首辅后](https://www.kanshu666.com/book/8jv7i71/)
 - [高调装神，猥琐发育](https://www.kanshu666.com/book/8jv7i6h/)
@@ -98,6 +96,7 @@
 - [路人攻了主角攻［快穿］](https://www.kanshu666.com/book/8jv7gp8/)
 - [昭暮](https://www.kanshu666.com/book/8jv7774/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.kanshu666.com/book/8jv6r7p/)
+- [老公对不起](https://www.kanshu666.com/book/8jv64hl/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.kanshu666.com/book/8jv5l9q/)
 - [上个鬼班[无限]](https://www.kanshu666.com/book/8jv5iaa/)
 - [[足球]足坛人生模拟器](https://www.kanshu666.com/book/8jv5hh2/)

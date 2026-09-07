@@ -1,7 +1,7 @@
 
 # 阅读大文学 - 弘扬华夏文化的综合小说阅读平台
 
-更新时间：2026-09-06 03:46:00
+更新时间：2026-09-07 03:47:18
 
 阅读大文学致力于弘扬华夏文化，提供丰富的小说资源供免费阅读，涵盖但不限于古典文学、现代文学、当代文学及各类流行小说如言情、都市、玄幻等。
 
@@ -14,6 +14,7 @@
 - [自知之明](https://www.yuedu188.com/book/1egribt/)
 - [[综英美]和亲友群穿哥谭以后](https://www.yuedu188.com/book/1egribh/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.yuedu188.com/book/1egriak/)
+- [欲加之罪](https://www.yuedu188.com/book/1egriai/)
 - [穿为龙傲天发妻后](https://www.yuedu188.com/book/1egriag/)
 - [等我吃腻了再倒闭可以吗](https://www.yuedu188.com/book/1egria0/)
 - [清穿女回来后[天幕]](https://www.yuedu188.com/book/1egri9u/)
@@ -92,7 +93,6 @@
 - [逃荒[快穿]](https://www.yuedu188.com/book/1egpegv/)
 - [反派真少爷搞了个抱错综艺后[穿书]](https://www.yuedu188.com/book/1egpecf/)
 - [我被一个古人教会了爱情](https://www.yuedu188.com/book/1egpe5j/)
-- [失而复得的白月光[快穿]](https://www.yuedu188.com/book/1egpduf/)
 - [全世界都靠我吃瓜](https://www.yuedu188.com/book/1egpdnj/)
 - [七零年代闺蜜团的奋斗](https://www.yuedu188.com/book/1egpd9u/)
 - [嗲精人设走偏啦［穿书］](https://www.yuedu188.com/book/1egpcns/)
@@ -401,7 +401,6 @@
 - [小狗向导，世界瑰宝！](https://www.yuedu188.com/book/4ktv5a/)
 - [穿成影后的作死前妻](https://www.yuedu188.com/book/4ktv58/)
 - [虫族治愈师，但恐虫](https://www.yuedu188.com/book/4ktuvo/)
-- [被阴湿坏女人缠上后](https://www.yuedu188.com/book/4ktuv9/)
 - [青山不渡](https://www.yuedu188.com/book/4ktuup/)
 - [[足球]罗蜜第一志愿](https://www.yuedu188.com/book/4ktush/)
 - [救命！猫尾巴藏不住了](https://www.yuedu188.com/book/4ktupg/)
@@ -424,7 +423,6 @@
 - [求生游戏：当邪神成为生活玩家后](https://www.yuedu188.com/book/4ktooo/)
 - [自大狂](https://www.yuedu188.com/book/4ktjqd/)
 - [暴君偏头痛](https://www.yuedu188.com/book/4ktice/)
-- [盛夏晴浓](https://www.yuedu188.com/book/4kti5i/)
 - [[足球]小小鸟堂堂来袭](https://www.yuedu188.com/book/4kth6v/)
 - [欢迎来到重生点](https://www.yuedu188.com/book/4kth47/)
 - [青城玩家明明超强却过分谨慎](https://www.yuedu188.com/book/4ktg3i/)
@@ -439,7 +437,6 @@
 - [我，剑圣，养生中，勿扰](https://www.yuedu188.com/book/4kt78v/)
 - [和室友他爸恋爱后](https://www.yuedu188.com/book/4kt0bl/)
 - [阴郁路人不想被喜欢](https://www.yuedu188.com/book/esfb8/)
-- [纯爱宇智波基本恋爱法](https://www.yuedu188.com/book/eseba/)
 - [京秋婚约](https://www.yuedu188.com/book/ese5c/)
 - [直男咒术师的限制级游戏](https://www.yuedu188.com/book/ese05/)
 ## 相关内容
