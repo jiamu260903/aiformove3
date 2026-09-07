@@ -1,18 +1,20 @@
 
 # 小顽童寻书网-最热门的免费小说阅读平台|全本玄幻言情网游穿越都市小说在线阅读
 
-更新时间：2026-09-06 03:44:58
+更新时间：2026-09-07 03:46:16
 
 小顽童寻书网提供一个无广告、无弹窗干扰的环境，让您享受纯净的小说阅读体验。涵盖玄幻、网游、言情、穿越、都市等多种类型的小说资源，在这里可以找到最新的章节更新以及完整的书籍内容。
 
 - [小顽童寻书网](https://www.xwt999.com/)
 
 ## 最新小说
+- [我超凶的！[快穿]](https://www.xwt999.com/book/1u5nnck/)
 - [我比反派先崩坏[快穿]](https://www.xwt999.com/book/1u5nmfr/)
 - [cos温迪后玩到真崩铁了](https://www.xwt999.com/book/1u5ni3h/)
 - [躲避原书剧情五年后](https://www.xwt999.com/book/1u5nhvq/)
 - [自知之明](https://www.xwt999.com/book/1u5nhr0/)
 - [清穿女回来后[天幕]](https://www.xwt999.com/book/1u5nhqt/)
+- [欲加之罪](https://www.xwt999.com/book/1u5nhqp/)
 - [穿为龙傲天发妻后](https://www.xwt999.com/book/1u5nhq4/)
 - [禁止继承限制级雌君](https://www.xwt999.com/book/1u5nhor/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.xwt999.com/book/1u5nhof/)
@@ -157,7 +159,6 @@
 - [[综英美]让我统治哥谭！！！](https://www.xwt999.com/book/1u5lekc/)
 - [沈助理又在隐藏他的超能力](https://www.xwt999.com/book/1u5leil/)
 - [万人迷总被入侵角色觊觎[快穿]](https://www.xwt999.com/book/1u5le8n/)
-- [就算是龙傲天也不可以[快穿]](https://www.xwt999.com/book/1u5le8l/)
 - [普通人的乙女RPG[西幻]](https://www.xwt999.com/book/1u5le6h/)
 - [忍界有文学](https://www.xwt999.com/book/1u5le1s/)
 - [和室友他爸恋爱后](https://www.xwt999.com/book/1u5ldp3/)
@@ -411,7 +412,6 @@
 - [无能的丈夫们](https://www.xwt999.com/book/1u5kjl7/)
 - [每天都在和太宰互换身体](https://www.xwt999.com/book/1u5kjib/)
 - [顶流他姐有神豪系统](https://www.xwt999.com/book/1u5kjd6/)
-- [被阴湿坏女人缠上后](https://www.xwt999.com/book/1u5kj91/)
 - [神之子与排球的适配性](https://www.xwt999.com/book/1u5kj15/)
 - [青城玩家明明超强却过分谨慎](https://www.xwt999.com/book/1u5kimp/)
 - [癫骨](https://www.xwt999.com/book/1u5kilr/)
@@ -427,7 +427,6 @@
 - [好巧，你也是妹控？[综崩铁]](https://www.xwt999.com/book/1u5kgm6/)
 - [李玉灯](https://www.xwt999.com/book/1u5kgg6/)
 - [等我吃腻了再倒闭可以吗](https://www.xwt999.com/book/1u5keds/)
-- [盛夏晴浓](https://www.xwt999.com/book/1u5kcs1/)
 - [[综英美]和亲友群穿哥谭以后](https://www.xwt999.com/book/1u5kc17/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.xwt999.com/book/1u5k9oh/)
 - [自大狂](https://www.xwt999.com/book/1u5k1jt/)
@@ -435,7 +434,6 @@
 - [丧尸老婆喂养日记](https://www.xwt999.com/book/1u5jhj4/)
 - [被四皇错看成小动物后](https://www.xwt999.com/book/1u5ih1k/)
 - [高调装神，猥琐发育](https://www.xwt999.com/book/1u5igkh/)
-- [纯爱宇智波基本恋爱法](https://www.xwt999.com/book/1u5igfk/)
 - [你，后室管理员](https://www.xwt999.com/book/1u5igd7/)
 - [误入反派培养直播后](https://www.xwt999.com/book/1u5ig7j/)
 - [[封神]圣人生欲](https://www.xwt999.com/book/1u5ierl/)

@@ -1,7 +1,7 @@
 
 # 书香小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-06 03:39:21
+更新时间：2026-09-07 03:40:32
 
 书香小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。
 
@@ -15,6 +15,7 @@
 - [［综英美］蝙蝠崽？我不是啊！](https://www.shuxiang368.com/book/3qko7sk/)
 - [自知之明](https://www.shuxiang368.com/book/3qko7ro/)
 - [穿为龙傲天发妻后](https://www.shuxiang368.com/book/3qko7rd/)
+- [欲加之罪](https://www.shuxiang368.com/book/3qko7qk/)
 - [禁止继承限制级雌君](https://www.shuxiang368.com/book/3qko7pk/)
 - [等我吃腻了再倒闭可以吗](https://www.shuxiang368.com/book/3qko7oq/)
 - [修仙界都为我神魂颠倒](https://www.shuxiang368.com/book/3qko5or/)
@@ -89,7 +90,6 @@
 - [反派真少爷搞了个抱错综艺后[穿书]](https://www.shuxiang368.com/book/3qkm55a/)
 - [恐惧玫瑰](https://www.shuxiang368.com/book/3qkm4vb/)
 - [满级后我的外挂到账了[全息]](https://www.shuxiang368.com/book/3qkm4go/)
-- [失而复得的白月光[快穿]](https://www.shuxiang368.com/book/3qkm4fc/)
 - [我被一个古人教会了爱情](https://www.shuxiang368.com/book/3qkm4d2/)
 - [期春思](https://www.shuxiang368.com/book/3qkm3pu/)
 - [被马甲团宠的我开启地狱模式](https://www.shuxiang368.com/book/3qkm3pc/)
@@ -394,7 +394,6 @@
 - [失忆后，和五条激情互演](https://www.shuxiang368.com/book/3qkkps3/)
 - [司寝宫女](https://www.shuxiang368.com/book/3qkkps1/)
 - [让我再吃一口](https://www.shuxiang368.com/book/3qkkpr9/)
-- [被阴湿坏女人缠上后](https://www.shuxiang368.com/book/3qkkpqh/)
 - [每天都在和太宰互换身体](https://www.shuxiang368.com/book/3qkkpon/)
 - [高冷影后逼我标记她](https://www.shuxiang368.com/book/3qkkp3g/)
 - [癫骨](https://www.shuxiang368.com/book/3qkkovv/)
@@ -422,7 +421,6 @@
 - [我最讨厌打球了！](https://www.shuxiang368.com/book/3qkkj6b/)
 - [求生游戏：当邪神成为生活玩家后](https://www.shuxiang368.com/book/3qkkj40/)
 - [刀子精手心的人偶崽崽](https://www.shuxiang368.com/book/3qkkij4/)
-- [盛夏晴浓](https://www.shuxiang368.com/book/3qkke1p/)
 - [幼崽假少爷选择回归寒门](https://www.shuxiang368.com/book/3qkkdml/)
 - [[足球]小小鸟堂堂来袭](https://www.shuxiang368.com/book/3qkkcov/)
 - [好巧，你也是妹控？[综崩铁]](https://www.shuxiang368.com/book/3qkkapc/)
@@ -441,7 +439,6 @@
 - [阴郁路人不想被喜欢](https://www.shuxiang368.com/book/3qkimqb/)
 - [京秋婚约](https://www.shuxiang368.com/book/3qkima0/)
 - [直男咒术师的限制级游戏](https://www.shuxiang368.com/book/3qkilev/)
-- [纯爱宇智波基本恋爱法](https://www.shuxiang368.com/book/3qkil3u/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1357/index.md)

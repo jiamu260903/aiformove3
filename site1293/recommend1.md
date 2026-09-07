@@ -1,14 +1,13 @@
 
 # 速阅阁小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-09-06 03:24:39
+更新时间：2026-09-07 03:25:46
 
 速阅阁小说网为您提供最新、最全的网络小说资源，在线阅读无限制，支持多种格式下载，打造书友们最爱的小说阅读体验。
 
 - [速阅阁小说网](https://www.ccccenergy.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.ccccenergy.com/book/7car6cl/)
 - [和八个男人在极寒游戏求生](https://www.ccccenergy.com/book/7car6ck/)
 - [星露谷，但日本战国](https://www.ccccenergy.com/book/7car6cj/)
 - [恐游里的邻居们[万人迷]](https://www.ccccenergy.com/book/7car6ci/)
@@ -89,7 +88,6 @@
 - [始乱终弃清冷首辅后](https://www.ccccenergy.com/book/7car63q/)
 - [星际团宠小人鱼](https://www.ccccenergy.com/book/7car63c/)
 - [十九世纪贵族厨房（美食）](https://www.ccccenergy.com/book/7car633/)
-- [九零首富的替嫁小媳妇](https://www.ccccenergy.com/book/7car630/)
 - [高调装神，猥琐发育](https://www.ccccenergy.com/book/7car62g/)
 - [假少爷离开后](https://www.ccccenergy.com/book/7car62e/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.ccccenergy.com/book/7car5vf/)
@@ -98,6 +96,7 @@
 - [路人攻了主角攻［快穿］](https://www.ccccenergy.com/book/7car4jc/)
 - [昭暮](https://www.ccccenergy.com/book/7caqr3e/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.ccccenergy.com/book/7caq5i1/)
+- [老公对不起](https://www.ccccenergy.com/book/7capnpu/)
 - [[足球]足坛人生模拟器](https://www.ccccenergy.com/book/7capjhh/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.ccccenergy.com/book/7capi8k/)
 - [上个鬼班[无限]](https://www.ccccenergy.com/book/7capakr/)

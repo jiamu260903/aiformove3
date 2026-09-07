@@ -1,7 +1,7 @@
 
 # 棉花糖小说网-最好的免费小说阅读网站
 
-更新时间：2026-09-06 03:33:05
+更新时间：2026-09-07 03:34:13
 
 棉花糖小说网提供当前最火热的小说资源，支持免费在线阅读及TXT格式下载，致力于为读者带来优质的阅读体验。
 
@@ -19,13 +19,13 @@
 - [禁止继承限制级雌君](https://www.littlemissribbon.com/book/5asij2s/)
 - [同时扮演贵族学院F4和平民校花](https://www.littlemissribbon.com/book/5asij2q/)
 - [清穿女回来后[天幕]](https://www.littlemissribbon.com/book/5asij2p/)
+- [欲加之罪](https://www.littlemissribbon.com/book/5asij2l/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.littlemissribbon.com/book/5asij2g/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.littlemissribbon.com/book/5asij2f/)
 - [[足球]小小鸟堂堂来袭](https://www.littlemissribbon.com/book/5asij2d/)
 - [渡鬼](https://www.littlemissribbon.com/book/5asij0c/)
 - [暴君偏头痛](https://www.littlemissribbon.com/book/5asiivt/)
 - [青城玩家明明超强却过分谨慎](https://www.littlemissribbon.com/book/5asiiv9/)
-- [失而复得的白月光[快穿]](https://www.littlemissribbon.com/book/5asiius/)
 - [[综英美]让我统治哥谭！！！](https://www.littlemissribbon.com/book/5asiiud/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.littlemissribbon.com/book/5asiiu3/)
 - [躲避原书剧情五年后](https://www.littlemissribbon.com/book/5asiite/)
@@ -34,7 +34,6 @@
 - [你，后室管理员](https://www.littlemissribbon.com/book/5asiir2/)
 - [高调装神，猥琐发育](https://www.littlemissribbon.com/book/5asiiqh/)
 - [京秋婚约](https://www.littlemissribbon.com/book/5asiipn/)
-- [纯爱宇智波基本恋爱法](https://www.littlemissribbon.com/book/5asiiob/)
 - [阴郁路人不想被喜欢](https://www.littlemissribbon.com/book/5asiinm/)
 - [直男咒术师的限制级游戏](https://www.littlemissribbon.com/book/5asiilt/)
 - [求生游戏：当邪神成为生活玩家后](https://www.littlemissribbon.com/book/5asiil8/)
@@ -405,7 +404,6 @@
 - [作家与读者](https://www.littlemissribbon.com/book/h2ssu4/)
 - [当了卧底的我发现遍地熟人](https://www.littlemissribbon.com/book/h2ssph/)
 - [神之子与排球的适配性](https://www.littlemissribbon.com/book/h2ssmt/)
-- [被阴湿坏女人缠上后](https://www.littlemissribbon.com/book/h2ssag/)
 - [虫族治愈师，但恐虫](https://www.littlemissribbon.com/book/h2sqsl/)
 - [隔壁班的松田君](https://www.littlemissribbon.com/book/h2sqps/)
 - [你也没死？](https://www.littlemissribbon.com/book/h2so2t/)

@@ -1,7 +1,7 @@
 
 # 读者电子书-全本TXT小说免费下载,最新全集小说阅读
 
-更新时间：2026-09-06 03:26:19
+更新时间：2026-09-07 03:27:25
 
 读者电子书提供全本TXT小说下载及完整版电子书下载服务，涵盖各类最新最全的小说资源，支持手机等多终端阅读。每日更新，满足您的阅读需求。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.duzhe368.com/book/3hfvb7j/)
-- [揣崽丧夫后被情敌强娶了](https://www.duzhe368.com/book/3hfvb7i/)
 - [漫画取材所引发的修罗场](https://www.duzhe368.com/book/3hfvb7f/)
 - [二次分化后他怀了死对头的崽](https://www.duzhe368.com/book/3hfvb7d/)
 - [暗恋的价格是三万块](https://www.duzhe368.com/book/3hfvb7c/)
@@ -102,7 +101,6 @@
 - [社畜Beta也能被顶A觊觎吗](https://www.duzhe368.com/book/3hft714/)
 - [如何正确哄睡暴君](https://www.duzhe368.com/book/3hft43q/)
 - [怀了前任大哥的崽后](https://www.duzhe368.com/book/3hft0gh/)
-- [九零首富的替嫁小媳妇](https://www.duzhe368.com/book/3hfsvvc/)
 - [我骗家里的钱养你啊](https://www.duzhe368.com/book/3hfsvhu/)
 - [死遁的亡夫们都回来了](https://www.duzhe368.com/book/3hfsukn/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.duzhe368.com/book/3hfsu05/)
@@ -160,6 +158,7 @@
 - [大瑛弟国](https://www.duzhe368.com/book/3hfpp62/)
 - [95美国贵族高中模拟](https://www.duzhe368.com/book/3hfpp5l/)
 - [六零之成了卷王的妹妹](https://www.duzhe368.com/book/3hfpp3i/)
+- [老公对不起](https://www.duzhe368.com/book/3hfpor6/)
 - [我有一座安全城](https://www.duzhe368.com/book/3hfpoio/)
 - [巨物致富：回乡开钓场](https://www.duzhe368.com/book/3hfpoei/)
 - [成为养成系练习生后](https://www.duzhe368.com/book/3hfpoe0/)

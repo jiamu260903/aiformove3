@@ -1,7 +1,7 @@
 
 # 七步阁-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-09-06 03:36:45
+更新时间：2026-09-07 03:37:53
 
 七步阁提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏七步阁，享受便捷的小说阅读体验。
 
@@ -17,6 +17,7 @@
 - [等我吃腻了再倒闭可以吗](https://www.revwarny.com/book/3sgl7rp/)
 - [自知之明](https://www.revwarny.com/book/3sgl7rn/)
 - [禁止继承限制级雌君](https://www.revwarny.com/book/3sgl7rc/)
+- [欲加之罪](https://www.revwarny.com/book/3sgl7r2/)
 - [[足球]小小鸟堂堂来袭](https://www.revwarny.com/book/3sgl7qv/)
 - [清穿女回来后[天幕]](https://www.revwarny.com/book/3sgl7qn/)
 - [穿为龙傲天发妻后](https://www.revwarny.com/book/3sgl7qk/)
@@ -28,14 +29,12 @@
 - [渡鬼](https://www.revwarny.com/book/3sgl7ok/)
 - [暴君偏头痛](https://www.revwarny.com/book/3sgl7nk/)
 - [躲避原书剧情五年后](https://www.revwarny.com/book/3sgl7ni/)
-- [失而复得的白月光[快穿]](https://www.revwarny.com/book/3sgl7ne/)
 - [[封神]圣人生欲](https://www.revwarny.com/book/3sgl7k8/)
 - [你，后室管理员](https://www.revwarny.com/book/3sgl7j5/)
 - [被四皇错看成小动物后](https://www.revwarny.com/book/3sgl7ij/)
 - [高调装神，猥琐发育](https://www.revwarny.com/book/3sgl7ih/)
 - [直男咒术师的限制级游戏](https://www.revwarny.com/book/3sgl7hr/)
 - [阴郁路人不想被喜欢](https://www.revwarny.com/book/3sgl7hg/)
-- [纯爱宇智波基本恋爱法](https://www.revwarny.com/book/3sgl7go/)
 - [京秋婚约](https://www.revwarny.com/book/3sgl7eg/)
 - [求生游戏：当邪神成为生活玩家后](https://www.revwarny.com/book/3sgl7d8/)
 - [昭暮](https://www.revwarny.com/book/3sgksji/)
@@ -403,7 +402,6 @@
 - [失忆后，和五条激情互演](https://www.revwarny.com/book/cegc24/)
 - [救命！猫尾巴藏不住了](https://www.revwarny.com/book/cegc19/)
 - [宇智波的遗产](https://www.revwarny.com/book/cegbuf/)
-- [被阴湿坏女人缠上后](https://www.revwarny.com/book/cegbu6/)
 - [虫族治愈师，但恐虫](https://www.revwarny.com/book/cegbov/)
 - [隔壁班的松田君](https://www.revwarny.com/book/cega3e/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.revwarny.com/book/ceg9o4/)

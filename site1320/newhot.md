@@ -1,7 +1,7 @@
 
 # 故事文学网 - 精彩小说尽在其中
 
-更新时间：2026-09-06 03:28:08
+更新时间：2026-09-07 03:29:15
 
 故事文学网是一个专注于小说创作与阅读的网站，汇聚了众多优秀作品，为读者提供精彩的文学体验。欢迎您来到故事文学网，发现阅读的乐趣！
 
@@ -10,6 +10,7 @@
 ## 最新小说
 - [幼崽假少爷选择回归寒门](https://www.gushi1314.com/book/8m9jucj/)
 - [我骗家里的钱养你啊](https://www.gushi1314.com/book/8m9jucd/)
+- [欲加之罪](https://www.gushi1314.com/book/8m9juc7/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.gushi1314.com/book/8m9juc4/)
 - [等我吃腻了再倒闭可以吗](https://www.gushi1314.com/book/8m9juc3/)
 - [禁止继承限制级雌君](https://www.gushi1314.com/book/8m9jubs/)
@@ -22,7 +23,6 @@
 - [清穿女回来后[天幕]](https://www.gushi1314.com/book/8m9juar/)
 - [自知之明](https://www.gushi1314.com/book/8m9juab/)
 - [同时扮演贵族学院F4和平民校花](https://www.gushi1314.com/book/8m9jua8/)
-- [失而复得的白月光[快穿]](https://www.gushi1314.com/book/8m9ju92/)
 - [[综英美]让我统治哥谭！！！](https://www.gushi1314.com/book/8m9ju8l/)
 - [暴君偏头痛](https://www.gushi1314.com/book/8m9ju7f/)
 - [躲避原书剧情五年后](https://www.gushi1314.com/book/8m9ju76/)
@@ -36,7 +36,6 @@
 - [直男咒术师的限制级游戏](https://www.gushi1314.com/book/8m9ju1p/)
 - [京秋婚约](https://www.gushi1314.com/book/8m9jtvc/)
 - [阴郁路人不想被喜欢](https://www.gushi1314.com/book/8m9jtv0/)
-- [纯爱宇智波基本恋爱法](https://www.gushi1314.com/book/8m9jtta/)
 - [求生游戏：当邪神成为生活玩家后](https://www.gushi1314.com/book/8m9jtt4/)
 - [昭暮](https://www.gushi1314.com/book/8m9jj3h/)
 - [修仙界都为我神魂颠倒](https://www.gushi1314.com/book/8m9j7s2/)
@@ -403,7 +402,6 @@
 - [在重男兄弟间夹缝求生](https://www.gushi1314.com/book/rqje05/)
 - [普通高中生，但兼职咒术师](https://www.gushi1314.com/book/rqjdtk/)
 - [当了卧底的我发现遍地熟人](https://www.gushi1314.com/book/rqjds0/)
-- [被阴湿坏女人缠上后](https://www.gushi1314.com/book/rqjdr5/)
 - [忍界观察日记](https://www.gushi1314.com/book/rqjdfl/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.gushi1314.com/book/rqjcv8/)
 - [这谁的沙雕二次元心声！](https://www.gushi1314.com/book/rqj9pb/)

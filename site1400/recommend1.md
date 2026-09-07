@@ -1,14 +1,13 @@
 
 # 都来读小说网 - 免费电子书阅读平台
 
-更新时间：2026-09-06 03:39:50
+更新时间：2026-09-07 03:41:02
 
 都来读小说网提供快速更新的海量免费小说资源，主要以TXT格式为主，致力于为读者带来优质的阅读体验。
 
 - [都来读小说网](https://www.swazs.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.swazs.com/book/1u7kmcg/)
 - [和八个男人在极寒游戏求生](https://www.swazs.com/book/1u7km9b/)
 - [我们小区穿末世](https://www.swazs.com/book/1u7kiv2/)
 - [夫人每天都在伪装](https://www.swazs.com/book/1u7kiv1/)
@@ -166,8 +165,8 @@
 - [卷王后妈，八零养娃](https://www.swazs.com/book/1u7fg9v/)
 - [[封神]圣人生欲](https://www.swazs.com/book/1u7fg6j/)
 - [十九世纪贵族厨房（美食）](https://www.swazs.com/book/1u7fg5k/)
-- [九零首富的替嫁小媳妇](https://www.swazs.com/book/1u7fg1a/)
 - [巨物致富：回乡开钓场](https://www.swazs.com/book/1u7ffvg/)
+- [老公对不起](https://www.swazs.com/book/1u7ffuk/)
 - [成为养成系练习生后](https://www.swazs.com/book/1u7fftb/)
 - [高调装神，猥琐发育](https://www.swazs.com/book/1u7fft4/)
 - [大瑛弟国](https://www.swazs.com/book/1u7ffko/)

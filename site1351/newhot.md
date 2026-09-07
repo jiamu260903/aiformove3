@@ -1,7 +1,7 @@
 
 # 泡泡中文小说-无弹窗书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-06 03:44:25
+更新时间：2026-09-07 03:45:43
 
 泡泡中文小说是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
@@ -11,6 +11,7 @@
 - [清穿女回来后[天幕]](https://www.xiaoshuo288.com/book/dm3vch/)
 - [全世界名为爱的恶意](https://www.xiaoshuo288.com/book/dm3vcg/)
 - [等我吃腻了再倒闭可以吗](https://www.xiaoshuo288.com/book/dm3vc5/)
+- [欲加之罪](https://www.xiaoshuo288.com/book/dm3vbg/)
 - [这个替嫁让我来！](https://www.xiaoshuo288.com/book/dm3vbb/)
 - [禁止继承限制级雌君](https://www.xiaoshuo288.com/book/dm3vba/)
 - [穿为龙傲天发妻后](https://www.xiaoshuo288.com/book/dm3vav/)
@@ -86,7 +87,6 @@
 - [[足球]听克圣的话，成了米兰金童](https://www.xiaoshuo288.com/book/dm1t1v/)
 - [恐惧玫瑰](https://www.xiaoshuo288.com/book/dm1t1a/)
 - [这个迫嫁我愿意的](https://www.xiaoshuo288.com/book/dm1s6c/)
-- [失而复得的白月光[快穿]](https://www.xiaoshuo288.com/book/dm1rqr/)
 - [逃生游戏[无限]](https://www.xiaoshuo288.com/book/dm1rle/)
 - [满级后我的外挂到账了[全息]](https://www.xiaoshuo288.com/book/dm1rkq/)
 - [逃荒[快穿]](https://www.xiaoshuo288.com/book/dm1rgf/)
@@ -402,7 +402,6 @@
 - [救命！猫尾巴藏不住了](https://www.xiaoshuo288.com/book/dm0gvb/)
 - [我靠玛丽苏系统伪装神女](https://www.xiaoshuo288.com/book/dm0gs0/)
 - [国舅太难追了](https://www.xiaoshuo288.com/book/dm0gl4/)
-- [被阴湿坏女人缠上后](https://www.xiaoshuo288.com/book/dm0gho/)
 - [穿成影后的作死前妻](https://www.xiaoshuo288.com/book/dm0ggm/)
 - [让我再吃一口](https://www.xiaoshuo288.com/book/dm0ge3/)
 - [举朝上下为我的神仙人设头疼中](https://www.xiaoshuo288.com/book/dm0fpd/)
@@ -422,7 +421,6 @@
 - [求生游戏：当邪神成为生活玩家后](https://www.xiaoshuo288.com/book/dm0b7t/)
 - [我最讨厌打球了！](https://www.xiaoshuo288.com/book/dm09rc/)
 - [刀子精手心的人偶崽崽](https://www.xiaoshuo288.com/book/dm0950/)
-- [盛夏晴浓](https://www.xiaoshuo288.com/book/dm051m/)
 - [幼崽假少爷选择回归寒门](https://www.xiaoshuo288.com/book/dm04sq/)
 - [[足球]小小鸟堂堂来袭](https://www.xiaoshuo288.com/book/dm03uc/)
 - [青城玩家明明超强却过分谨慎](https://www.xiaoshuo288.com/book/dm01s4/)
@@ -441,7 +439,6 @@
 - [京秋婚约](https://www.xiaoshuo288.com/book/dludu4/)
 - [阴郁路人不想被喜欢](https://www.xiaoshuo288.com/book/dlucq7/)
 - [直男咒术师的限制级游戏](https://www.xiaoshuo288.com/book/dlucec/)
-- [纯爱宇智波基本恋爱法](https://www.xiaoshuo288.com/book/dlucak/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1351/index.md)

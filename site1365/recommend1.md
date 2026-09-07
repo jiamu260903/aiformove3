@@ -1,14 +1,13 @@
 
 # 书城读书网_免费小说在线阅读|无弹窗广告
 
-更新时间：2026-09-06 03:38:05
+更新时间：2026-09-07 03:39:14
 
 书城读书网是最热门的免费小说网站，提供包括玄幻、都市、言情等多种类型的小说在线阅读服务。这里不仅有最新章节的实时更新，还有全面的小说排行榜，让您轻松找到喜欢的作品。阅读体验极佳，全程无弹窗广告干扰，值得收藏！
 
 - [书城读书网](https://www.shucheng168.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.shucheng168.com/book/47fpabq/)
 - [和八个男人在极寒游戏求生](https://www.shucheng168.com/book/47fpabp/)
 - [失忆后和死对头有了崽](https://www.shucheng168.com/book/47fpabm/)
 - [[综英美]和亲友群穿哥谭以后](https://www.shucheng168.com/book/47fpabg/)
@@ -103,7 +102,6 @@
 - [如何正确哄睡暴君](https://www.shucheng168.com/book/47fn5j0/)
 - [怀了前任大哥的崽后](https://www.shucheng168.com/book/47fmvlp/)
 - [我骗家里的钱养你啊](https://www.shucheng168.com/book/47fmuuq/)
-- [九零首富的替嫁小媳妇](https://www.shucheng168.com/book/47fmugt/)
 - [死遁的亡夫们都回来了](https://www.shucheng168.com/book/47fmtom/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.shucheng168.com/book/47fmtkq/)
 - [在民俗惊悚片被诸神庇护](https://www.shucheng168.com/book/47fmlvc/)
@@ -153,6 +151,7 @@
 - [恶犬攻绑定上司的乖狗系统](https://www.shucheng168.com/book/47fksqr/)
 - [权宋一只统](https://www.shucheng168.com/book/47fkq9t/)
 - [爱好和平但狂拆机甲](https://www.shucheng168.com/book/47fkm99/)
+- [老公对不起](https://www.shucheng168.com/book/47fjp6a/)
 - [直男咒术师的限制级游戏](https://www.shucheng168.com/book/47fjonv/)
 - [成为养成系练习生后](https://www.shucheng168.com/book/47fjomf/)
 - [大瑛弟国](https://www.shucheng168.com/book/47fjoj0/)

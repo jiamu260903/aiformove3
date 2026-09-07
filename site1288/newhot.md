@@ -1,7 +1,7 @@
 
 # 读读窝小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-06 03:40:33
+更新时间：2026-09-07 03:41:47
 
 读读窝小说网提供最新最全的网络小说在线阅读服务，是广大书友寻找优质书籍、享受阅读乐趣的理想选择。
 
@@ -9,6 +9,7 @@
 
 ## 最新小说
 - [幼崽假少爷选择回归寒门](https://www.tiananfoundry.com/book/1ol4n2j/)
+- [欲加之罪](https://www.tiananfoundry.com/book/1ol4n2e/)
 - [禁止继承限制级雌君](https://www.tiananfoundry.com/book/1ol4n2a/)
 - [咦？我爸爸复活啦](https://www.tiananfoundry.com/book/1ol4n25/)
 - [我骗家里的钱养你啊](https://www.tiananfoundry.com/book/1ol4n1u/)
@@ -24,7 +25,6 @@
 - [全世界名为爱的恶意](https://www.tiananfoundry.com/book/1ol4n08/)
 - [暴君偏头痛](https://www.tiananfoundry.com/book/1ol4mun/)
 - [青城玩家明明超强却过分谨慎](https://www.tiananfoundry.com/book/1ol4mu1/)
-- [失而复得的白月光[快穿]](https://www.tiananfoundry.com/book/1ol4mtn/)
 - [渡鬼](https://www.tiananfoundry.com/book/1ol4msi/)
 - [躲避原书剧情五年后](https://www.tiananfoundry.com/book/1ol4mrr/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.tiananfoundry.com/book/1ol4mro/)
@@ -34,7 +34,6 @@
 - [被四皇错看成小动物后](https://www.tiananfoundry.com/book/1ol4mpu/)
 - [高调装神，猥琐发育](https://www.tiananfoundry.com/book/1ol4moe/)
 - [京秋婚约](https://www.tiananfoundry.com/book/1ol4mo3/)
-- [纯爱宇智波基本恋爱法](https://www.tiananfoundry.com/book/1ol4mnj/)
 - [直男咒术师的限制级游戏](https://www.tiananfoundry.com/book/1ol4mn6/)
 - [阴郁路人不想被喜欢](https://www.tiananfoundry.com/book/1ol4mjj/)
 - [求生游戏：当邪神成为生活玩家后](https://www.tiananfoundry.com/book/1ol4mj5/)
@@ -402,7 +401,6 @@
 - [癫骨](https://www.tiananfoundry.com/book/5lbg9e/)
 - [神之子与排球的适配性](https://www.tiananfoundry.com/book/5lbg88/)
 - [虫族治愈师，但恐虫](https://www.tiananfoundry.com/book/5lbfvm/)
-- [被阴湿坏女人缠上后](https://www.tiananfoundry.com/book/5lbfqi/)
 - [顶流他姐有神豪系统](https://www.tiananfoundry.com/book/5lbfit/)
 - [请问夫君你哪位](https://www.tiananfoundry.com/book/5lbfik/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.tiananfoundry.com/book/5lbdn5/)

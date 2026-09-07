@@ -1,7 +1,7 @@
 
 # 笔趣阁_书友最值得收藏的网络小说阅读网_新笔趣阁5200
 
-更新时间：2026-09-06 03:30:21
+更新时间：2026-09-07 03:31:28
 
 笔趣阁是广大书友最值得收藏的网络小说阅读网，新笔趣阁网站收录了当前最火热的网络小说，笔趣阁5200免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
@@ -11,6 +11,7 @@
 - [幼崽假少爷选择回归寒门](https://www.kangrunwangye.com/book/1o9mgan/)
 - [咦？我爸爸复活啦](https://www.kangrunwangye.com/book/1o9mgai/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.kangrunwangye.com/book/1o9mgae/)
+- [欲加之罪](https://www.kangrunwangye.com/book/1o9mg9v/)
 - [全世界名为爱的恶意](https://www.kangrunwangye.com/book/1o9mg9u/)
 - [清穿女回来后[天幕]](https://www.kangrunwangye.com/book/1o9mg9o/)
 - [穿为龙傲天发妻后](https://www.kangrunwangye.com/book/1o9mg9n/)
@@ -22,7 +23,6 @@
 - [[崩铁]请给玩家一个准确的血条！](https://www.kangrunwangye.com/book/1o9mg8j/)
 - [[综英美]和亲友群穿哥谭以后](https://www.kangrunwangye.com/book/1o9mg8g/)
 - [等我吃腻了再倒闭可以吗](https://www.kangrunwangye.com/book/1o9mg8e/)
-- [失而复得的白月光[快穿]](https://www.kangrunwangye.com/book/1o9mg79/)
 - [躲避原书剧情五年后](https://www.kangrunwangye.com/book/1o9mg78/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.kangrunwangye.com/book/1o9mg6m/)
 - [[综英美]让我统治哥谭！！！](https://www.kangrunwangye.com/book/1o9mg57/)
@@ -33,7 +33,6 @@
 - [你，后室管理员](https://www.kangrunwangye.com/book/1o9mg0v/)
 - [[封神]圣人生欲](https://www.kangrunwangye.com/book/1o9mg0m/)
 - [高调装神，猥琐发育](https://www.kangrunwangye.com/book/1o9mg0i/)
-- [纯爱宇智波基本恋爱法](https://www.kangrunwangye.com/book/1o9mftb/)
 - [京秋婚约](https://www.kangrunwangye.com/book/1o9mft6/)
 - [阴郁路人不想被喜欢](https://www.kangrunwangye.com/book/1o9mfrp/)
 - [直男咒术师的限制级游戏](https://www.kangrunwangye.com/book/1o9mfri/)
@@ -405,7 +404,6 @@
 - [无能的丈夫们](https://www.kangrunwangye.com/book/5k6r7p/)
 - [神之子与排球的适配性](https://www.kangrunwangye.com/book/5k6r2v/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.kangrunwangye.com/book/5k6qq4/)
-- [被阴湿坏女人缠上后](https://www.kangrunwangye.com/book/5k6qlg/)
 - [作家与读者](https://www.kangrunwangye.com/book/5k6qgc/)
 - [[足球]在比利时我们只玩天赋](https://www.kangrunwangye.com/book/5k6qfn/)
 - [你也没死？](https://www.kangrunwangye.com/book/5k6pqj/)

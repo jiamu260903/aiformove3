@@ -1,7 +1,7 @@
 
 # 灌南华侨小说网笔趣阁_书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-06 03:27:37
+更新时间：2026-09-07 03:28:44
 
 灌南华侨小说网笔趣阁海量免费小说在线阅读平台，汇聚玄幻、都市、言情、科幻、悬疑等全品类热门小说，实时更新全网爆款佳作。无广告干扰，支持缓存离线看，让你随时随地沉浸阅读世界，找书看书就来笔趣阁，满足你的所有阅读渴望。
 
@@ -9,6 +9,7 @@
 
 ## 最新小说
 - [穿为龙傲天发妻后](https://www.gnhqbs.com/book/1cqms3j/)
+- [欲加之罪](https://www.gnhqbs.com/book/1cqms37/)
 - [清穿女回来后[天幕]](https://www.gnhqbs.com/book/1cqms2n/)
 - [等我吃腻了再倒闭可以吗](https://www.gnhqbs.com/book/1cqms2c/)
 - [自知之明](https://www.gnhqbs.com/book/1cqms21/)
@@ -54,7 +55,6 @@
 - [我比反派先崩坏[快穿]](https://www.gnhqbs.com/book/1cqm3ps/)
 - [全世界名为爱的恶意](https://www.gnhqbs.com/book/1cqm3im/)
 - [离开那个混蛋后](https://www.gnhqbs.com/book/1cqm38s/)
-- [就算是龙傲天也不可以[快穿]](https://www.gnhqbs.com/book/1cqm2c4/)
 - [豪门养子怀了大哥的崽](https://www.gnhqbs.com/book/1cqm1rr/)
 - [他们非要献上忠诚](https://www.gnhqbs.com/book/1cqlvab/)
 - [直播剧透我是千古一帝](https://www.gnhqbs.com/book/1cqlrhi/)
@@ -78,7 +78,6 @@
 - [女装生崽，娃爹宇智波](https://www.gnhqbs.com/book/1cqkv9t/)
 - [优质攻不做恋爱脑[快穿]](https://www.gnhqbs.com/book/1cqkusl/)
 - [我当县令那些年](https://www.gnhqbs.com/book/1cqku7d/)
-- [失而复得的白月光[快穿]](https://www.gnhqbs.com/book/1cqktgk/)
 - [躲避原书剧情五年后](https://www.gnhqbs.com/book/1cqktdm/)
 - [暗堕本丸，在线直播](https://www.gnhqbs.com/book/1cqkssl/)
 - [五美元在哥谭活一月](https://www.gnhqbs.com/book/1cqksna/)
@@ -417,7 +416,6 @@
 - [请问夫君你哪位](https://www.gnhqbs.com/book/1cqjbn3/)
 - [救命！猫尾巴藏不住了](https://www.gnhqbs.com/book/1cqjbmu/)
 - [神之子与排球的适配性](https://www.gnhqbs.com/book/1cqjbmn/)
-- [被阴湿坏女人缠上后](https://www.gnhqbs.com/book/1cqjbgc/)
 - [让我再吃一口](https://www.gnhqbs.com/book/1cqjbfo/)
 - [某柯学的正义伙伴](https://www.gnhqbs.com/book/1cqjbdr/)
 - [在重男兄弟间夹缝求生](https://www.gnhqbs.com/book/1cqjb97/)
@@ -436,7 +434,6 @@
 - [好巧，你也是妹控？[综崩铁]](https://www.gnhqbs.com/book/1cqj5u4/)
 - [矩阵干扰](https://www.gnhqbs.com/book/1cqj3ri/)
 - [柯学剧本杀，但恋爱流打法](https://www.gnhqbs.com/book/1cqj3k2/)
-- [盛夏晴浓](https://www.gnhqbs.com/book/1cqj3iq/)
 - [法外狂猫](https://www.gnhqbs.com/book/1cqj2qm/)
 - [欢迎来到重生点](https://www.gnhqbs.com/book/1cqj2p0/)
 - [好兄弟暴富后非要跟我结婚](https://www.gnhqbs.com/book/1cqj1km/)
@@ -452,7 +449,6 @@
 - [被四皇错看成小动物后](https://www.gnhqbs.com/book/1cqha72/)
 - [[封神]圣人生欲](https://www.gnhqbs.com/book/1cqha6t/)
 - [高调装神，猥琐发育](https://www.gnhqbs.com/book/1cqh9jg/)
-- [纯爱宇智波基本恋爱法](https://www.gnhqbs.com/book/1cqh83r/)
 - [误入反派培养直播后](https://www.gnhqbs.com/book/1cqh7uj/)
 - [你，后室管理员](https://www.gnhqbs.com/book/1cqh7ij/)
 ## 相关内容

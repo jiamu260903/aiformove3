@@ -1,14 +1,13 @@
 
 # 笔下文学-无广告免费在线小说阅读网站
 
-更新时间：2026-09-06 03:27:07
+更新时间：2026-09-07 03:28:14
 
 笔下文学提供了一个完全免费的小说在线阅读与下载平台。我们承诺给用户一个无广告、无弹窗干扰的阅读环境，让每位读者都能享受纯净舒适的阅读体验。
 
 - [笔下文学](https://www.fshxjd.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.fshxjd.com/book/74i3mtj/)
 - [和八个男人在极寒游戏求生](https://www.fshxjd.com/book/74i3mti/)
 - [烈火焚身[巴黎圣母院]](https://www.fshxjd.com/book/74i3mtc/)
 - [世界伏于她刀下[无限]](https://www.fshxjd.com/book/74i3mtb/)
@@ -108,7 +107,6 @@
 - [我与龙傲天寿命共享](https://www.fshxjd.com/book/74i1dtl/)
 - [如何正确哄睡暴君](https://www.fshxjd.com/book/74i19fl/)
 - [怀了前任大哥的崽后](https://www.fshxjd.com/book/74i14u8/)
-- [九零首富的替嫁小媳妇](https://www.fshxjd.com/book/74i13mv/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.fshxjd.com/book/74i12fe/)
 - [被天使之王骗婚后[诡秘之主]](https://www.fshxjd.com/book/74i0upr/)
 - [沈助理又在隐藏他的超能力](https://www.fshxjd.com/book/74i0uov/)
@@ -165,6 +163,7 @@
 - [日化人生[科研]](https://www.fshxjd.com/book/74hu43o/)
 - [95美国贵族高中模拟](https://www.fshxjd.com/book/74hu41o/)
 - [我有一座安全城](https://www.fshxjd.com/book/74hu3rs/)
+- [老公对不起](https://www.fshxjd.com/book/74hu3no/)
 - [六零之成了卷王的妹妹](https://www.fshxjd.com/book/74hu3kj/)
 - [全民求生:从小木屋到魔法农场](https://www.fshxjd.com/book/74hu3ha/)
 - [我是唯一地上神国](https://www.fshxjd.com/book/74hu3fj/)

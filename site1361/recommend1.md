@@ -1,7 +1,7 @@
 
 # 情感小说-精彩小说推荐网,涵盖言情都市历史科幻等多种类型
 
-更新时间：2026-09-06 03:36:12
+更新时间：2026-09-07 03:37:21
 
 情感小说致力于为广大书友推荐各种类型好看的小说，包括但不限于言情、都市、历史、科幻、灵异、军事、悬疑、玄幻、武侠、末世等。看小说，找小说就上书格格小说推荐网！
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.qinggan1687.com/book/3qc5is6/)
-- [揣崽丧夫后被情敌强娶了](https://www.qinggan1687.com/book/3qc5is5/)
 - [魔咒请说普通话[西幻]](https://www.qinggan1687.com/book/3qc5is4/)
 - [在中世纪做奴隶](https://www.qinggan1687.com/book/3qc5is2/)
 - [娘娘扶摇直上](https://www.qinggan1687.com/book/3qc5is0/)
@@ -102,7 +101,6 @@
 - [摄政王家的咸鱼夫郎](https://www.qinggan1687.com/book/3qc3f3k/)
 - [如何正确哄睡暴君](https://www.qinggan1687.com/book/3qc3c9g/)
 - [死遁的亡夫们都回来了](https://www.qinggan1687.com/book/3qc37c0/)
-- [九零首富的替嫁小媳妇](https://www.qinggan1687.com/book/3qc36so/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.qinggan1687.com/book/3qc3663/)
 - [我骗家里的钱养你啊](https://www.qinggan1687.com/book/3qc35lr/)
 - [怀了前任大哥的崽后](https://www.qinggan1687.com/book/3qc35ef/)
@@ -161,6 +159,7 @@
 - [成为养成系练习生后](https://www.qinggan1687.com/book/3qc00p8/)
 - [95美国贵族高中模拟](https://www.qinggan1687.com/book/3qc00e3/)
 - [直男咒术师的限制级游戏](https://www.qinggan1687.com/book/3qc007n/)
+- [老公对不起](https://www.qinggan1687.com/book/3qc007d/)
 - [[娱乐圈]过分美丽的她](https://www.qinggan1687.com/book/3qbvvrj/)
 - [我是唯一地上神国](https://www.qinggan1687.com/book/3qbvvr4/)
 - [巨物致富：回乡开钓场](https://www.qinggan1687.com/book/3qbvvh9/)

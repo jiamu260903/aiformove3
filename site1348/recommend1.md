@@ -1,7 +1,7 @@
 
 # 看剧文学网 - 书友最值得收藏的小说阅读网
 
-更新时间：2026-09-06 03:30:54
+更新时间：2026-09-07 03:32:01
 
 看剧文学网，精选最好看的小说推荐给大家在线阅读。这里有网络小说大全，包括最火、最热门的小说最新章节，是书友最值得收藏的免费小说阅读网。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.kanju788.com/book/to4ujo/)
-- [揣崽丧夫后被情敌强娶了](https://www.kanju788.com/book/to4ujn/)
 - [全民求生，但剑三](https://www.kanju788.com/book/to4ujm/)
 - [谁都不爱的和亲公主](https://www.kanju788.com/book/to4ujl/)
 - [乖乖女的杂货铺[八零]](https://www.kanju788.com/book/to4ujj/)
@@ -105,7 +104,6 @@
 - [死遁的亡夫们都回来了](https://www.kanju788.com/book/to2jc9/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.kanju788.com/book/to2iug/)
 - [怀了前任大哥的崽后](https://www.kanju788.com/book/to2ih8/)
-- [九零首富的替嫁小媳妇](https://www.kanju788.com/book/to2i6g/)
 - [死对头又在挑衅我](https://www.kanju788.com/book/to293n/)
 - [在民俗惊悚片被诸神庇护](https://www.kanju788.com/book/to292n/)
 - [沈助理又在隐藏他的超能力](https://www.kanju788.com/book/to28i7/)
@@ -171,6 +169,7 @@
 - [95美国贵族高中模拟](https://www.kanju788.com/book/tnvafg/)
 - [全民求生:从小木屋到魔法农场](https://www.kanju788.com/book/tnvaes/)
 - [高门小婢](https://www.kanju788.com/book/tnvae0/)
+- [老公对不起](https://www.kanju788.com/book/tnva98/)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1348/index.md)

@@ -1,7 +1,7 @@
 
 # 看书小说网 - 全本完结小说免费阅读, 最新章节更新最快, 网络小说排行榜
 
-更新时间：2026-09-06 03:31:09
+更新时间：2026-09-07 03:32:17
 
 看书小说网提供全本完结小说免费阅读服务，包括但不限于言情小说等类型。网站内所有小说均可免费阅读且无任何弹窗广告干扰。这里汇集了最好看的网络小说，同时保证了最新章节的快速更新。
 
@@ -14,6 +14,7 @@
 - [[崩铁]请给玩家一个准确的血条！](https://www.kanshu666.com/book/8jv7igd/)
 - [自知之明](https://www.kanshu666.com/book/8jv7igb/)
 - [穿为龙傲天发妻后](https://www.kanshu666.com/book/8jv7ig7/)
+- [欲加之罪](https://www.kanshu666.com/book/8jv7ig1/)
 - [等我吃腻了再倒闭可以吗](https://www.kanshu666.com/book/8jv7ifi/)
 - [清穿女回来后[天幕]](https://www.kanshu666.com/book/8jv7ifd/)
 - [[足球]小小鸟堂堂来袭](https://www.kanshu666.com/book/8jv7ifc/)
@@ -28,7 +29,6 @@
 - [渡鬼](https://www.kanshu666.com/book/8jv7ib3/)
 - [躲避原书剧情五年后](https://www.kanshu666.com/book/8jv7i9n/)
 - [暴君偏头痛](https://www.kanshu666.com/book/8jv7i9m/)
-- [失而复得的白月光[快穿]](https://www.kanshu666.com/book/8jv7i9g/)
 - [[封神]圣人生欲](https://www.kanshu666.com/book/8jv7i8c/)
 - [你，后室管理员](https://www.kanshu666.com/book/8jv7i87/)
 - [被四皇错看成小动物后](https://www.kanshu666.com/book/8jv7i70/)
@@ -36,7 +36,6 @@
 - [阴郁路人不想被喜欢](https://www.kanshu666.com/book/8jv7i64/)
 - [京秋婚约](https://www.kanshu666.com/book/8jv7i5c/)
 - [直男咒术师的限制级游戏](https://www.kanshu666.com/book/8jv7i2n/)
-- [纯爱宇智波基本恋爱法](https://www.kanshu666.com/book/8jv7i22/)
 - [求生游戏：当邪神成为生活玩家后](https://www.kanshu666.com/book/8jv7i19/)
 - [昭暮](https://www.kanshu666.com/book/8jv7774/)
 - [修仙界都为我神魂颠倒](https://www.kanshu666.com/book/8jv76fu/)
@@ -406,7 +405,6 @@
 - [作家与读者](https://www.kanshu666.com/book/rj5ccu/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.kanshu666.com/book/rj5bts/)
 - [神之子与排球的适配性](https://www.kanshu666.com/book/rj5b8d/)
-- [被阴湿坏女人缠上后](https://www.kanshu666.com/book/rj5au6/)
 - [虫族治愈师，但恐虫](https://www.kanshu666.com/book/rj5ag1/)
 - [你也没死？](https://www.kanshu666.com/book/rj58m6/)
 - [老公是松散生命体](https://www.kanshu666.com/book/rj56nd/)

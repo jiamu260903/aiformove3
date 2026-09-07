@@ -1,14 +1,13 @@
 
 # 漫话乐文小说-免费小说阅读,无弹窗,最新章节更新快
 
-更新时间：2026-09-06 03:33:41
+更新时间：2026-09-07 03:34:49
 
 漫话乐文小说是广大书友最值得收藏的网络小说阅读网，提供当前最火热的网络小说免费阅读服务，高质量的小说最新章节更新快速，适合所有网络小说爱好者。
 
 - [漫话乐文小说](https://www.manhua958.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.manhua958.com/book/17scts1/)
 - [和八个男人在极寒游戏求生](https://www.manhua958.com/book/17scts0/)
 - [烈火焚身[巴黎圣母院]](https://www.manhua958.com/book/17sctrs/)
 - [康熙宠妃日常](https://www.manhua958.com/book/17sctrq/)
@@ -104,7 +103,6 @@
 - [怀了前任大哥的崽后](https://www.manhua958.com/book/17saiqm/)
 - [我骗家里的钱养你啊](https://www.manhua958.com/book/17sahuh/)
 - [死遁的亡夫们都回来了](https://www.manhua958.com/book/17sagud/)
-- [九零首富的替嫁小媳妇](https://www.manhua958.com/book/17sagn1/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.manhua958.com/book/17sagkq/)
 - [在民俗惊悚片被诸神庇护](https://www.manhua958.com/book/17sa8oq/)
 - [死对头又在挑衅我](https://www.manhua958.com/book/17sa89p/)
@@ -159,6 +157,7 @@
 - [95美国贵族高中模拟](https://www.manhua958.com/book/17s7bo4/)
 - [[娱乐圈]过分美丽的她](https://www.manhua958.com/book/17s7bl5/)
 - [假少爷离开后](https://www.manhua958.com/book/17s7b7l/)
+- [老公对不起](https://www.manhua958.com/book/17s7b55/)
 - [我是唯一地上神国](https://www.manhua958.com/book/17s7ar4/)
 - [全民求生:从小木屋到魔法农场](https://www.manhua958.com/book/17s7amb/)
 - [成为养成系练习生后](https://www.manhua958.com/book/17s7aj7/)

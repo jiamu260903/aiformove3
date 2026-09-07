@@ -1,7 +1,7 @@
 
 # 读者香书小说-免费高质量网络小说阅读网
 
-更新时间：2026-09-06 03:26:34
+更新时间：2026-09-07 03:27:41
 
 读者香书小说提供最新的、最热门的网络小说在线阅读服务，支持无弹窗模式，是广大书友和小说读者理想的阅读平台。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.duzhe888.com/book/2koepgl/)
-- [揣崽丧夫后被情敌强娶了](https://www.duzhe888.com/book/2koepgk/)
 - [全世界名为爱的恶意](https://www.duzhe888.com/book/2koepgj/)
 - [二次分化后他怀了死对头的崽](https://www.duzhe888.com/book/2koepgh/)
 - [[原神]魔法使恋爱指南](https://www.duzhe888.com/book/2koepgg/)
@@ -88,7 +87,6 @@
 - [原配夫人](https://www.duzhe888.com/book/2koep7k/)
 - [始乱终弃清冷首辅后](https://www.duzhe888.com/book/2koep7a/)
 - [十九世纪贵族厨房（美食）](https://www.duzhe888.com/book/2koep77/)
-- [九零首富的替嫁小媳妇](https://www.duzhe888.com/book/2koep71/)
 - [[封神]圣人生欲](https://www.duzhe888.com/book/2koep6l/)
 - [高调装神，猥琐发育](https://www.duzhe888.com/book/2koep6g/)
 - [假少爷离开后](https://www.duzhe888.com/book/2koep6e/)
@@ -98,6 +96,7 @@
 - [路人攻了主角攻［快穿］](https://www.duzhe888.com/book/2koenn4/)
 - [昭暮](https://www.duzhe888.com/book/2koee6e/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.duzhe888.com/book/2kodo12/)
+- [老公对不起](https://www.duzhe888.com/book/2kodauo/)
 - [[足球]足坛人生模拟器](https://www.duzhe888.com/book/2koct8k/)
 - [上个鬼班[无限]](https://www.duzhe888.com/book/2kocram/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.duzhe888.com/book/2kocor0/)

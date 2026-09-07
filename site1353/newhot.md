@@ -1,7 +1,7 @@
 
 # 书社1687小说免费-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-09-06 03:38:52
+更新时间：2026-09-07 03:40:02
 
 书社1687小说免费提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏书社1687小说，享受便捷的小说阅读体验。
 
@@ -12,6 +12,7 @@
 - [穿为龙傲天发妻后](https://www.shushe1687.com/book/489h9gv/)
 - [这个替嫁让我来！](https://www.shushe1687.com/book/489h9g4/)
 - [禁止继承限制级雌君](https://www.shushe1687.com/book/489h9g1/)
+- [欲加之罪](https://www.shushe1687.com/book/489h9fm/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.shushe1687.com/book/489h9f6/)
 - [等我吃腻了再倒闭可以吗](https://www.shushe1687.com/book/489h9eg/)
 - [[综英美]和亲友群穿哥谭以后](https://www.shushe1687.com/book/489h9ea/)
@@ -84,7 +85,6 @@
 - [bl世界的路人不想被掰弯](https://www.shushe1687.com/book/489f7ti/)
 - [这个迫嫁我愿意的](https://www.shushe1687.com/book/489f7lt/)
 - [[足球]听克圣的话，成了米兰金童](https://www.shushe1687.com/book/489f7bi/)
-- [失而复得的白月光[快穿]](https://www.shushe1687.com/book/489f770/)
 - [被马甲团宠的我开启地狱模式](https://www.shushe1687.com/book/489f75m/)
 - [恐惧玫瑰](https://www.shushe1687.com/book/489f6f7/)
 - [期春思](https://www.shushe1687.com/book/489f64l/)
@@ -401,7 +401,6 @@
 - [在重男兄弟间夹缝求生](https://www.shushe1687.com/book/489dqsm/)
 - [虫族治愈师，但恐虫](https://www.shushe1687.com/book/489dqru/)
 - [让我再吃一口](https://www.shushe1687.com/book/489dqql/)
-- [被阴湿坏女人缠上后](https://www.shushe1687.com/book/489dqm8/)
 - [普通高中生，但兼职咒术师](https://www.shushe1687.com/book/489dqig/)
 - [失忆后，和五条激情互演](https://www.shushe1687.com/book/489dq63/)
 - [[足球]罗蜜第一志愿](https://www.shushe1687.com/book/489dppr/)
@@ -424,7 +423,6 @@
 - [我最讨厌打球了！](https://www.shushe1687.com/book/489dj2j/)
 - [[足球]小小鸟堂堂来袭](https://www.shushe1687.com/book/489dfs6/)
 - [幼崽假少爷选择回归寒门](https://www.shushe1687.com/book/489df8g/)
-- [盛夏晴浓](https://www.shushe1687.com/book/489devo/)
 - [好巧，你也是妹控？[综崩铁]](https://www.shushe1687.com/book/489dcvn/)
 - [青城玩家明明超强却过分谨慎](https://www.shushe1687.com/book/489dcv0/)
 - [欢迎来到重生点](https://www.shushe1687.com/book/489daae/)
@@ -439,7 +437,6 @@
 - [我，剑圣，养生中，勿扰](https://www.shushe1687.com/book/489d2ea/)
 - [和室友他爸恋爱后](https://www.shushe1687.com/book/489cudm/)
 - [直男咒术师的限制级游戏](https://www.shushe1687.com/book/489bnc9/)
-- [纯爱宇智波基本恋爱法](https://www.shushe1687.com/book/489blvd/)
 - [阴郁路人不想被喜欢](https://www.shushe1687.com/book/489bljo/)
 - [京秋婚约](https://www.shushe1687.com/book/489bljh/)
 ## 相关内容

@@ -1,7 +1,7 @@
 
 # 读者电子书-全本TXT小说免费下载,最新全集小说阅读
 
-更新时间：2026-09-06 03:26:19
+更新时间：2026-09-07 03:27:25
 
 读者电子书提供全本TXT小说下载及完整版电子书下载服务，涵盖各类最新最全的小说资源，支持手机等多终端阅读。每日更新，满足您的阅读需求。
 
@@ -16,6 +16,7 @@
 - [等我吃腻了再倒闭可以吗](https://www.duzhe368.com/book/3hfvb4r/)
 - [穿为龙傲天发妻后](https://www.duzhe368.com/book/3hfvb3u/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.duzhe368.com/book/3hfvb3m/)
+- [欲加之罪](https://www.duzhe368.com/book/3hfvb30/)
 - [[综英美]和亲友群穿哥谭以后](https://www.duzhe368.com/book/3hfvb2o/)
 - [修仙界都为我神魂颠倒](https://www.duzhe368.com/book/3hfv934/)
 - [[足球]这只后锋小熊是你家俱乐部掉的吗？](https://www.duzhe368.com/book/3hfv8u4/)
@@ -88,7 +89,6 @@
 - [反派真少爷搞了个抱错综艺后[穿书]](https://www.duzhe368.com/book/3hft8jt/)
 - [逃荒[快穿]](https://www.duzhe368.com/book/3hft8eo/)
 - [这个迫嫁我愿意的](https://www.duzhe368.com/book/3hft87i/)
-- [失而复得的白月光[快穿]](https://www.duzhe368.com/book/3hft7bf/)
 - [被马甲团宠的我开启地狱模式](https://www.duzhe368.com/book/3hft76h/)
 - [期春思](https://www.duzhe368.com/book/3hft75d/)
 - [恐惧玫瑰](https://www.duzhe368.com/book/3hft708/)
@@ -403,7 +403,6 @@
 - [末世山居日常](https://www.duzhe368.com/book/3hfrs7m/)
 - [直播捏玩具被榜一大哥撅了](https://www.duzhe368.com/book/3hfrs58/)
 - [高冷影后逼我标记她](https://www.duzhe368.com/book/3hfrs4u/)
-- [被阴湿坏女人缠上后](https://www.duzhe368.com/book/3hfrs3d/)
 - [某柯学的正义伙伴](https://www.duzhe368.com/book/3hfrrvq/)
 - [国舅太难追了](https://www.duzhe368.com/book/3hfrrvi/)
 - [请问夫君你哪位](https://www.duzhe368.com/book/3hfrroa/)
@@ -423,7 +422,6 @@
 - [刀子精手心的人偶崽崽](https://www.duzhe368.com/book/3hfrmkr/)
 - [我最讨厌打球了！](https://www.duzhe368.com/book/3hfrl1v/)
 - [幼崽假少爷选择回归寒门](https://www.duzhe368.com/book/3hfrh8d/)
-- [盛夏晴浓](https://www.duzhe368.com/book/3hfrgik/)
 - [[足球]小小鸟堂堂来袭](https://www.duzhe368.com/book/3hfrfn9/)
 - [好巧，你也是妹控？[综崩铁]](https://www.duzhe368.com/book/3hfrefe/)
 - [欢迎来到重生点](https://www.duzhe368.com/book/3hfre19/)
@@ -438,7 +436,6 @@
 - [我，剑圣，养生中，勿扰](https://www.duzhe368.com/book/3hfr556/)
 - [关于我虚构了一个男友这件事](https://www.duzhe368.com/book/3hfr53r/)
 - [和室友他爸恋爱后](https://www.duzhe368.com/book/3hfqv5s/)
-- [纯爱宇智波基本恋爱法](https://www.duzhe368.com/book/3hfppfi/)
 - [京秋婚约](https://www.duzhe368.com/book/3hfpov6/)
 - [阴郁路人不想被喜欢](https://www.duzhe368.com/book/3hfpooo/)
 - [直男咒术师的限制级游戏](https://www.duzhe368.com/book/3hfpmre/)
