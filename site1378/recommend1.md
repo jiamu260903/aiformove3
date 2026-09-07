@@ -1,14 +1,13 @@
 
 # 灌南华侨小说网笔趣阁_书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-06 03:27:37
+更新时间：2026-09-07 03:28:44
 
 灌南华侨小说网笔趣阁海量免费小说在线阅读平台，汇聚玄幻、都市、言情、科幻、悬疑等全品类热门小说，实时更新全网爆款佳作。无广告干扰，支持缓存离线看，让你随时随地沉浸阅读世界，找书看书就来笔趣阁，满足你的所有阅读渴望。
 
 - [灌南华侨小说网](https://www.gnhqbs.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.gnhqbs.com/book/1cqms3o/)
 - [和八个男人在极寒游戏求生](https://www.gnhqbs.com/book/1cqms3n/)
 - [烈火焚身[巴黎圣母院]](https://www.gnhqbs.com/book/1cqms3m/)
 - [我们小区穿末世](https://www.gnhqbs.com/book/1cqms3l/)
@@ -157,10 +156,10 @@
 - [我是唯一地上神国](https://www.gnhqbs.com/book/1cqh93b/)
 - [95美国贵族高中模拟](https://www.gnhqbs.com/book/1cqh8ve/)
 - [海岛求生：生活玩家种田囤货](https://www.gnhqbs.com/book/1cqh8u8/)
-- [九零首富的替嫁小媳妇](https://www.gnhqbs.com/book/1cqh8lf/)
 - [[娱乐圈]过分美丽的她](https://www.gnhqbs.com/book/1cqh8hn/)
 - [全民求生:从小木屋到魔法农场](https://www.gnhqbs.com/book/1cqh8h9/)
 - [大瑛弟国](https://www.gnhqbs.com/book/1cqh8ai/)
+- [老公对不起](https://www.gnhqbs.com/book/1cqh84e/)
 - [假少爷离开后](https://www.gnhqbs.com/book/1cqh837/)
 - [日化人生[科研]](https://www.gnhqbs.com/book/1cqh7s4/)
 - [清澈女大的六零年代](https://www.gnhqbs.com/book/1cqh7ov/)

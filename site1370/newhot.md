@@ -1,7 +1,7 @@
 
 # 燃文故事小说网 - 无弹窗全本小说免费阅读
 
-更新时间：2026-09-06 03:28:26
+更新时间：2026-09-07 03:29:33
 
 燃文故事小说网提供无弹窗干扰的小说阅读体验，支持全本小说在线免费阅读。
 
@@ -13,6 +13,7 @@
 - [等我吃腻了再倒闭可以吗](https://www.gushi687.com/book/63qvdbo/)
 - [这个替嫁让我来！](https://www.gushi687.com/book/63qvdb3/)
 - [禁止继承限制级雌君](https://www.gushi687.com/book/63qvdac/)
+- [欲加之罪](https://www.gushi687.com/book/63qvda8/)
 - [全世界名为爱的恶意](https://www.gushi687.com/book/63qvd8t/)
 - [穿为龙傲天发妻后](https://www.gushi687.com/book/63qvd8r/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.gushi687.com/book/63qvd8p/)
@@ -91,7 +92,6 @@
 - [这个迫嫁我愿意的](https://www.gushi687.com/book/63qtabo/)
 - [我被一个古人教会了爱情](https://www.gushi687.com/book/63qta50/)
 - [[足球]听克圣的话，成了米兰金童](https://www.gushi687.com/book/63qt98c/)
-- [失而复得的白月光[快穿]](https://www.gushi687.com/book/63qt92f/)
 - [逃荒[快穿]](https://www.gushi687.com/book/63qt904/)
 - [七零年代闺蜜团的奋斗](https://www.gushi687.com/book/63qt8eu/)
 - [[综英美]怎么就蝙蝠崽文学了](https://www.gushi687.com/book/63qt882/)
@@ -404,7 +404,6 @@
 - [我靠玛丽苏系统伪装神女](https://www.gushi687.com/book/63qrujs/)
 - [小狗向导，世界瑰宝！](https://www.gushi687.com/book/63qruha/)
 - [国舅太难追了](https://www.gushi687.com/book/63qrue9/)
-- [被阴湿坏女人缠上后](https://www.gushi687.com/book/63qru9f/)
 - [“纯黑”苏格兰的蜂蜜陷阱](https://www.gushi687.com/book/63qru22/)
 - [青空来信](https://www.gushi687.com/book/63qrtvg/)
 - [救命！猫尾巴藏不住了](https://www.gushi687.com/book/63qrtu4/)
@@ -424,7 +423,6 @@
 - [求生游戏：当邪神成为生活玩家后](https://www.gushi687.com/book/63qro67/)
 - [幼崽假少爷选择回归寒门](https://www.gushi687.com/book/63qrjfk/)
 - [[足球]小小鸟堂堂来袭](https://www.gushi687.com/book/63qribj/)
-- [盛夏晴浓](https://www.gushi687.com/book/63qrhai/)
 - [欢迎来到重生点](https://www.gushi687.com/book/63qrg97/)
 - [好巧，你也是妹控？[综崩铁]](https://www.gushi687.com/book/63qrg73/)
 - [青城玩家明明超强却过分谨慎](https://www.gushi687.com/book/63qre7i/)
@@ -439,7 +437,6 @@
 - [自大狂](https://www.gushi687.com/book/63qr3g5/)
 - [和室友他爸恋爱后](https://www.gushi687.com/book/63qqvkj/)
 - [京秋婚约](https://www.gushi687.com/book/63qpru7/)
-- [纯爱宇智波基本恋爱法](https://www.gushi687.com/book/63qprnt/)
 - [直男咒术师的限制级游戏](https://www.gushi687.com/book/63qpqgi/)
 - [阴郁路人不想被喜欢](https://www.gushi687.com/book/63qppp7/)
 ## 相关内容

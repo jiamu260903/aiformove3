@@ -1,14 +1,13 @@
 
 # 书旗全本小说网 - 书旗小说排行榜, 已完结版书旗小说推荐
 
-更新时间：2026-09-06 03:38:34
+更新时间：2026-09-07 03:39:44
 
 书旗全本小说网提供最新最全最热门的小说作品排行，包括但不限于已完结版玄幻小说排行榜等。本站汇集了海量网络免费小说资源供您选择。
 
 - [书旗小说网](https://www.shuqi687.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.shuqi687.com/book/8vsmjgi/)
 - [和八个男人在极寒游戏求生](https://www.shuqi687.com/book/8vsmjgh/)
 - [你让魔王组建勇者小队？](https://www.shuqi687.com/book/8vsmjgg/)
 - [魔尊闭关十年连生十一子？！](https://www.shuqi687.com/book/8vsmjgf/)
@@ -86,7 +85,6 @@
 - [我司艺人永不塌房](https://www.shuqi687.com/book/8vsmjc7/)
 - [星际团宠小人鱼](https://www.shuqi687.com/book/8vsmj8b/)
 - [十九世纪贵族厨房（美食）](https://www.shuqi687.com/book/8vsmj7k/)
-- [九零首富的替嫁小媳妇](https://www.shuqi687.com/book/8vsmj7h/)
 - [原配夫人](https://www.shuqi687.com/book/8vsmj7a/)
 - [始乱终弃清冷首辅后](https://www.shuqi687.com/book/8vsmj6l/)
 - [[封神]圣人生欲](https://www.shuqi687.com/book/8vsmj6h/)
@@ -98,6 +96,7 @@
 - [路人攻了主角攻［快穿］](https://www.shuqi687.com/book/8vsmho6/)
 - [昭暮](https://www.shuqi687.com/book/8vsm87g/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.shuqi687.com/book/8vslrvp/)
+- [老公对不起](https://www.shuqi687.com/book/8vsl53o/)
 - [[足球]足坛人生模拟器](https://www.shuqi687.com/book/8vskrrl/)
 - [上个鬼班[无限]](https://www.shuqi687.com/book/8vskm9v/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.shuqi687.com/book/8vskirb/)

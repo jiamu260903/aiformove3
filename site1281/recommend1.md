@@ -1,14 +1,13 @@
 
 # 忆想小说网 - 最佳无弹窗在线小说阅读平台
 
-更新时间：2026-09-06 03:23:52
+更新时间：2026-09-07 03:24:58
 
 忆想小说网为您提供最佳的小说阅读体验，包括但不限于各类热门小说、最新连载等，支持无弹窗阅读模式，让您享受纯净舒适的阅读环境。
 
 - [忆想小说网](https://www.bianlishihao.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.bianlishihao.com/book/2vr7aoi/)
 - [和八个男人在极寒游戏求生](https://www.bianlishihao.com/book/2vr7aoh/)
 - [我只想上京赶考啊[聊斋]](https://www.bianlishihao.com/book/2vr7aog/)
 - [我们小区穿末世](https://www.bianlishihao.com/book/2vr7aof/)
@@ -88,7 +87,6 @@
 - [始乱终弃清冷首辅后](https://www.bianlishihao.com/book/2vr7agi/)
 - [[封神]圣人生欲](https://www.bianlishihao.com/book/2vr7afq/)
 - [星际团宠小人鱼](https://www.bianlishihao.com/book/2vr7afa/)
-- [九零首富的替嫁小媳妇](https://www.bianlishihao.com/book/2vr7af8/)
 - [高调装神，猥琐发育](https://www.bianlishihao.com/book/2vr7adk/)
 - [十九世纪贵族厨房（美食）](https://www.bianlishihao.com/book/2vr7acp/)
 - [假少爷离开后](https://www.bianlishihao.com/book/2vr7ab9/)
@@ -98,6 +96,7 @@
 - [路人攻了主角攻［快穿］](https://www.bianlishihao.com/book/2vr790a/)
 - [昭暮](https://www.bianlishihao.com/book/2vr6vdd/)
 - [[足球]拥有分身系统的我靠踢足球建设国家](https://www.bianlishihao.com/book/2vr6jbu/)
+- [老公对不起](https://www.bianlishihao.com/book/2vr5smf/)
 - [上个鬼班[无限]](https://www.bianlishihao.com/book/2vr5ob4/)
 - [[足球]足坛人生模拟器](https://www.bianlishihao.com/book/2vr5ik5/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.bianlishihao.com/book/2vr5cg5/)

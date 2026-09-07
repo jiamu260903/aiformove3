@@ -1,7 +1,7 @@
 
 # 牛魔王JJ电子书 - 小说阅读网, 全本免费完结小说在线阅读及下载
 
-更新时间：2026-09-06 03:34:26
+更新时间：2026-09-07 03:35:34
 
 牛魔王JJ电子书提供精彩小说阅读服务，包括各种类型的小说排行榜、免费好看的小说等。涵盖穿越小说、都市小说、言情小说、玄幻小说等多种类别，支持全本全集完结小说在线阅读以及TXT下载。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.nmwjj.com/book/18cjl06/)
-- [揣崽丧夫后被情敌强娶了](https://www.nmwjj.com/book/18cjkvh/)
 - [[全职高手]治疗什么的不干了！](https://www.nmwjj.com/book/18cjhjo/)
 - [人，今晚土拨鼠站岗](https://www.nmwjj.com/book/18cjhjn/)
 - [[原神]魔法使恋爱指南](https://www.nmwjj.com/book/18cjhjl/)
@@ -144,10 +143,10 @@
 - [恶犬攻绑定上司的乖狗系统](https://www.nmwjj.com/book/18cf9v3/)
 - [爱好和平但狂拆机甲](https://www.nmwjj.com/book/18cf4kb/)
 - [你让魔王组建勇者小队？](https://www.nmwjj.com/book/18cf1eu/)
+- [老公对不起](https://www.nmwjj.com/book/18ce6b2/)
 - [大瑛弟国](https://www.nmwjj.com/book/18ce66m/)
 - [假少爷离开后](https://www.nmwjj.com/book/18ce64e/)
 - [在民俗惊悚片被诸神庇护](https://www.nmwjj.com/book/18ce5v2/)
-- [九零首富的替嫁小媳妇](https://www.nmwjj.com/book/18ce5ut/)
 - [[封神]圣人生欲](https://www.nmwjj.com/book/18ce5p4/)
 - [原配夫人](https://www.nmwjj.com/book/18ce5no/)
 - [完蛋！被恨孕男包围了！](https://www.nmwjj.com/book/18ce5l3/)

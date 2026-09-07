@@ -1,7 +1,7 @@
 
 # 佚名奇书小说 - 免费更新的小说阅读网站
 
-更新时间：2026-09-06 03:45:30
+更新时间：2026-09-07 03:46:48
 
 佚名奇书小说提供全网各类热门小说在线阅读服务，支持免费观看。这里汇集了丰富的小说资源，包括但不限于都市、玄幻、武侠等多种类型，并且保证章节更新及时，页面设计清爽无广告干扰，是广大书友不可多得的好去处。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.yimingeduai.com/book/6adnjhg/)
-- [揣崽丧夫后被情敌强娶了](https://www.yimingeduai.com/book/6adnjfd/)
 - [从1951开始](https://www.yimingeduai.com/book/6adng45/)
 - [康熙宠妃日常](https://www.yimingeduai.com/book/6adng43/)
 - [全民求生，但剑三](https://www.yimingeduai.com/book/6adng3v/)
@@ -151,6 +150,7 @@
 - [原配夫人](https://www.yimingeduai.com/book/6adi87a/)
 - [十九世纪贵族厨房（美食）](https://www.yimingeduai.com/book/6adi841/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.yimingeduai.com/book/6adi811/)
+- [老公对不起](https://www.yimingeduai.com/book/6adi7te/)
 - [始乱终弃清冷首辅后](https://www.yimingeduai.com/book/6adi7lr/)
 - [在民俗惊悚片被诸神庇护](https://www.yimingeduai.com/book/6adi7kq/)
 - [巨物致富：回乡开钓场](https://www.yimingeduai.com/book/6adi7il/)
@@ -164,7 +164,6 @@
 - [五十年代港城日常](https://www.yimingeduai.com/book/6adi6nm/)
 - [我有一座安全城](https://www.yimingeduai.com/book/6adi6ln/)
 - [日化人生[科研]](https://www.yimingeduai.com/book/6adi6g6/)
-- [九零首富的替嫁小媳妇](https://www.yimingeduai.com/book/6adi6g3/)
 - [95美国贵族高中模拟](https://www.yimingeduai.com/book/6adi6e5/)
 - [大瑛弟国](https://www.yimingeduai.com/book/6adi6bh/)
 - [假少爷离开后](https://www.yimingeduai.com/book/6adi6a2/)

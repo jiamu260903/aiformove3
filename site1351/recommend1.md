@@ -1,14 +1,13 @@
 
 # 泡泡中文小说-无弹窗书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-06 03:44:25
+更新时间：2026-09-07 03:45:43
 
 泡泡中文小说是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。
 
 - [泡泡中文小说](https://www.xiaoshuo288.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.xiaoshuo288.com/book/dm3vde/)
 - [和八个男人在极寒游戏求生](https://www.xiaoshuo288.com/book/dm3vdd/)
 - [在中世纪做奴隶](https://www.xiaoshuo288.com/book/dm3vdb/)
 - [［西幻］RPG就不要谈恋爱了吧！](https://www.xiaoshuo288.com/book/dm3vda/)
@@ -101,7 +100,6 @@
 - [让你们无剧本可走（快穿）](https://www.xiaoshuo288.com/book/dm1sh7/)
 - [摄政王家的咸鱼夫郎](https://www.xiaoshuo288.com/book/dm1s8d/)
 - [如何正确哄睡暴君](https://www.xiaoshuo288.com/book/dm1q4f/)
-- [九零首富的替嫁小媳妇](https://www.xiaoshuo288.com/book/dm1k5t/)
 - [死遁的亡夫们都回来了](https://www.xiaoshuo288.com/book/dm1j0a/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.xiaoshuo288.com/book/dm1il5/)
 - [怀了前任大哥的崽后](https://www.xiaoshuo288.com/book/dm1ii0/)
@@ -169,6 +167,7 @@
 - [我是唯一地上神国](https://www.xiaoshuo288.com/book/dlubor/)
 - [我有一座安全城](https://www.xiaoshuo288.com/book/dlubdt/)
 - [海岛求生：生活玩家种田囤货](https://www.xiaoshuo288.com/book/dlubd5/)
+- [老公对不起](https://www.xiaoshuo288.com/book/dlubad/)
 - [[娱乐圈]过分美丽的她](https://www.xiaoshuo288.com/book/dlub9h/)
 - [日化人生[科研]](https://www.xiaoshuo288.com/book/dlub1c/)
 ## 相关内容

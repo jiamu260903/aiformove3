@@ -1,7 +1,7 @@
 
 # 故事来书吧-免费阅读全网最新最热小说
 
-更新时间：2026-09-06 03:28:41
+更新时间：2026-09-07 03:29:49
 
 故事来书吧提供海量免费无弹窗小说在线阅读服务，涵盖言情、都市、玄幻、武侠等多种类型，让你随时随地享受阅读的乐趣。
 
@@ -10,6 +10,7 @@
 ## 最新小说
 - [这个替嫁让我来！](https://www.gushi688.com/book/5121cup/)
 - [清穿女回来后[天幕]](https://www.gushi688.com/book/5121cuo/)
+- [欲加之罪](https://www.gushi688.com/book/5121ct2/)
 - [自知之明](https://www.gushi688.com/book/5121csm/)
 - [全世界名为爱的恶意](https://www.gushi688.com/book/5121cs6/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.gushi688.com/book/5121crp/)
@@ -83,7 +84,6 @@
 - [我有一座城](https://www.gushi688.com/book/511vbkp/)
 - [超A奶龙饲养指南](https://www.gushi688.com/book/511vbiv/)
 - [这个迫嫁我愿意的](https://www.gushi688.com/book/511vb3l/)
-- [失而复得的白月光[快穿]](https://www.gushi688.com/book/511vb14/)
 - [逃生游戏[无限]](https://www.gushi688.com/book/511vapj/)
 - [被马甲团宠的我开启地狱模式](https://www.gushi688.com/book/511vagu/)
 - [反派真少爷搞了个抱错综艺后[穿书]](https://www.gushi688.com/book/511va6g/)
@@ -393,7 +393,6 @@
 - [我靠玛丽苏系统伪装神女](https://www.gushi688.com/book/511tv3t/)
 - [虫族治愈师，但恐虫](https://www.gushi688.com/book/511tv2c/)
 - [末世山居日常](https://www.gushi688.com/book/511tuut/)
-- [被阴湿坏女人缠上后](https://www.gushi688.com/book/511tuqu/)
 - [[足球]罗蜜第一志愿](https://www.gushi688.com/book/511tuoc/)
 - [癫骨](https://www.gushi688.com/book/511tunp/)
 - [举朝上下为我的神仙人设头疼中](https://www.gushi688.com/book/511tumm/)
@@ -422,7 +421,6 @@
 - [求生游戏：当邪神成为生活玩家后](https://www.gushi688.com/book/511tp7m/)
 - [刀子精手心的人偶崽崽](https://www.gushi688.com/book/511to41/)
 - [我最讨厌打球了！](https://www.gushi688.com/book/511tn9h/)
-- [盛夏晴浓](https://www.gushi688.com/book/511tjej/)
 - [幼崽假少爷选择回归寒门](https://www.gushi688.com/book/511tijp/)
 - [[足球]小小鸟堂堂来袭](https://www.gushi688.com/book/511thuu/)
 - [好巧，你也是妹控？[综崩铁]](https://www.gushi688.com/book/511teot/)
@@ -438,7 +436,6 @@
 - [我，剑圣，养生中，勿扰](https://www.gushi688.com/book/511t7kn/)
 - [关于我虚构了一个男友这件事](https://www.gushi688.com/book/511t755/)
 - [和室友他爸恋爱后](https://www.gushi688.com/book/511t10i/)
-- [纯爱宇智波基本恋爱法](https://www.gushi688.com/book/511rrob/)
 - [京秋婚约](https://www.gushi688.com/book/511rq92/)
 - [直男咒术师的限制级游戏](https://www.gushi688.com/book/511rq5e/)
 - [阴郁路人不想被喜欢](https://www.gushi688.com/book/511rphc/)

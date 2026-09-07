@@ -1,7 +1,7 @@
 
 # 看居中文网_免费小说在线阅读|无弹窗广告值得收藏
 
-更新时间：2026-09-06 03:30:38
+更新时间：2026-09-07 03:31:46
 
 看居中文网是最热门的免费小说网站，提供包括但不限于玄幻、都市、言情等多种类型的小说在线阅读服务。本站实时更新小说最新章节列表，拥有全面的小说排行榜，致力于为读者提供一个干净舒适的阅读环境，无弹窗广告干扰，是您寻找好书的理想之地。
 
@@ -15,6 +15,7 @@
 - [自知之明](https://www.kanju688.com/book/pb0b9h/)
 - [等我吃腻了再倒闭可以吗](https://www.kanju688.com/book/pb0b96/)
 - [清穿女回来后[天幕]](https://www.kanju688.com/book/pb0b91/)
+- [欲加之罪](https://www.kanju688.com/book/pb0b8i/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.kanju688.com/book/pb0b7d/)
 - [[综英美]和亲友群穿哥谭以后](https://www.kanju688.com/book/pb0b6v/)
 - [修仙界都为我神魂颠倒](https://www.kanju688.com/book/pb0964/)
@@ -85,7 +86,6 @@
 - [期春思](https://www.kanju688.com/book/pau96u/)
 - [我被一个古人教会了爱情](https://www.kanju688.com/book/pau95n/)
 - [这个迫嫁我愿意的](https://www.kanju688.com/book/pau8p3/)
-- [失而复得的白月光[快穿]](https://www.kanju688.com/book/pau8ib/)
 - [[足球]听克圣的话，成了米兰金童](https://www.kanju688.com/book/pau84e/)
 - [满级后我的外挂到账了[全息]](https://www.kanju688.com/book/pau7uc/)
 - [反派真少爷搞了个抱错综艺后[穿书]](https://www.kanju688.com/book/pau7q5/)
@@ -391,7 +391,6 @@
 - [丧尸闻了闻你的恋爱脑](https://www.kanju688.com/book/pastmb/)
 - [小狗向导，世界瑰宝！](https://www.kanju688.com/book/pastgo/)
 - [咒术师，但队友是侦探](https://www.kanju688.com/book/pastek/)
-- [被阴湿坏女人缠上后](https://www.kanju688.com/book/pastbg/)
 - [无能的丈夫们](https://www.kanju688.com/book/pasta6/)
 - [我靠玛丽苏系统伪装神女](https://www.kanju688.com/book/past96/)
 - [直播捏玩具被榜一大哥撅了](https://www.kanju688.com/book/past7j/)
@@ -422,7 +421,6 @@
 - [刀子精手心的人偶崽崽](https://www.kanju688.com/book/pasnap/)
 - [我最讨厌打球了！](https://www.kanju688.com/book/pasls1/)
 - [求生游戏：当邪神成为生活玩家后](https://www.kanju688.com/book/paslqv/)
-- [盛夏晴浓](https://www.kanju688.com/book/pashjh/)
 - [幼崽假少爷选择回归寒门](https://www.kanju688.com/book/pasfis/)
 - [[足球]小小鸟堂堂来袭](https://www.kanju688.com/book/pasfg0/)
 - [好巧，你也是妹控？[综崩铁]](https://www.kanju688.com/book/pase4e/)
@@ -439,7 +437,6 @@
 - [自大狂](https://www.kanju688.com/book/pas1oo/)
 - [和室友他爸恋爱后](https://www.kanju688.com/book/parutg/)
 - [直男咒术师的限制级游戏](https://www.kanju688.com/book/paqpcv/)
-- [纯爱宇智波基本恋爱法](https://www.kanju688.com/book/paqose/)
 - [京秋婚约](https://www.kanju688.com/book/paqobo/)
 - [阴郁路人不想被喜欢](https://www.kanju688.com/book/paqnd0/)
 ## 相关内容

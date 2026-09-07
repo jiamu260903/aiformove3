@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-06 03:42:51
+更新时间：2026-09-07 03:44:07
 
 速阅阁小说网是专为书友们打造的最佳网络小说阅读与收藏平台，提供海量优质小说资源，满足您的各种阅读需求。
 
@@ -9,6 +9,7 @@
 
 ## 最新小说
 - [幼崽假少爷选择回归寒门](https://www.wsfsx.com/book/5ts29ek/)
+- [欲加之罪](https://www.wsfsx.com/book/5ts29eg/)
 - [[综英美]和亲友群穿哥谭以后](https://www.wsfsx.com/book/5ts29eb/)
 - [穿为龙傲天发妻后](https://www.wsfsx.com/book/5ts29e9/)
 - [我骗家里的钱养你啊](https://www.wsfsx.com/book/5ts29e3/)
@@ -27,14 +28,12 @@
 - [[综英美]让我统治哥谭！！！](https://www.wsfsx.com/book/5ts2999/)
 - [青城玩家明明超强却过分谨慎](https://www.wsfsx.com/book/5ts2996/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.wsfsx.com/book/5ts2992/)
-- [失而复得的白月光[快穿]](https://www.wsfsx.com/book/5ts297r/)
 - [暴君偏头痛](https://www.wsfsx.com/book/5ts2975/)
 - [你，后室管理员](https://www.wsfsx.com/book/5ts2951/)
 - [被四皇错看成小动物后](https://www.wsfsx.com/book/5ts294t/)
 - [[封神]圣人生欲](https://www.wsfsx.com/book/5ts294m/)
 - [高调装神，猥琐发育](https://www.wsfsx.com/book/5ts294e/)
 - [阴郁路人不想被喜欢](https://www.wsfsx.com/book/5ts2949/)
-- [纯爱宇智波基本恋爱法](https://www.wsfsx.com/book/5ts2945/)
 - [京秋婚约](https://www.wsfsx.com/book/5ts293a/)
 - [直男咒术师的限制级游戏](https://www.wsfsx.com/book/5ts291p/)
 - [求求你们别吃了](https://www.wsfsx.com/book/5ts290o/)
@@ -401,7 +400,6 @@
 - [当了卧底的我发现遍地熟人](https://www.wsfsx.com/book/ivkrmk/)
 - [普通高中生，但兼职咒术师](https://www.wsfsx.com/book/ivkrdh/)
 - [无能的丈夫们](https://www.wsfsx.com/book/ivkrai/)
-- [被阴湿坏女人缠上后](https://www.wsfsx.com/book/ivkr9d/)
 - [隔壁班的松田君](https://www.wsfsx.com/book/ivkr5q/)
 - [青山不渡](https://www.wsfsx.com/book/ivkr34/)
 - [失忆后，和五条激情互演](https://www.wsfsx.com/book/ivkqnr/)

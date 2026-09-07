@@ -1,15 +1,18 @@
 
 # 耽美小说 - 最新全本免费手机小说阅读推荐
 
-更新时间：2026-09-06 03:37:51
+更新时间：2026-09-07 03:38:59
 
 耽美小说为您提供最新最全的小说阅读体验，涵盖古言、现言、原创、玄幻、都市、言情、娱乐、种田、科幻、悬疑、穿越、重生等多种类型。支持手机在线阅读，全本免费小说尽在耽美小说！
 
 - [耽美小说](https://www.shgifts8.com/)
 
 ## 最新小说
+- [我超凶的！[快穿]](https://www.shgifts8.com/book/32uidfm/)
+- [我比反派先崩坏[快穿]](https://www.shgifts8.com/book/32uicjh/)
 - [cos温迪后玩到真崩铁了](https://www.shgifts8.com/book/32ui855/)
 - [躲避原书剧情五年后](https://www.shgifts8.com/book/32ui845/)
+- [欲加之罪](https://www.shgifts8.com/book/32ui7ug/)
 - [自知之明](https://www.shgifts8.com/book/32ui7ua/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.shgifts8.com/book/32ui7u2/)
 - [禁止继承限制级雌君](https://www.shgifts8.com/book/32ui7th/)
@@ -153,7 +156,6 @@
 - [忍界有文学](https://www.shgifts8.com/book/32ug5dn/)
 - [逃妾](https://www.shgifts8.com/book/32ug57n/)
 - [渣攻试图洗白[快穿]](https://www.shgifts8.com/book/32ug57h/)
-- [就算是龙傲天也不可以[快穿]](https://www.shgifts8.com/book/32ug55u/)
 - [战死的阿爹回来了[年代]](https://www.shgifts8.com/book/32ug4v5/)
 - [普通人的乙女RPG[西幻]](https://www.shgifts8.com/book/32ug4tr/)
 - [万人迷总被入侵角色觊觎[快穿]](https://www.shgifts8.com/book/32ug4r7/)
@@ -413,7 +415,6 @@
 - [无能的丈夫们](https://www.shgifts8.com/book/32uf8uv/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.shgifts8.com/book/32uf8t3/)
 - [青山不渡](https://www.shgifts8.com/book/32uf8t0/)
-- [被阴湿坏女人缠上后](https://www.shgifts8.com/book/32uf8nh/)
 - [在重男兄弟间夹缝求生](https://www.shgifts8.com/book/32uf8l0/)
 - [在女仆咖啡店兼职被校草缠上后](https://www.shgifts8.com/book/32uf8ku/)
 - [穿成影后的作死前妻](https://www.shgifts8.com/book/32uf8jo/)
@@ -426,14 +427,12 @@
 - [李玉灯](https://www.shgifts8.com/book/32uf626/)
 - [我，剑圣，养生中，勿扰](https://www.shgifts8.com/book/32uf5t3/)
 - [等我吃腻了再倒闭可以吗](https://www.shgifts8.com/book/32uf3ug/)
-- [盛夏晴浓](https://www.shgifts8.com/book/32uf317/)
 - [[综英美]和亲友群穿哥谭以后](https://www.shgifts8.com/book/32uf22h/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.shgifts8.com/book/32uf0vn/)
 - [自大狂](https://www.shgifts8.com/book/32ueos9/)
 - [书呆子扮演渣攻翻车【快穿】](https://www.shgifts8.com/book/32ueitq/)
 - [丧尸老婆喂养日记](https://www.shgifts8.com/book/32ue67h/)
 - [被四皇错看成小动物后](https://www.shgifts8.com/book/32ud77i/)
-- [纯爱宇智波基本恋爱法](https://www.shgifts8.com/book/32ud6j3/)
 - [[封神]圣人生欲](https://www.shgifts8.com/book/32ud5t4/)
 - [高调装神，猥琐发育](https://www.shgifts8.com/book/32ud5eo/)
 - [你，后室管理员](https://www.shgifts8.com/book/32ud5d7/)

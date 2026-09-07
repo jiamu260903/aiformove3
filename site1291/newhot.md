@@ -1,7 +1,7 @@
 
 # 笔趣阁啦 - 免费小说阅读网
 
-更新时间：2026-09-06 03:36:27
+更新时间：2026-09-07 03:37:36
 
 笔趣阁啦为您提供海量免费小说资源，在线畅读各类热门小说及最新章节更新，支持手机电脑等多种设备访问，让阅读更轻松便捷。
 
@@ -18,6 +18,7 @@
 - [［综英美］蝙蝠崽？我不是啊！](https://www.qingyuchun.com/book/10578le/)
 - [[综英美]和亲友群穿哥谭以后](https://www.qingyuchun.com/book/10578la/)
 - [全世界名为爱的恶意](https://www.qingyuchun.com/book/10578l4/)
+- [欲加之罪](https://www.qingyuchun.com/book/10578kk/)
 - [自知之明](https://www.qingyuchun.com/book/10578kh/)
 - [穿为龙傲天发妻后](https://www.qingyuchun.com/book/10578kg/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.qingyuchun.com/book/10578kd/)
@@ -25,7 +26,6 @@
 - [躲避原书剧情五年后](https://www.qingyuchun.com/book/10578je/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.qingyuchun.com/book/10578j9/)
 - [渡鬼](https://www.qingyuchun.com/book/10578ib/)
-- [失而复得的白月光[快穿]](https://www.qingyuchun.com/book/10578ho/)
 - [[综英美]让我统治哥谭！！！](https://www.qingyuchun.com/book/10578hk/)
 - [青城玩家明明超强却过分谨慎](https://www.qingyuchun.com/book/10578gv/)
 - [暴君偏头痛](https://www.qingyuchun.com/book/10578gl/)
@@ -36,7 +36,6 @@
 - [京秋婚约](https://www.qingyuchun.com/book/10578ab/)
 - [直男咒术师的限制级游戏](https://www.qingyuchun.com/book/105789t/)
 - [阴郁路人不想被喜欢](https://www.qingyuchun.com/book/105788l/)
-- [纯爱宇智波基本恋爱法](https://www.qingyuchun.com/book/105788k/)
 - [求生游戏：当邪神成为生活玩家后](https://www.qingyuchun.com/book/1057876/)
 - [昭暮](https://www.qingyuchun.com/book/1056tbq/)
 - [修仙界都为我神魂颠倒](https://www.qingyuchun.com/book/1056sli/)
@@ -401,7 +400,6 @@
 - [直播捏玩具被榜一大哥撅了](https://www.qingyuchun.com/book/36uvpg/)
 - [神之子与排球的适配性](https://www.qingyuchun.com/book/36uvk1/)
 - [忍界观察日记](https://www.qingyuchun.com/book/36uvgt/)
-- [被阴湿坏女人缠上后](https://www.qingyuchun.com/book/36uvg6/)
 - [作家与读者](https://www.qingyuchun.com/book/36uuk1/)
 - [当了卧底的我发现遍地熟人](https://www.qingyuchun.com/book/36uu18/)
 - [隔壁班的松田君](https://www.qingyuchun.com/book/36uu0k/)

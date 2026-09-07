@@ -1,7 +1,7 @@
 
 # 探秘书院-全本小说最值得收藏的绿色无弹窗免费小说阅读网
 
-更新时间：2026-09-06 03:40:18
+更新时间：2026-09-07 03:41:32
 
 探秘书院提供全本网文爱好者一个纯净、安全、高质量的免费小说阅读环境，支持最新章节在线阅读，所有内容均为绿色无弹窗且保证无错字。
 
@@ -16,6 +16,7 @@
 - [清穿女回来后[天幕]](https://www.tanmi918.com/book/80r4sok/)
 - [等我吃腻了再倒闭可以吗](https://www.tanmi918.com/book/80r4so6/)
 - [全世界名为爱的恶意](https://www.tanmi918.com/book/80r4snm/)
+- [欲加之罪](https://www.tanmi918.com/book/80r4sn8/)
 - [这个替嫁让我来！](https://www.tanmi918.com/book/80r4sn5/)
 - [修仙界都为我神魂颠倒](https://www.tanmi918.com/book/80r4qll/)
 - [[足球]这只后锋小熊是你家俱乐部掉的吗？](https://www.tanmi918.com/book/80r4ql0/)
@@ -84,7 +85,6 @@
 - [我有一座城](https://www.tanmi918.com/book/80r2rfr/)
 - [我被一个古人教会了爱情](https://www.tanmi918.com/book/80r2qjo/)
 - [逃生游戏[无限]](https://www.tanmi918.com/book/80r2q9g/)
-- [失而复得的白月光[快穿]](https://www.tanmi918.com/book/80r2q39/)
 - [期春思](https://www.tanmi918.com/book/80r2q27/)
 - [满级后我的外挂到账了[全息]](https://www.tanmi918.com/book/80r2pqt/)
 - [这个迫嫁我愿意的](https://www.tanmi918.com/book/80r2pkq/)
@@ -405,7 +405,6 @@
 - [让我再吃一口](https://www.tanmi918.com/book/80r1do9/)
 - [请问夫君你哪位](https://www.tanmi918.com/book/80r1dmm/)
 - [癫骨](https://www.tanmi918.com/book/80r1dc6/)
-- [被阴湿坏女人缠上后](https://www.tanmi918.com/book/80r1d8g/)
 - [末世山居日常](https://www.tanmi918.com/book/80r1d8f/)
 - [每天都在和太宰互换身体](https://www.tanmi918.com/book/80r1d4n/)
 - [顶流他姐有神豪系统](https://www.tanmi918.com/book/80r1d2g/)
@@ -422,7 +421,6 @@
 - [刀子精手心的人偶崽崽](https://www.tanmi918.com/book/80r17dj/)
 - [我最讨厌打球了！](https://www.tanmi918.com/book/80r172l/)
 - [求生游戏：当邪神成为生活玩家后](https://www.tanmi918.com/book/80r16u3/)
-- [盛夏晴浓](https://www.tanmi918.com/book/80r128h/)
 - [幼崽假少爷选择回归寒门](https://www.tanmi918.com/book/80r11vk/)
 - [[足球]小小鸟堂堂来袭](https://www.tanmi918.com/book/80r114k/)
 - [好巧，你也是妹控？[综崩铁]](https://www.tanmi918.com/book/80r107t/)
@@ -439,7 +437,6 @@
 - [暴君偏头痛](https://www.tanmi918.com/book/80r0ht4/)
 - [和室友他爸恋爱后](https://www.tanmi918.com/book/80r0g7g/)
 - [阴郁路人不想被喜欢](https://www.tanmi918.com/book/80qv9pr/)
-- [纯爱宇智波基本恋爱法](https://www.tanmi918.com/book/80qv954/)
 - [京秋婚约](https://www.tanmi918.com/book/80qv90f/)
 - [直男咒术师的限制级游戏](https://www.tanmi918.com/book/80qv8ut/)
 ## 相关内容

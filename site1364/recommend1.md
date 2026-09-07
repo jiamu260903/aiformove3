@@ -1,14 +1,13 @@
 
 # 科幻读书-免费小说阅读|言情小说|小说排行榜|全本完本小说下载
 
-更新时间：2026-09-06 03:31:42
+更新时间：2026-09-07 03:32:50
 
 科幻读书提供海量完结全本小说在线阅读服务，涵盖言情、都市、耽美、穿越等多种类型，并定期更新连载章节及发布最新小说排行榜单。支持有声小说推荐与下载。
 
 - [科幻读书](https://www.kehuan918.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.kehuan918.com/book/1d56hds/)
 - [和八个男人在极寒游戏求生](https://www.kehuan918.com/book/1d56hdr/)
 - [怨明月不独照](https://www.kehuan918.com/book/1d56hdq/)
 - [穿为龙傲天发妻后](https://www.kehuan918.com/book/1d56hdp/)
@@ -101,7 +100,6 @@
 - [社畜Beta也能被顶A觊觎吗](https://www.kehuan918.com/book/1d54erm/)
 - [让你们无剧本可走（快穿）](https://www.kehuan918.com/book/1d54crs/)
 - [如何正确哄睡暴君](https://www.kehuan918.com/book/1d54cjp/)
-- [九零首富的替嫁小媳妇](https://www.kehuan918.com/book/1d546ro/)
 - [我骗家里的钱养你啊](https://www.kehuan918.com/book/1d546qe/)
 - [死遁的亡夫们都回来了](https://www.kehuan918.com/book/1d546gl/)
 - [怀了前任大哥的崽后](https://www.kehuan918.com/book/1d545ij/)
@@ -154,6 +152,7 @@
 - [权宋一只统](https://www.kehuan918.com/book/1d520iq/)
 - [爱好和平但狂拆机甲](https://www.kehuan918.com/book/1d51tkk/)
 - [浣熊市蝙蝠崽的哥谭居住指南](https://www.kehuan918.com/book/1d51066/)
+- [老公对不起](https://www.kehuan918.com/book/1d50vu7/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.kehuan918.com/book/1d50vtv/)
 - [海岛求生：生活玩家种田囤货](https://www.kehuan918.com/book/1d50vt0/)
 - [大瑛弟国](https://www.kehuan918.com/book/1d50vsj/)

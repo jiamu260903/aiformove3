@@ -1,7 +1,7 @@
 
 # 科幻读书-免费小说阅读|言情小说|小说排行榜|全本完本小说下载
 
-更新时间：2026-09-06 03:31:42
+更新时间：2026-09-07 03:32:50
 
 科幻读书提供海量完结全本小说在线阅读服务，涵盖言情、都市、耽美、穿越等多种类型，并定期更新连载章节及发布最新小说排行榜单。支持有声小说推荐与下载。
 
@@ -14,6 +14,7 @@
 - [［综英美］蝙蝠崽？我不是啊！](https://www.kehuan918.com/book/1d56hce/)
 - [自知之明](https://www.kehuan918.com/book/1d56hbt/)
 - [等我吃腻了再倒闭可以吗](https://www.kehuan918.com/book/1d56hbk/)
+- [欲加之罪](https://www.kehuan918.com/book/1d56hav/)
 - [这个替嫁让我来！](https://www.kehuan918.com/book/1d56hat/)
 - [[综英美]和亲友群穿哥谭以后](https://www.kehuan918.com/book/1d56h9s/)
 - [清穿女回来后[天幕]](https://www.kehuan918.com/book/1d56h9n/)
@@ -84,7 +85,6 @@
 - [超A奶龙饲养指南](https://www.kehuan918.com/book/1d54hov/)
 - [逃荒[快穿]](https://www.kehuan918.com/book/1d54fkt/)
 - [满级后我的外挂到账了[全息]](https://www.kehuan918.com/book/1d54ffj/)
-- [失而复得的白月光[快穿]](https://www.kehuan918.com/book/1d54fcv/)
 - [反派真少爷搞了个抱错综艺后[穿书]](https://www.kehuan918.com/book/1d54epb/)
 - [恐惧玫瑰](https://www.kehuan918.com/book/1d54eme/)
 - [这个迫嫁我愿意的](https://www.kehuan918.com/book/1d54elo/)
@@ -416,13 +416,11 @@
 - [请问夫君你哪位](https://www.kehuan918.com/book/1d5318s/)
 - [小狗向导，世界瑰宝！](https://www.kehuan918.com/book/1d5310e/)
 - [司寝宫女](https://www.kehuan918.com/book/1d530t1/)
-- [被阴湿坏女人缠上后](https://www.kehuan918.com/book/1d530ro/)
 - [放开那个黑暗哨兵！](https://www.kehuan918.com/book/1d530r9/)
 - [吐槽役审神者会爆改幕后大boss吗](https://www.kehuan918.com/book/1d52umq/)
 - [求生游戏：当邪神成为生活玩家后](https://www.kehuan918.com/book/1d52t45/)
 - [刀子精手心的人偶崽崽](https://www.kehuan918.com/book/1d52t37/)
 - [我最讨厌打球了！](https://www.kehuan918.com/book/1d52rs0/)
-- [盛夏晴浓](https://www.kehuan918.com/book/1d52nnl/)
 - [[足球]小小鸟堂堂来袭](https://www.kehuan918.com/book/1d52n2n/)
 - [幼崽假少爷选择回归寒门](https://www.kehuan918.com/book/1d52lih/)
 - [好巧，你也是妹控？[综崩铁]](https://www.kehuan918.com/book/1d52ke1/)
@@ -439,7 +437,6 @@
 - [自大狂](https://www.kehuan918.com/book/1d526sa/)
 - [和室友他爸恋爱后](https://www.kehuan918.com/book/1d524p8/)
 - [直男咒术师的限制级游戏](https://www.kehuan918.com/book/1d50vp0/)
-- [纯爱宇智波基本恋爱法](https://www.kehuan918.com/book/1d50voa/)
 - [阴郁路人不想被喜欢](https://www.kehuan918.com/book/1d50u95/)
 - [京秋婚约](https://www.kehuan918.com/book/1d50u58/)
 ## 相关内容

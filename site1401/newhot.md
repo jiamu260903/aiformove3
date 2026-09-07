@@ -1,18 +1,21 @@
 
 # 曹操SPA小说 - 小说的海洋，文学的殿堂 | 在线阅读与下载原创小说
 
-更新时间：2026-09-06 03:24:25
+更新时间：2026-09-07 03:25:31
 
 曹操SPA小说是一个专注于优质小说和文学创作的网站，这里是书迷们的天堂，提供丰富的原创网络小说、经典文学作品在线阅读与下载，致力于打造一个充满灵感与创意的文学世界。
 
 - [曹操SPA小说](https://www.caocaospa.com/)
 
 ## 最新小说
+- [我超凶的！[快穿]](https://www.caocaospa.com/book/8q1udg5/)
+- [我比反派先崩坏[快穿]](https://www.caocaospa.com/book/8q1ucjm/)
 - [cos温迪后玩到真崩铁了](https://www.caocaospa.com/book/8q1u86q/)
 - [躲避原书剧情五年后](https://www.caocaospa.com/book/8q1u846/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.caocaospa.com/book/8q1u7to/)
 - [禁止继承限制级雌君](https://www.caocaospa.com/book/8q1u7th/)
 - [穿为龙傲天发妻后](https://www.caocaospa.com/book/8q1u7t2/)
+- [欲加之罪](https://www.caocaospa.com/book/8q1u7sb/)
 - [自知之明](https://www.caocaospa.com/book/8q1u7q8/)
 - [清穿女回来后[天幕]](https://www.caocaospa.com/book/8q1u7q4/)
 - [娇气点怎么啦？［快穿］](https://www.caocaospa.com/book/8q1u7kt/)
@@ -153,7 +156,6 @@
 - [[综英美]让我统治哥谭！！！](https://www.caocaospa.com/book/8q1s5e9/)
 - [逃妾](https://www.caocaospa.com/book/8q1s5bo/)
 - [普通人的乙女RPG[西幻]](https://www.caocaospa.com/book/8q1s4oh/)
-- [就算是龙傲天也不可以[快穿]](https://www.caocaospa.com/book/8q1s4g7/)
 - [和室友他爸恋爱后](https://www.caocaospa.com/book/8q1s4c6/)
 - [大美人怀了enigma上司的崽](https://www.caocaospa.com/book/8q1s47t/)
 - [沉烟](https://www.caocaospa.com/book/8q1s42a/)
@@ -407,7 +409,6 @@
 - [普通高中生，但兼职咒术师](https://www.caocaospa.com/book/8q1r9me/)
 - [神之子与排球的适配性](https://www.caocaospa.com/book/8q1r9jp/)
 - [在重男兄弟间夹缝求生](https://www.caocaospa.com/book/8q1r9bc/)
-- [被阴湿坏女人缠上后](https://www.caocaospa.com/book/8q1r99s/)
 - [刀子精手心的人偶崽崽](https://www.caocaospa.com/book/8q1r941/)
 - [顶流他姐有神豪系统](https://www.caocaospa.com/book/8q1r92s/)
 - [直播捏玩具被榜一大哥撅了](https://www.caocaospa.com/book/8q1r8sa/)
@@ -425,7 +426,6 @@
 - [李玉灯](https://www.caocaospa.com/book/8q1r6kb/)
 - [好巧，你也是妹控？[综崩铁]](https://www.caocaospa.com/book/8q1r6jk/)
 - [我，剑圣，养生中，勿扰](https://www.caocaospa.com/book/8q1r5gq/)
-- [盛夏晴浓](https://www.caocaospa.com/book/8q1r49s/)
 - [等我吃腻了再倒闭可以吗](https://www.caocaospa.com/book/8q1r2lc/)
 - [[综英美]和亲友群穿哥谭以后](https://www.caocaospa.com/book/8q1r0ld/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.caocaospa.com/book/8q1qvlf/)
@@ -434,7 +434,6 @@
 - [丧尸老婆喂养日记](https://www.caocaospa.com/book/8q1q7dm/)
 - [[封神]圣人生欲](https://www.caocaospa.com/book/8q1p7n1/)
 - [误入反派培养直播后](https://www.caocaospa.com/book/8q1p7mp/)
-- [纯爱宇智波基本恋爱法](https://www.caocaospa.com/book/8q1p74a/)
 - [你，后室管理员](https://www.caocaospa.com/book/8q1p6sv/)
 - [被四皇错看成小动物后](https://www.caocaospa.com/book/8q1p6r4/)
 - [高调装神，猥琐发育](https://www.caocaospa.com/book/8q1p4kh/)
