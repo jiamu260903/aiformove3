@@ -1,7 +1,7 @@
 
 # 笔趣阁小说网 - 免费在线阅读百万小说
 
-更新时间：2026-09-06 03:44:07
+更新时间：2026-09-07 03:45:25
 
 笔趣阁小说网提供免费的小说在线阅读服务，包括但不限于各类热门小说、经典文学等。网站支持书架同步功能，确保用户阅读进度永不丢失。快来加入我们，享受无障碍、无广告的纯净阅读体验吧！
 
@@ -13,6 +13,7 @@
 - [同时扮演贵族学院F4和平民校花](https://www.xiaoshuo139.com/book/2ch7u8d/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.xiaoshuo139.com/book/2ch7u8c/)
 - [[综英美]和亲友群穿哥谭以后](https://www.xiaoshuo139.com/book/2ch7u8b/)
+- [欲加之罪](https://www.xiaoshuo139.com/book/2ch7u84/)
 - [自知之明](https://www.xiaoshuo139.com/book/2ch7u80/)
 - [禁止继承限制级雌君](https://www.xiaoshuo139.com/book/2ch7u7n/)
 - [[崩铁]请给玩家一个准确的血条！](https://www.xiaoshuo139.com/book/2ch7u7i/)
@@ -27,14 +28,12 @@
 - [青城玩家明明超强却过分谨慎](https://www.xiaoshuo139.com/book/2ch7u45/)
 - [渡鬼](https://www.xiaoshuo139.com/book/2ch7u3f/)
 - [躲避原书剧情五年后](https://www.xiaoshuo139.com/book/2ch7u39/)
-- [失而复得的白月光[快穿]](https://www.xiaoshuo139.com/book/2ch7u2k/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.xiaoshuo139.com/book/2ch7u1q/)
 - [你，后室管理员](https://www.xiaoshuo139.com/book/2ch7u0n/)
 - [[封神]圣人生欲](https://www.xiaoshuo139.com/book/2ch7tus/)
 - [被四皇错看成小动物后](https://www.xiaoshuo139.com/book/2ch7tup/)
 - [高调装神，猥琐发育](https://www.xiaoshuo139.com/book/2ch7tuc/)
 - [京秋婚约](https://www.xiaoshuo139.com/book/2ch7tst/)
-- [纯爱宇智波基本恋爱法](https://www.xiaoshuo139.com/book/2ch7trj/)
 - [直男咒术师的限制级游戏](https://www.xiaoshuo139.com/book/2ch7tqa/)
 - [阴郁路人不想被喜欢](https://www.xiaoshuo139.com/book/2ch7tpe/)
 - [求生游戏：当邪神成为生活玩家后](https://www.xiaoshuo139.com/book/2ch7tp5/)
@@ -400,7 +399,6 @@
 - [神之子与排球的适配性](https://www.xiaoshuo139.com/book/7kv1va/)
 - [隔壁班的松田君](https://www.xiaoshuo139.com/book/7kv1so/)
 - [忍界观察日记](https://www.xiaoshuo139.com/book/7kv0mf/)
-- [被阴湿坏女人缠上后](https://www.xiaoshuo139.com/book/7kv0l1/)
 - [作家与读者](https://www.xiaoshuo139.com/book/7kv0dd/)
 - [虫族治愈师，但恐虫](https://www.xiaoshuo139.com/book/7kv0a1/)
 - [当了卧底的我发现遍地熟人](https://www.xiaoshuo139.com/book/7kv05d/)

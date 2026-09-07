@@ -1,7 +1,7 @@
 
 # 思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-09-06 03:23:05
+更新时间：2026-09-07 03:24:11
 
 思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,包括但不限于全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等类型的小说供用户免费阅读。
 
@@ -20,6 +20,7 @@
 - [全世界名为爱的恶意](https://www.968577.com/book/1b28mgq/)
 - [[综英美]和亲友群穿哥谭以后](https://www.968577.com/book/1b28mgo/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.968577.com/book/1b28mgn/)
+- [欲加之罪](https://www.968577.com/book/1b28mge/)
 - [清穿女回来后[天幕]](https://www.968577.com/book/1b28mgd/)
 - [我骗家里的钱养你啊](https://www.968577.com/book/1b28mgc/)
 - [青城玩家明明超强却过分谨慎](https://www.968577.com/book/1b28mfc/)
@@ -27,14 +28,12 @@
 - [[综英美]让我统治哥谭！！！](https://www.968577.com/book/1b28me6/)
 - [暴君偏头痛](https://www.968577.com/book/1b28me1/)
 - [躲避原书剧情五年后](https://www.968577.com/book/1b28mbs/)
-- [失而复得的白月光[快穿]](https://www.968577.com/book/1b28mbi/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.968577.com/book/1b28mbf/)
 - [被四皇错看成小动物后](https://www.968577.com/book/1b28mam/)
 - [你，后室管理员](https://www.968577.com/book/1b28m9i/)
 - [[封神]圣人生欲](https://www.968577.com/book/1b28m9c/)
 - [高调装神，猥琐发育](https://www.968577.com/book/1b28m8g/)
 - [京秋婚约](https://www.968577.com/book/1b28m7p/)
-- [纯爱宇智波基本恋爱法](https://www.968577.com/book/1b28m3q/)
 - [直男咒术师的限制级游戏](https://www.968577.com/book/1b28m3a/)
 - [阴郁路人不想被喜欢](https://www.968577.com/book/1b28m37/)
 - [求生游戏：当邪神成为生活玩家后](https://www.968577.com/book/1b28m35/)
@@ -400,7 +399,6 @@
 - [高冷影后逼我标记她](https://www.968577.com/book/49rtlp/)
 - [每天都在和太宰互换身体](https://www.968577.com/book/49rtkl/)
 - [青山不渡](https://www.968577.com/book/49rtjl/)
-- [被阴湿坏女人缠上后](https://www.968577.com/book/49rtgp/)
 - [随便捡小狗会出大问题](https://www.968577.com/book/49rt9g/)
 - [国舅太难追了](https://www.968577.com/book/49rt7b/)
 - [让我再吃一口](https://www.968577.com/book/49rt4q/)

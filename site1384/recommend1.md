@@ -1,7 +1,7 @@
 
 # 积家健康小说 - 无弹窗无广告小说在线阅读
 
-更新时间：2026-09-06 03:29:33
+更新时间：2026-09-07 03:30:40
 
 积家健康小说提供一个干净简洁的平台让您享受无弹窗无广告的小说在线阅读体验。无论是在线阅读还是下载小说，都是完全免费的。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.jijiajk.com/book/3ab2t4u/)
-- [揣崽丧夫后被情敌强娶了](https://www.jijiajk.com/book/3ab2t38/)
 - [怨明月不独照](https://www.jijiajk.com/book/3ab2pof/)
 - [前妻她肯定会后悔](https://www.jijiajk.com/book/3ab2poe/)
 - [二次分化后他怀了死对头的崽](https://www.jijiajk.com/book/3ab2pod/)
@@ -148,7 +147,6 @@
 - [在民俗惊悚片被诸神庇护](https://www.jijiajk.com/book/3aatj93/)
 - [星际团宠小人鱼](https://www.jijiajk.com/book/3aatj10/)
 - [假少爷离开后](https://www.jijiajk.com/book/3aatisa/)
-- [九零首富的替嫁小媳妇](https://www.jijiajk.com/book/3aatirm/)
 - [卷王后妈，八零养娃](https://www.jijiajk.com/book/3aatirf/)
 - [[封神]圣人生欲](https://www.jijiajk.com/book/3aatin5/)
 - [十九世纪贵族厨房（美食）](https://www.jijiajk.com/book/3aatik0/)
@@ -159,6 +157,7 @@
 - [[娱乐圈]过分美丽的她](https://www.jijiajk.com/book/3aati0n/)
 - [成为养成系练习生后](https://www.jijiajk.com/book/3aathqe/)
 - [五十年代港城日常](https://www.jijiajk.com/book/3aathn2/)
+- [老公对不起](https://www.jijiajk.com/book/3aathl4/)
 - [我是唯一地上神国](https://www.jijiajk.com/book/3aathhu/)
 - [全民求生:从小木屋到魔法农场](https://www.jijiajk.com/book/3aathhe/)
 - [高门小婢](https://www.jijiajk.com/book/3aath31/)

@@ -1,7 +1,7 @@
 
 # 生活文学小说-质感小说文学网站|高质量文学作品与创作交流平台
 
-更新时间：2026-09-06 03:37:20
+更新时间：2026-09-07 03:38:29
 
 生活文学小说是一个专注于提供质感小说文学的网站，致力于为文学爱好者打造一个高质量的文学作品和创作交流平台，在这里可以享受到独特的夜间文学之美。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.shenghuo988.com/book/86gb7o5/)
-- [揣崽丧夫后被情敌强娶了](https://www.shenghuo988.com/book/86gb7o4/)
 - [穿咒术，但杀猴现场](https://www.shenghuo988.com/book/86gb7o3/)
 - [世界伏于她刀下[无限]](https://www.shenghuo988.com/book/86gb7o0/)
 - [[综英美]哥谭市民，在线抽卡](https://www.shenghuo988.com/book/86gb7nu/)
@@ -105,7 +104,6 @@
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.shenghuo988.com/book/86g8s3l/)
 - [死遁的亡夫们都回来了](https://www.shenghuo988.com/book/86g8s0j/)
 - [怀了前任大哥的崽后](https://www.shenghuo988.com/book/86g8qir/)
-- [九零首富的替嫁小媳妇](https://www.shenghuo988.com/book/86g8qef/)
 - [在民俗惊悚片被诸神庇护](https://www.shenghuo988.com/book/86g8jrd/)
 - [沈助理又在隐藏他的超能力](https://www.shenghuo988.com/book/86g8j10/)
 - [死对头又在挑衅我](https://www.shenghuo988.com/book/86g8hsf/)
@@ -158,6 +156,7 @@
 - [[娱乐圈]过分美丽的她](https://www.shenghuo988.com/book/86g5mgt/)
 - [高门小婢](https://www.shenghuo988.com/book/86g5lqi/)
 - [海岛求生：生活玩家种田囤货](https://www.shenghuo988.com/book/86g5lot/)
+- [老公对不起](https://www.shenghuo988.com/book/86g5log/)
 - [95美国贵族高中模拟](https://www.shenghuo988.com/book/86g5lj2/)
 - [假少爷离开后](https://www.shenghuo988.com/book/86g5lb9/)
 - [成为养成系练习生后](https://www.shenghuo988.com/book/86g5l83/)

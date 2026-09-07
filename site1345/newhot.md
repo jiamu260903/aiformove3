@@ -1,7 +1,7 @@
 
 # 探秘笔神阁小说-好看小说快速更新,页面清新流畅的免费小说网
 
-更新时间：2026-09-06 03:40:04
+更新时间：2026-09-07 03:41:16
 
 探秘笔神阁小说收录了大量受欢迎的小说作品，以极快的速度进行更新，并且保证用户在阅读时能够享受到清新流畅的页面体验。作为一个完全免费的小说网站，它深受广大网友的喜爱。
 
@@ -15,6 +15,7 @@
 - [清穿女回来后[天幕]](https://www.tanmi818.com/book/977fh9c/)
 - [等我吃腻了再倒闭可以吗](https://www.tanmi818.com/book/977fh93/)
 - [穿为龙傲天发妻后](https://www.tanmi818.com/book/977fh84/)
+- [欲加之罪](https://www.tanmi818.com/book/977fh7r/)
 - [自知之明](https://www.tanmi818.com/book/977fh6t/)
 - [[综英美]和亲友群穿哥谭以后](https://www.tanmi818.com/book/977fh6f/)
 - [修仙界都为我神魂颠倒](https://www.tanmi818.com/book/977ff78/)
@@ -87,7 +88,6 @@
 - [被马甲团宠的我开启地狱模式](https://www.tanmi818.com/book/977de5p/)
 - [[足球]听克圣的话，成了米兰金童](https://www.tanmi818.com/book/977de3f/)
 - [我被一个古人教会了爱情](https://www.tanmi818.com/book/977de0h/)
-- [失而复得的白月光[快穿]](https://www.tanmi818.com/book/977ddq5/)
 - [逃生游戏[无限]](https://www.tanmi818.com/book/977ddl2/)
 - [期春思](https://www.tanmi818.com/book/977ddi9/)
 - [满级后我的外挂到账了[全息]](https://www.tanmi818.com/book/977ddhv/)
@@ -412,7 +412,6 @@
 - [救命！猫尾巴藏不住了](https://www.tanmi818.com/book/977c19s/)
 - [普通高中生，但兼职咒术师](https://www.tanmi818.com/book/977c196/)
 - [癫骨](https://www.tanmi818.com/book/977c14m/)
-- [被阴湿坏女人缠上后](https://www.tanmi818.com/book/977c139/)
 - [每天都在和太宰互换身体](https://www.tanmi818.com/book/977c11h/)
 - [穿成影后的作死前妻](https://www.tanmi818.com/book/977c0uv/)
 - [在重男兄弟间夹缝求生](https://www.tanmi818.com/book/977c0ur/)
@@ -423,7 +422,6 @@
 - [我最讨厌打球了！](https://www.tanmi818.com/book/977bt6p/)
 - [求生游戏：当邪神成为生活玩家后](https://www.tanmi818.com/book/977bt14/)
 - [[足球]小小鸟堂堂来袭](https://www.tanmi818.com/book/977bndt/)
-- [盛夏晴浓](https://www.tanmi818.com/book/977bmgc/)
 - [幼崽假少爷选择回归寒门](https://www.tanmi818.com/book/977bm42/)
 - [欢迎来到重生点](https://www.tanmi818.com/book/977bk88/)
 - [青城玩家明明超强却过分谨慎](https://www.tanmi818.com/book/977bjb0/)
@@ -438,7 +436,6 @@
 - [关于我虚构了一个男友这件事](https://www.tanmi818.com/book/977bbr8/)
 - [我，剑圣，养生中，勿扰](https://www.tanmi818.com/book/977b9qj/)
 - [和室友他爸恋爱后](https://www.tanmi818.com/book/977b64k/)
-- [纯爱宇智波基本恋爱法](https://www.tanmi818.com/book/9779vct/)
 - [阴郁路人不想被喜欢](https://www.tanmi818.com/book/9779v88/)
 - [京秋婚约](https://www.tanmi818.com/book/9779v81/)
 - [直男咒术师的限制级游戏](https://www.tanmi818.com/book/9779u7v/)

@@ -1,7 +1,7 @@
 
 # 欣怡书屋 - 免费最新章节小说阅读,全本无弹窗
 
-更新时间：2026-09-06 03:47:58
+更新时间：2026-09-07 03:49:15
 
 欣怡书屋是最值得收藏的小说阅读网之一，提供大量热门网络小说的免费阅读服务。所有小说均为高质量，并且支持最新章节即时更新与全本无弹窗浏览体验。
 
@@ -13,6 +13,7 @@
 - [清穿女回来后[天幕]](https://www.znenghs.com/book/5n2k95u/)
 - [咦？我爸爸复活啦](https://www.znenghs.com/book/5n2k95s/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.znenghs.com/book/5n2k95q/)
+- [欲加之罪](https://www.znenghs.com/book/5n2k95o/)
 - [[综英美]和亲友群穿哥谭以后](https://www.znenghs.com/book/5n2k95g/)
 - [全世界名为爱的恶意](https://www.znenghs.com/book/5n2k95f/)
 - [[足球]小小鸟堂堂来袭](https://www.znenghs.com/book/5n2k95a/)
@@ -25,7 +26,6 @@
 - [青城玩家明明超强却过分谨慎](https://www.znenghs.com/book/5n2k940/)
 - [躲避原书剧情五年后](https://www.znenghs.com/book/5n2k93v/)
 - [[综英美]让我统治哥谭！！！](https://www.znenghs.com/book/5n2k93q/)
-- [失而复得的白月光[快穿]](https://www.znenghs.com/book/5n2k93l/)
 - [求求你们别吃了](https://www.znenghs.com/book/5n2k93a/)
 - [暴君偏头痛](https://www.znenghs.com/book/5n2k930/)
 - [渡鬼](https://www.znenghs.com/book/5n2k927/)
@@ -37,7 +37,6 @@
 - [阴郁路人不想被喜欢](https://www.znenghs.com/book/5n2k8r0/)
 - [京秋婚约](https://www.znenghs.com/book/5n2k8oe/)
 - [直男咒术师的限制级游戏](https://www.znenghs.com/book/5n2k8nt/)
-- [纯爱宇智波基本恋爱法](https://www.znenghs.com/book/5n2k8nf/)
 - [求生游戏：当邪神成为生活玩家后](https://www.znenghs.com/book/5n2k8n7/)
 - [穿书八年后，女配再就业](https://www.znenghs.com/book/5n2ju04/)
 - [昭暮](https://www.znenghs.com/book/5n2jtr8/)
@@ -398,7 +397,6 @@
 - [虫族治愈师，但恐虫](https://www.znenghs.com/book/i9t33m/)
 - [青山不渡](https://www.znenghs.com/book/i9t2vr/)
 - [咒术师，但队友是侦探](https://www.znenghs.com/book/i9t2vq/)
-- [被阴湿坏女人缠上后](https://www.znenghs.com/book/i9t2ob/)
 - [放开那个黑暗哨兵！](https://www.znenghs.com/book/i9t2o7/)
 - [[足球]在比利时我们只玩天赋](https://www.znenghs.com/book/i9t2bu/)
 - [普通高中生，但兼职咒术师](https://www.znenghs.com/book/i9t28d/)

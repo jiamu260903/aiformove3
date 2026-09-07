@@ -1,7 +1,7 @@
 
 # 奇幻凤影台小说-都市玄幻言情仙侠免费小说在线阅读
 
-更新时间：2026-09-06 03:35:41
+更新时间：2026-09-07 03:36:50
 
 奇幻凤影台小说提供都市玄幻、言情仙侠等类型的小说在线免费阅读服务。让您的通勤路上不再无聊，无论是日常出行还是夜晚静谧时刻，总有一本好书陪伴您度过美好时光。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.qihuan868.com/book/42idtgv/)
-- [揣崽丧夫后被情敌强娶了](https://www.qihuan868.com/book/42idtgu/)
 - [[全职高手]治疗什么的不干了！](https://www.qihuan868.com/book/42idtgq/)
 - [从1951开始](https://www.qihuan868.com/book/42idtgp/)
 - [魔尊闭关十年连生十一子？！](https://www.qihuan868.com/book/42idtgl/)
@@ -102,7 +101,6 @@
 - [社畜Beta也能被顶A觊觎吗](https://www.qihuan868.com/book/42ibovu/)
 - [如何正确哄睡暴君](https://www.qihuan868.com/book/42ibm70/)
 - [怀了前任大哥的崽后](https://www.qihuan868.com/book/42ibikp/)
-- [九零首富的替嫁小媳妇](https://www.qihuan868.com/book/42ibh25/)
 - [死遁的亡夫们都回来了](https://www.qihuan868.com/book/42ibgl5/)
 - [阴郁残疾炮灰被万人迷后[快穿]](https://www.qihuan868.com/book/42ibg3m/)
 - [我骗家里的钱养你啊](https://www.qihuan868.com/book/42ibg2r/)
@@ -162,6 +160,7 @@
 - [95美国贵族高中模拟](https://www.qihuan868.com/book/42i8amh/)
 - [清澈女大的六零年代](https://www.qihuan868.com/book/42i8alm/)
 - [成为养成系练习生后](https://www.qihuan868.com/book/42i8af4/)
+- [老公对不起](https://www.qihuan868.com/book/42i8a9p/)
 - [全民求生:从小木屋到魔法农场](https://www.qihuan868.com/book/42i89vm/)
 - [[诡秘之主]极光会的我因为太过智慧成为真神了](https://www.qihuan868.com/book/42i89ov/)
 - [假少爷离开后](https://www.qihuan868.com/book/42i89mi/)

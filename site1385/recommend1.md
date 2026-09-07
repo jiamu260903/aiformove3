@@ -1,7 +1,7 @@
 
 # 宁波慈绿农垦小说-全本小说最值得收藏的绿色无弹窗免费小说阅读网
 
-更新时间：2026-09-06 03:34:11
+更新时间：2026-09-07 03:35:19
 
 宁波慈绿农垦小说提供全本网文爱好者一个纯净、安全、高质量的免费小说阅读环境，支持最新章节在线阅读，所有内容均为绿色无弹窗且保证无错字。
 
@@ -9,7 +9,6 @@
 
 ## 最新小说
 - [和八个男人在极寒游戏求生](https://www.nbcxnk.com/book/2ss0ur7/)
-- [揣崽丧夫后被情敌强娶了](https://www.nbcxnk.com/book/2ss0ur4/)
 - [恐游作精女配求生指南](https://www.nbcxnk.com/book/2ss0rg1/)
 - [国运求生：我的金手指是生命树](https://www.nbcxnk.com/book/2ss0rfv/)
 - [SSS级异种都是我前任](https://www.nbcxnk.com/book/2ss0rft/)
@@ -155,11 +154,11 @@
 - [六零之成了卷王的妹妹](https://www.nbcxnk.com/book/2srrk3o/)
 - [海岛求生：生活玩家种田囤货](https://www.nbcxnk.com/book/2srrk0v/)
 - [大瑛弟国](https://www.nbcxnk.com/book/2srrjui/)
+- [老公对不起](https://www.nbcxnk.com/book/2srrjti/)
 - [星际团宠小人鱼](https://www.nbcxnk.com/book/2srrjt3/)
 - [原配夫人](https://www.nbcxnk.com/book/2srrjqt/)
 - [趁她之危](https://www.nbcxnk.com/book/2srrjik/)
 - [全民求生:从小木屋到魔法农场](https://www.nbcxnk.com/book/2srrjcg/)
-- [九零首富的替嫁小媳妇](https://www.nbcxnk.com/book/2srrjca/)
 - [高调装神，猥琐发育](https://www.nbcxnk.com/book/2srrj6v/)
 - [95美国贵族高中模拟](https://www.nbcxnk.com/book/2srriuu/)
 - [卷王后妈，八零养娃](https://www.nbcxnk.com/book/2srrirn/)

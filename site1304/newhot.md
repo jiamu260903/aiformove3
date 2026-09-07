@@ -1,7 +1,7 @@
 
 # 唯我小说网-最新小说在线阅读,好看小说全文阅读
 
-更新时间：2026-09-06 03:28:56
+更新时间：2026-09-07 03:30:04
 
 唯我小说网提供最新最热门的小说在线阅读服务，包括但不限于各类好看的小说全文内容，满足广大读者的需求。
 
@@ -17,6 +17,7 @@
 - [穿为龙傲天发妻后](https://www.hkffbw.com/book/4nr5rlm/)
 - [全世界名为爱的恶意](https://www.hkffbw.com/book/4nr5rlk/)
 - [等我吃腻了再倒闭可以吗](https://www.hkffbw.com/book/4nr5rld/)
+- [欲加之罪](https://www.hkffbw.com/book/4nr5rl0/)
 - [自知之明](https://www.hkffbw.com/book/4nr5rkv/)
 - [同时扮演贵族学院F4和平民校花](https://www.hkffbw.com/book/4nr5rkq/)
 - [[足球]小小鸟堂堂来袭](https://www.hkffbw.com/book/4nr5rkg/)
@@ -28,7 +29,6 @@
 - [青城玩家明明超强却过分谨慎](https://www.hkffbw.com/book/4nr5rh8/)
 - [[综英美]让我统治哥谭！！！](https://www.hkffbw.com/book/4nr5rfb/)
 - [[足球]啊我玩的原来是盗版游戏啊！？！](https://www.hkffbw.com/book/4nr5rf8/)
-- [失而复得的白月光[快穿]](https://www.hkffbw.com/book/4nr5rf5/)
 - [[封神]圣人生欲](https://www.hkffbw.com/book/4nr5ren/)
 - [你，后室管理员](https://www.hkffbw.com/book/4nr5rec/)
 - [被四皇错看成小动物后](https://www.hkffbw.com/book/4nr5rd8/)
@@ -36,7 +36,6 @@
 - [京秋婚约](https://www.hkffbw.com/book/4nr5rae/)
 - [阴郁路人不想被喜欢](https://www.hkffbw.com/book/4nr5r9m/)
 - [直男咒术师的限制级游戏](https://www.hkffbw.com/book/4nr5r9h/)
-- [纯爱宇智波基本恋爱法](https://www.hkffbw.com/book/4nr5r9a/)
 - [求生游戏：当邪神成为生活玩家后](https://www.hkffbw.com/book/4nr5r75/)
 - [昭暮](https://www.hkffbw.com/book/4nr5gak/)
 - [修仙界都为我神魂颠倒](https://www.hkffbw.com/book/4nr550g/)
@@ -394,7 +393,6 @@
 - [[足球]在比利时我们只玩天赋](https://www.hkffbw.com/book/f5uqv4/)
 - [咒术师，但队友是侦探](https://www.hkffbw.com/book/f5uqu4/)
 - [作家与读者](https://www.hkffbw.com/book/f5uqif/)
-- [被阴湿坏女人缠上后](https://www.hkffbw.com/book/f5uqi6/)
 - [癫骨](https://www.hkffbw.com/book/f5uqh7/)
 - [举朝上下为我的神仙人设头疼中](https://www.hkffbw.com/book/f5uqfv/)
 - [失忆后，和五条激情互演](https://www.hkffbw.com/book/f5uqbd/)

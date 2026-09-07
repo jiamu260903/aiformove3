@@ -1,7 +1,7 @@
 
 # 漫话乐文小说-免费小说阅读,无弹窗,最新章节更新快
 
-更新时间：2026-09-06 03:33:41
+更新时间：2026-09-07 03:34:49
 
 漫话乐文小说是广大书友最值得收藏的网络小说阅读网，提供当前最火热的网络小说免费阅读服务，高质量的小说最新章节更新快速，适合所有网络小说爱好者。
 
@@ -12,6 +12,7 @@
 - [全世界名为爱的恶意](https://www.manhua958.com/book/17sctrb/)
 - [清穿女回来后[天幕]](https://www.manhua958.com/book/17sctqq/)
 - [等我吃腻了再倒闭可以吗](https://www.manhua958.com/book/17sctq4/)
+- [欲加之罪](https://www.manhua958.com/book/17sctpi/)
 - [［综英美］蝙蝠崽？我不是啊！](https://www.manhua958.com/book/17sctov/)
 - [穿为龙傲天发妻后](https://www.manhua958.com/book/17sctos/)
 - [自知之明](https://www.manhua958.com/book/17sctnq/)
@@ -82,7 +83,6 @@
 - [bl世界的路人不想被掰弯](https://www.manhua958.com/book/17satlo/)
 - [我有一座城](https://www.manhua958.com/book/17sashr/)
 - [我在虫族扮绿茶吃老虎](https://www.manhua958.com/book/17sas9l/)
-- [失而复得的白月光[快穿]](https://www.manhua958.com/book/17sas2m/)
 - [逃荒[快穿]](https://www.manhua958.com/book/17sartk/)
 - [恐惧玫瑰](https://www.manhua958.com/book/17sarom/)
 - [期春思](https://www.manhua958.com/book/17sarj2/)
@@ -395,7 +395,6 @@
 - [穿成影后的作死前妻](https://www.manhua958.com/book/17s9frk/)
 - [小狗向导，世界瑰宝！](https://www.manhua958.com/book/17s9fh3/)
 - [我靠玛丽苏系统伪装神女](https://www.manhua958.com/book/17s9ffo/)
-- [被阴湿坏女人缠上后](https://www.manhua958.com/book/17s9fei/)
 - [青空来信](https://www.manhua958.com/book/17s9f9s/)
 - [[足球]罗蜜第一志愿](https://www.manhua958.com/book/17s9f9o/)
 - [失忆后，和五条激情互演](https://www.manhua958.com/book/17s9f1s/)
@@ -424,7 +423,6 @@
 - [我最讨厌打球了！](https://www.manhua958.com/book/17s98nd/)
 - [[足球]小小鸟堂堂来袭](https://www.manhua958.com/book/17s93ke/)
 - [幼崽假少爷选择回归寒门](https://www.manhua958.com/book/17s92q8/)
-- [盛夏晴浓](https://www.manhua958.com/book/17s927c/)
 - [欢迎来到重生点](https://www.manhua958.com/book/17s91e9/)
 - [好巧，你也是妹控？[综崩铁]](https://www.manhua958.com/book/17s8vuk/)
 - [青城玩家明明超强却过分谨慎](https://www.manhua958.com/book/17s8vim/)
@@ -440,7 +438,6 @@
 - [和室友他爸恋爱后](https://www.manhua958.com/book/17s8hn1/)
 - [直男咒术师的限制级游戏](https://www.manhua958.com/book/17s7cjd/)
 - [京秋婚约](https://www.manhua958.com/book/17s7c3i/)
-- [纯爱宇智波基本恋爱法](https://www.manhua958.com/book/17s7ar2/)
 - [阴郁路人不想被喜欢](https://www.manhua958.com/book/17s7aft/)
 ## 相关内容
 - [README](/README.md)

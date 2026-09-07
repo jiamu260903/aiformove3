@@ -1,14 +1,13 @@
 
 # 曹操SPA小说 - 小说的海洋，文学的殿堂 | 在线阅读与下载原创小说
 
-更新时间：2026-09-06 03:24:25
+更新时间：2026-09-07 03:25:31
 
 曹操SPA小说是一个专注于优质小说和文学创作的网站，这里是书迷们的天堂，提供丰富的原创网络小说、经典文学作品在线阅读与下载，致力于打造一个充满灵感与创意的文学世界。
 
 - [曹操SPA小说](https://www.caocaospa.com/)
 
 ## 最新小说
-- [揣崽丧夫后被情敌强娶了](https://www.caocaospa.com/book/8q1ubau/)
 - [和八个男人在极寒游戏求生](https://www.caocaospa.com/book/8q1ub9o/)
 - [全民求生，但剑三](https://www.caocaospa.com/book/8q1u7u3/)
 - [国运求生：我的金手指是生命树](https://www.caocaospa.com/book/8q1u7u1/)
@@ -150,6 +149,7 @@
 - [趁她之危](https://www.caocaospa.com/book/8q1p7o1/)
 - [[封神]圣人生欲](https://www.caocaospa.com/book/8q1p7n1/)
 - [在民俗惊悚片被诸神庇护](https://www.caocaospa.com/book/8q1p7kj/)
+- [老公对不起](https://www.caocaospa.com/book/8q1p7h7/)
 - [我是唯一地上神国](https://www.caocaospa.com/book/8q1p7ab/)
 - [成为养成系练习生后](https://www.caocaospa.com/book/8q1p7a7/)
 - [[娱乐圈]过分美丽的她](https://www.caocaospa.com/book/8q1p6ls/)
@@ -158,7 +158,6 @@
 - [假少爷离开后](https://www.caocaospa.com/book/8q1p6a3/)
 - [原配夫人](https://www.caocaospa.com/book/8q1p61d/)
 - [卷王后妈，八零养娃](https://www.caocaospa.com/book/8q1p60t/)
-- [九零首富的替嫁小媳妇](https://www.caocaospa.com/book/8q1p5ub/)
 - [星际团宠小人鱼](https://www.caocaospa.com/book/8q1p5tj/)
 - [日化人生[科研]](https://www.caocaospa.com/book/8q1p5of/)
 - [巨物致富：回乡开钓场](https://www.caocaospa.com/book/8q1p5jl/)
