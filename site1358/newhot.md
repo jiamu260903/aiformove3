@@ -1,7 +1,7 @@
 
 # 哲理书客吧-全本小说免费阅读及txt下载,最新章节无弹窗
 
-更新时间：2026-09-08 03:49:41
+更新时间：2026-09-09 03:50:01
 
 哲理书客吧提供最快更新的热门网络小说最新章节，支持全本小说在线免费阅读与txt电子书打包下载服务。收录多本经典好看的小说，并承诺无广告弹窗清爽阅读体验，是小说爱好者的理想选择。 https://www.zheli518.com
 
@@ -165,10 +165,8 @@
 - 老公是松散生命体 https://www.zheli518.com/book/4tao1qs/
 - [全职高手]小船 https://www.zheli518.com/book/4tao1k5/
 - 普通人的乙女RPG[西幻] https://www.zheli518.com/book/4tao1gm/
-- 沈助理又在隐藏他的超能力 https://www.zheli518.com/book/4tao1b8/
 - 忍界有文学 https://www.zheli518.com/book/4tao11v/
 - 万人迷总被入侵角色觊觎[快穿] https://www.zheli518.com/book/4tao0vb/
-- 被鬼怪宠爱的漂亮书生 https://www.zheli518.com/book/4tao0lo/
 - 渣攻试图洗白[快穿] https://www.zheli518.com/book/4tao0hb/
 - [足球]那个德国队新皇 https://www.zheli518.com/book/4tao0ac/
 - 我在原始种田 https://www.zheli518.com/book/4tao06h/
@@ -243,7 +241,6 @@
 - 摆烂后我成了邪神学院大佬 https://www.zheli518.com/book/4tanl7m/
 - 都说了我很娇纵了 https://www.zheli518.com/book/4tanl7c/
 - 荒谬神父是个渣 https://www.zheli518.com/book/4tanl0b/
-- 误入反派培养直播后 https://www.zheli518.com/book/4tanksl/
 - 请别摘下超能力社恐的耳机 https://www.zheli518.com/book/4tankot/
 - 社畜，但是天才魔导师 https://www.zheli518.com/book/4tankje/
 - 恶毒女配是绝色美人[快穿] https://www.zheli518.com/book/4tankh5/
@@ -290,7 +287,6 @@
 - 贵族学院的直男跟班 https://www.zheli518.com/book/4tang2r/
 - 月光白 https://www.zheli518.com/book/4tanfva/
 - 佐久早才不是洁癖！ https://www.zheli518.com/book/4tanfm8/
-- 炮灰的我该如何上位？ https://www.zheli518.com/book/4tanfkt/
 - 好好做1 https://www.zheli518.com/book/4tanfj7/
 - 哥你不能不要我 https://www.zheli518.com/book/4tanfir/
 - 修仙回来后开了间民宿 https://www.zheli518.com/book/4tanfgn/
@@ -437,7 +433,7 @@
 - 满级竹马从异世穿回来了 https://www.zheli518.com/book/4tam32j/
 - 直男咒术师的限制级游戏 https://www.zheli518.com/book/4tal5a1/
 - 京秋婚约 https://www.zheli518.com/book/4tal514/
-- 阴郁路人不想被喜欢 https://www.zheli518.com/book/4tal3sm/
+- 魔物堆里的人类幼崽 https://www.zheli518.com/book/4tal4o5/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1358/index.md)

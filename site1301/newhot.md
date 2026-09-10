@@ -1,7 +1,7 @@
 
 # 系统流小说网 - 免费在线阅读各类热门小说
 
-更新时间：2026-09-08 03:38:57
+更新时间：2026-09-09 03:38:57
 
 系统流小说网为您提供免费在线阅读服务，涵盖了玄幻魔法、武侠修真、都市言情等多类别的小说资源，是读者们最喜爱的小说阅读平台之一。 https://www.ronsriverboat.com
 
@@ -32,7 +32,7 @@
 - [封神]圣人生欲 https://www.ronsriverboat.com/book/8583sbu/
 - 被四皇错看成小动物后 https://www.ronsriverboat.com/book/8583sbg/
 - 高调装神，猥琐发育 https://www.ronsriverboat.com/book/8583sag/
-- 阴郁路人不想被喜欢 https://www.ronsriverboat.com/book/8583s6s/
+- 魔物堆里的人类幼崽 https://www.ronsriverboat.com/book/8583s7v/
 - 京秋婚约 https://www.ronsriverboat.com/book/8583s6j/
 - 满级竹马从异世穿回来了 https://www.ronsriverboat.com/book/8583s5j/
 - 直男咒术师的限制级游戏 https://www.ronsriverboat.com/book/8583s5h/
@@ -199,7 +199,6 @@
 - 旖旎新婚 https://www.ronsriverboat.com/book/q42gmr/
 - [综英美]和小杰鸟青梅竹马的日子 https://www.ronsriverboat.com/book/q42gmj/
 - 开局一间小卖部[经营] https://www.ronsriverboat.com/book/q42gi2/
-- 沈助理又在隐藏他的超能力 https://www.ronsriverboat.com/book/q42gha/
 - 暗堕本丸，在线直播 https://www.ronsriverboat.com/book/q42gdi/
 - 夏油弟弟在立海大 https://www.ronsriverboat.com/book/q42gcf/
 - 绝色美人模拟器[快穿] https://www.ronsriverboat.com/book/q42gc9/
@@ -410,7 +409,6 @@
 - 这谁的沙雕二次元心声！ https://www.ronsriverboat.com/book/q41jcq/
 - 老公是松散生命体 https://www.ronsriverboat.com/book/q41ipf/
 - 我最讨厌打球了！ https://www.ronsriverboat.com/book/q41bun/
-- 误入反派培养直播后 https://www.ronsriverboat.com/book/q41aa9/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.ronsriverboat.com/book/q4163k/
 - [足球]罗蜜第一志愿 https://www.ronsriverboat.com/book/q41526/
 - 哥你不能不要我 https://www.ronsriverboat.com/book/q40ht7/

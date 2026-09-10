@@ -1,7 +1,7 @@
 
 # 看剧文学网 - 书友最值得收藏的小说阅读网
 
-更新时间：2026-09-08 03:32:42
+更新时间：2026-09-09 03:32:46
 
 看剧文学网，精选最好看的小说推荐给大家在线阅读。这里有网络小说大全，包括最火、最热门的小说最新章节，是书友最值得收藏的免费小说阅读网。 https://www.kanju788.com
 
@@ -159,7 +159,6 @@
 - 被迫跟死对头结婚后 https://www.kanju788.com/book/to2bs4/
 - 灰墙之下 https://www.kanju788.com/book/to2bp2/
 - 绑定惊吓系统但对象狂涨好感有救吗 https://www.kanju788.com/book/to2bi3/
-- 被鬼怪宠爱的漂亮书生 https://www.kanju788.com/book/to2b0c/
 - [全职高手]小船 https://www.kanju788.com/book/to2asa/
 - 沉烟 https://www.kanju788.com/book/to2as6/
 - 苗疆蛊女模拟器 https://www.kanju788.com/book/to2aco/
@@ -169,7 +168,6 @@
 - 纨绔渣A拒绝入赘长公主府 https://www.kanju788.com/book/to29lg/
 - 普通人的乙女RPG[西幻] https://www.kanju788.com/book/to29l9/
 - 忍界有文学 https://www.kanju788.com/book/to29c2/
-- 沈助理又在隐藏他的超能力 https://www.kanju788.com/book/to28i7/
 - 全小区宠物都是卧底 https://www.kanju788.com/book/to285m/
 - 人设抽卡中[快穿] https://www.kanju788.com/book/to27td/
 - 穿到废土末世三十年后 https://www.kanju788.com/book/to27oa/
@@ -239,7 +237,6 @@
 - 人外收集录［快穿］ https://www.kanju788.com/book/to1tlt/
 - 吃瓜也能整顿豪门？ https://www.kanju788.com/book/to1tli/
 - 父皇，我是gay https://www.kanju788.com/book/to1tk6/
-- 误入反派培养直播后 https://www.kanju788.com/book/to1tih/
 - 变成龙傲天的心上猫后 https://www.kanju788.com/book/to1tas/
 - 一见倾心[快穿] https://www.kanju788.com/book/to1t48/
 - 反派的病弱白月光重生了 https://www.kanju788.com/book/to1ssa/
@@ -288,7 +285,6 @@
 - 被小蜘蛛听见心声后 https://www.kanju788.com/book/to1o6o/
 - 拯救美强惨女主进行时[快穿] https://www.kanju788.com/book/to1o42/
 - 一觉醒来老公变男大了 https://www.kanju788.com/book/to1o3r/
-- 炮灰的我该如何上位？ https://www.kanju788.com/book/to1o3d/
 - [西汉]我打工给全家改命 https://www.kanju788.com/book/to1nun/
 - 修仙回来后开了间民宿 https://www.kanju788.com/book/to1ntc/
 - 穿进民国后宅从杂役做起 https://www.kanju788.com/book/to1nt7/
@@ -435,7 +431,7 @@
 - 我，剑圣，养生中，勿扰 https://www.kanju788.com/book/to0nug/
 - 和室友他爸恋爱后 https://www.kanju788.com/book/to0imn/
 - 满级竹马从异世穿回来了 https://www.kanju788.com/book/to0bk1/
-- 阴郁路人不想被喜欢 https://www.kanju788.com/book/tnvbms/
+- 魔物堆里的人类幼崽 https://www.kanju788.com/book/tnvdar/
 - 直男咒术师的限制级游戏 https://www.kanju788.com/book/tnvb1d/
 - 京秋婚约 https://www.kanju788.com/book/tnvat3/
 ## 相关内容

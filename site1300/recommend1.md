@@ -1,7 +1,7 @@
 
 # 棉花糖小说网-最好的免费小说阅读网站
 
-更新时间：2026-09-08 03:34:56
+更新时间：2026-09-09 03:34:59
 
 棉花糖小说网提供当前最火热的小说资源，支持免费在线阅读及TXT格式下载，致力于为读者带来优质的阅读体验。 https://www.littlemissribbon.com
 
@@ -106,7 +106,6 @@
 - 老实人妻，但顶级魅魔 https://www.littlemissribbon.com/book/5asfe2i/
 - 专业女配的自我修养（快穿） https://www.littlemissribbon.com/book/5asfe1p/
 - 巨物致富：回乡开钓场 https://www.littlemissribbon.com/book/5asfcme/
-- 寡妇美人模拟器 https://www.littlemissribbon.com/book/5asf83e/
 - [足球]我的游戏存档成真了？！ https://www.littlemissribbon.com/book/5asf7fq/
 - 让你们无剧本可走（快穿） https://www.littlemissribbon.com/book/5asf7bl/
 - 趁她之危 https://www.littlemissribbon.com/book/5asf5es/

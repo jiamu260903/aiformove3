@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-08 03:44:59
+更新时间：2026-09-09 03:45:07
 
 速阅阁小说网是专为书友们打造的最佳网络小说阅读与收藏平台，提供海量优质小说资源，满足您的各种阅读需求。 https://www.wsfsx.com
 
@@ -32,7 +32,7 @@
 - 被四皇错看成小动物后 https://www.wsfsx.com/book/5ts294t/
 - [封神]圣人生欲 https://www.wsfsx.com/book/5ts294m/
 - 高调装神，猥琐发育 https://www.wsfsx.com/book/5ts294e/
-- 阴郁路人不想被喜欢 https://www.wsfsx.com/book/5ts2949/
+- 魔物堆里的人类幼崽 https://www.wsfsx.com/book/5ts293s/
 - 京秋婚约 https://www.wsfsx.com/book/5ts293a/
 - 满级竹马从异世穿回来了 https://www.wsfsx.com/book/5ts2923/
 - 直男咒术师的限制级游戏 https://www.wsfsx.com/book/5ts291p/
@@ -199,7 +199,6 @@
 - 天崩开局还能通关吗？ https://www.wsfsx.com/book/ivliar/
 - 帝国唯一雄虫长官[虫族] https://www.wsfsx.com/book/ivli7c/
 - 围观吃瓜却发现老公和别人在一起 https://www.wsfsx.com/book/ivli5d/
-- 沈助理又在隐藏他的超能力 https://www.wsfsx.com/book/ivli57/
 - 旖旎新婚 https://www.wsfsx.com/book/ivlhvs/
 - 神算崽摆摊致富[九零] https://www.wsfsx.com/book/ivlhr9/
 - 伟大航路万人迷游戏中 https://www.wsfsx.com/book/ivlhqa/
@@ -410,7 +409,6 @@
 - 老公是松散生命体 https://www.wsfsx.com/book/ivkk58/
 - 我最讨厌打球了！ https://www.wsfsx.com/book/ivkg0f/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.wsfsx.com/book/ivkaho/
-- 误入反派培养直播后 https://www.wsfsx.com/book/ivk9ie/
 - [足球]罗蜜第一志愿 https://www.wsfsx.com/book/ivk65b/
 - 哥你不能不要我 https://www.wsfsx.com/book/ivjkvn/
 ## 相关内容

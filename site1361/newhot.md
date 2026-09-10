@@ -1,7 +1,7 @@
 
 # 情感小说-精彩小说推荐网,涵盖言情都市历史科幻等多种类型
 
-更新时间：2026-09-08 03:38:05
+更新时间：2026-09-09 03:38:07
 
 情感小说致力于为广大书友推荐各种类型好看的小说，包括但不限于言情、都市、历史、科幻、灵异、军事、悬疑、玄幻、武侠、末世等。看小说，找小说就上书格格小说推荐网！ https://www.qinggan1687.com
 
@@ -160,8 +160,6 @@
 - 穿书后，导师成了师尊 https://www.qinggan1687.com/book/3qc2voi/
 - 恋爱脑他重生了 https://www.qinggan1687.com/book/3qc2vjs/
 - 苗疆蛊女模拟器 https://www.qinggan1687.com/book/3qc2vd4/
-- 沈助理又在隐藏他的超能力 https://www.qinggan1687.com/book/3qc2va3/
-- 被鬼怪宠爱的漂亮书生 https://www.qinggan1687.com/book/3qc2v4m/
 - 纨绔渣A拒绝入赘长公主府 https://www.qinggan1687.com/book/3qc2uh4/
 - 普通人的乙女RPG[西幻] https://www.qinggan1687.com/book/3qc2ud3/
 - 忍界有文学 https://www.qinggan1687.com/book/3qc2uc8/
@@ -230,7 +228,6 @@
 - 反派的病弱白月光重生了 https://www.qinggan1687.com/book/3qc2jkn/
 - 亚当斯与韦恩的适配性 https://www.qinggan1687.com/book/3qc2jgl/
 - 变成龙傲天的心上猫后 https://www.qinggan1687.com/book/3qc2j3l/
-- 误入反派培养直播后 https://www.qinggan1687.com/book/3qc2j3e/
 - 吃瓜也能整顿豪门？ https://www.qinggan1687.com/book/3qc2j32/
 - 父皇，我是gay https://www.qinggan1687.com/book/3qc2ise/
 - 和灵异片boss谈恋爱 https://www.qinggan1687.com/book/3qc2ipr/
@@ -279,7 +276,6 @@
 - 废土猫猫求生指南 https://www.qinggan1687.com/book/3qc2d7q/
 - 漫画路人绑定系统后 https://www.qinggan1687.com/book/3qc2d5r/
 - 奶奶蛋糕店[美食] https://www.qinggan1687.com/book/3qc2d56/
-- 炮灰的我该如何上位？ https://www.qinggan1687.com/book/3qc2d4j/
 - 主角对你极度痴迷 https://www.qinggan1687.com/book/3qc2ctb/
 - 异种大食堂[无限] https://www.qinggan1687.com/book/3qc2cqp/
 - 系统错绑后我成了顶级白富美 https://www.qinggan1687.com/book/3qc2cq7/
@@ -437,7 +433,7 @@
 - 满级竹马从异世穿回来了 https://www.qinggan1687.com/book/3qc11g0/
 - 直男咒术师的限制级游戏 https://www.qinggan1687.com/book/3qc007n/
 - 京秋婚约 https://www.qinggan1687.com/book/3qbvvn1/
-- 阴郁路人不想被喜欢 https://www.qinggan1687.com/book/3qbvv7m/
+- 魔物堆里的人类幼崽 https://www.qinggan1687.com/book/3qbvvm2/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1361/index.md)

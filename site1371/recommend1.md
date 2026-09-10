@@ -1,11 +1,12 @@
 
 # 爱阅读-最新优质免费无弹窗小说在线阅读
 
-更新时间：2026-09-08 03:48:48
+更新时间：2026-09-09 03:49:03
 
 爱阅读提供清爽干净、页面整洁没弹窗的网络小说阅读体验。这里有大量的免费小说、完本小说供您选择，包括热门言情小说、玄幻小说、仙侠小说等多种类型。是广大书友必备的纯绿色小说阅读网站。 https://www.yuedu788.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.yuedu788.com/book/1on7bls/
 - SSS级异种都是我前任 https://www.yuedu788.com/book/1on7blp/
 - 八零法医，带全家致富 https://www.yuedu788.com/book/1on7blm/
 - 国师 https://www.yuedu788.com/book/1on7bll/
@@ -82,7 +83,7 @@
 - 始乱终弃清冷首辅后 https://www.yuedu788.com/book/1on5vvb/
 - 原配夫人 https://www.yuedu788.com/book/1on5vti/
 - 十九世纪贵族厨房（美食） https://www.yuedu788.com/book/1on5vpf/
-- 星际团宠小人鱼 https://www.yuedu788.com/book/1on5von/
+- 我只梦你一页 https://www.yuedu788.com/book/1on5oqg/
 - 高调装神，猥琐发育 https://www.yuedu788.com/book/1on5om4/
 - 完蛋！被恨孕男包围了！ https://www.yuedu788.com/book/1on5ojq/
 - 食明 https://www.yuedu788.com/book/1on5mju/
@@ -92,7 +93,6 @@
 - [足球]我的游戏存档成真了？！ https://www.yuedu788.com/book/1on5atv/
 - 让你们无剧本可走（快穿） https://www.yuedu788.com/book/1on59gm/
 - 我与龙傲天寿命共享 https://www.yuedu788.com/book/1on58ug/
-- 摄政王家的咸鱼夫郎 https://www.yuedu788.com/book/1on58cr/
 - 如何正确哄睡暴君 https://www.yuedu788.com/book/1on54f7/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.yuedu788.com/book/1on4vpq/
 - 我骗家里的钱养你啊 https://www.yuedu788.com/book/1on4v5g/
@@ -107,6 +107,7 @@
 - 同时扮演贵族学院F4和平民校花 https://www.yuedu788.com/book/1on4gc1/
 - 开局绑定郭奉孝，谋定三国风云 https://www.yuedu788.com/book/1on4env/
 - 路人攻了主角攻［快穿］ https://www.yuedu788.com/book/1on4el7/
+- 月亮上的大筒木 https://www.yuedu788.com/book/1on4e7i/
 - 苏娘子汴京摆摊日常（美食） https://www.yuedu788.com/book/1on4chp/
 - 漂亮女配是万人迷［快穿］ https://www.yuedu788.com/book/1on4a32/
 - 我有一座地下城 https://www.yuedu788.com/book/1on49r8/
@@ -150,9 +151,7 @@
 - [娱乐圈]过分美丽的她 https://www.yuedu788.com/book/1on1p5i/
 - 巨物致富：回乡开钓场 https://www.yuedu788.com/book/1on1oph/
 - 我是唯一地上神国 https://www.yuedu788.com/book/1on1omb/
-- 仙门透明人被迫万人迷 https://www.yuedu788.com/book/1on1oib/
 - 老公对不起 https://www.yuedu788.com/book/1on1oep/
-- 寡妇美人模拟器 https://www.yuedu788.com/book/1on1o8a/
 - [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.yuedu788.com/book/1on1o0m/
 - 六零之成了卷王的妹妹 https://www.yuedu788.com/book/1on1nvr/
 - 日化人生[科研] https://www.yuedu788.com/book/1on1ntm/

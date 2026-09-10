@@ -1,7 +1,7 @@
 
 # 三哥小说网 - 最热门的免费小说阅读平台
 
-更新时间：2026-09-08 03:44:27
+更新时间：2026-09-09 03:44:30
 
 三哥小说网致力于为读者提供一个无广告无弹窗的在线小说阅读环境，涵盖玄幻、网游、言情、穿越及都市等多种类型的小说资源，支持全本小说在线阅读与最新章节更新。 https://www.wkntmcb.com
 
@@ -103,7 +103,6 @@
 - 这个迫嫁我愿意的 https://www.wkntmcb.com/book/48j0aj8/
 - 逃生游戏[无限] https://www.wkntmcb.com/book/48j0aik/
 - 万人迷绑定美强惨系统后 https://www.wkntmcb.com/book/48j09p1/
-- 阴郁路人不想被喜欢 https://www.wkntmcb.com/book/48j09l3/
 - 我在异世当妖精 https://www.wkntmcb.com/book/48j09kd/
 - 好巧，我爸也是狗血文男主 https://www.wkntmcb.com/book/48j09g7/
 - 嗲精人设走偏啦［穿书］ https://www.wkntmcb.com/book/48j0977/
@@ -194,7 +193,6 @@
 - 逃妾 https://www.wkntmcb.com/book/48ivmbo/
 - 我在原始种田 https://www.wkntmcb.com/book/48ivmb8/
 - 人设抽卡中[快穿] https://www.wkntmcb.com/book/48ivlsr/
-- 沈助理又在隐藏他的超能力 https://www.wkntmcb.com/book/48ivlsk/
 - 伟大航路万人迷游戏中 https://www.wkntmcb.com/book/48ivlqu/
 - 围观吃瓜却发现老公和别人在一起 https://www.wkntmcb.com/book/48ivlq9/
 - 不是排球天才，但成为最强 https://www.wkntmcb.com/book/48ivlgc/
@@ -264,7 +262,6 @@
 - 退圈后，我靠职场综艺火爆全网 https://www.wkntmcb.com/book/48ivb2v/
 - 娇气包在无限游戏被坏男人骗 https://www.wkntmcb.com/book/48ivatq/
 - 假如樱是砂忍 https://www.wkntmcb.com/book/48ivaqg/
-- 误入反派培养直播后 https://www.wkntmcb.com/book/48ivafm/
 - 我被厉鬼盯上了 https://www.wkntmcb.com/book/48ivabu/
 - 糊咖爱豆用动物心声破案 https://www.wkntmcb.com/book/48ivaa1/
 - 揍敌客大小姐好难攻略 https://www.wkntmcb.com/book/48iva5s/
@@ -333,7 +330,6 @@
 - 汉武帝戾太子什么含金量 https://www.wkntmcb.com/book/48iv4nb/
 - 娇婚惯养 https://www.wkntmcb.com/book/48iv4kg/
 - 哥你不能不要我 https://www.wkntmcb.com/book/48iv4ha/
-- 被鬼怪宠爱的漂亮书生 https://www.wkntmcb.com/book/48iv4d5/
 - 从伟大航道到黑暗大陆 https://www.wkntmcb.com/book/48iv4cq/
 - 魔尊他邪得发正 https://www.wkntmcb.com/book/48iv4c3/
 - 大美人怀了enigma上司的崽 https://www.wkntmcb.com/book/48iv4c2/
@@ -360,7 +356,6 @@
 - 忍界观察日记 https://www.wkntmcb.com/book/48iv2u8/
 - 三岁崽崽带龙王爸爸上综艺爆红 https://www.wkntmcb.com/book/48iv2ts/
 - 软饭的正确吃法[快穿] https://www.wkntmcb.com/book/48iv2rf/
-- 炮灰的我该如何上位？ https://www.wkntmcb.com/book/48iv2nj/
 - 经纪人砸钱整顿内娱爆火了 https://www.wkntmcb.com/book/48iv2l6/
 - 校草的漂亮亲妈 https://www.wkntmcb.com/book/48iv2jn/
 - 贵族学院F4中的第四人 https://www.wkntmcb.com/book/48iv2j7/
@@ -424,6 +419,7 @@
 - 刀子精手心的人偶崽崽 https://www.wkntmcb.com/book/48iuibs/
 - 战死的阿爹回来了[年代] https://www.wkntmcb.com/book/48iuhnv/
 - [综英美]让我统治哥谭！！！ https://www.wkntmcb.com/book/48iuer6/
+- 魔物堆里的人类幼崽 https://www.wkntmcb.com/book/48iucnl/
 - 欢迎来到重生点 https://www.wkntmcb.com/book/48iucm6/
 - 好巧，你也是妹控？[综崩铁] https://www.wkntmcb.com/book/48iuaf1/
 - 好兄弟暴富后非要跟我结婚 https://www.wkntmcb.com/book/48iu8rs/

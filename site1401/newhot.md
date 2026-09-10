@@ -1,11 +1,12 @@
 
 # 曹操SPA小说 - 小说的海洋，文学的殿堂 | 在线阅读与下载原创小说
 
-更新时间：2026-09-08 03:26:26
+更新时间：2026-09-09 03:26:36
 
 曹操SPA小说是一个专注于优质小说和文学创作的网站，这里是书迷们的天堂，提供丰富的原创网络小说、经典文学作品在线阅读与下载，致力于打造一个充满灵感与创意的文学世界。 https://www.caocaospa.com
 
 ## 最新小说
+- 网球带给齐木的灾难 https://www.caocaospa.com/book/8q1uik9/
 - 当甚尔转生成继国 https://www.caocaospa.com/book/8q1ugnc/
 - 节能型社恐靠交友存活打排球 https://www.caocaospa.com/book/8q1ufvp/
 - 渣攻他疯了［快穿］ https://www.caocaospa.com/book/8q1ufbq/
@@ -28,7 +29,6 @@
 - 我有嘉宾 https://www.caocaospa.com/book/8q1u3us/
 - 孤独症崽崽穿越到狗血爽文里[穿书] https://www.caocaospa.com/book/8q1u3rf/
 - 我，始皇闺女，未来皇帝，打钱 https://www.caocaospa.com/book/8q1u3ef/
-- 阴郁路人不想被喜欢 https://www.caocaospa.com/book/8q1u2rp/
 - 开局给李世民盘点安史之乱 https://www.caocaospa.com/book/8q1u2kk/
 - 怪谈小镇游玩指南[无限] https://www.caocaospa.com/book/8q1u1p9/
 - 离开那个混蛋后 https://www.caocaospa.com/book/8q1u0v0/
@@ -54,7 +54,6 @@
 - 我骗家里的钱养你啊 https://www.caocaospa.com/book/8q1suk8/
 - 求求你们别吃了 https://www.caocaospa.com/book/8q1sub9/
 - 我于江湖已无敌 https://www.caocaospa.com/book/8q1stsh/
-- 被鬼怪宠爱的漂亮书生 https://www.caocaospa.com/book/8q1stpu/
 - [足球]葡萄牙世界杯if线 https://www.caocaospa.com/book/8q1stn2/
 - 五美元在哥谭活一月 https://www.caocaospa.com/book/8q1ssu3/
 - 暗堕本丸，在线直播 https://www.caocaospa.com/book/8q1sso0/
@@ -165,7 +164,6 @@
 - 忍界有文学 https://www.caocaospa.com/book/8q1s3dq/
 - [全职高手]小船 https://www.caocaospa.com/book/8q1s316/
 - 万人迷总被入侵角色觊觎[快穿] https://www.caocaospa.com/book/8q1s2vd/
-- 沈助理又在隐藏他的超能力 https://www.caocaospa.com/book/8q1s2s0/
 - 战死的阿爹回来了[年代] https://www.caocaospa.com/book/8q1s2q7/
 - 纨绔渣A拒绝入赘长公主府 https://www.caocaospa.com/book/8q1s2no/
 - 苗疆蛊女模拟器 https://www.caocaospa.com/book/8q1s2mu/
@@ -260,7 +258,6 @@
 - 揍敌客大小姐好难攻略 https://www.caocaospa.com/book/8q1rlom/
 - 小亲王他不是吉祥物 https://www.caocaospa.com/book/8q1rlmh/
 - 忍界修罗金屋藏娇了？ https://www.caocaospa.com/book/8q1rle4/
-- 炮灰的我该如何上位？ https://www.caocaospa.com/book/8q1rlb8/
 - [综英美]小玉有话说 https://www.caocaospa.com/book/8q1rl8v/
 - 我被厉鬼盯上了 https://www.caocaospa.com/book/8q1rl7e/
 - 想听越前君向我告白 https://www.caocaospa.com/book/8q1rl4a/
@@ -428,14 +425,15 @@
 - 李玉灯 https://www.caocaospa.com/book/8q1r6kb/
 - 好巧，你也是妹控？[综崩铁] https://www.caocaospa.com/book/8q1r6jk/
 - 我，剑圣，养生中，勿扰 https://www.caocaospa.com/book/8q1r5gq/
+- 魔物堆里的人类幼崽 https://www.caocaospa.com/book/8q1r5b7/
 - [综英美]和亲友群穿哥谭以后 https://www.caocaospa.com/book/8q1r0ld/
 - [崩铁]请给玩家一个准确的血条！ https://www.caocaospa.com/book/8q1qvlf/
 - 自大狂 https://www.caocaospa.com/book/8q1qmu6/
+- 为她守节第十年 https://www.caocaospa.com/book/8q1qmc6/
 - 书呆子扮演渣攻翻车【快穿】 https://www.caocaospa.com/book/8q1qjga/
 - 满级竹马从异世穿回来了 https://www.caocaospa.com/book/8q1qffp/
 - 丧尸老婆喂养日记 https://www.caocaospa.com/book/8q1q7dm/
 - [封神]圣人生欲 https://www.caocaospa.com/book/8q1p7n1/
-- 误入反派培养直播后 https://www.caocaospa.com/book/8q1p7mp/
 - 你，后室管理员 https://www.caocaospa.com/book/8q1p6sv/
 - 被四皇错看成小动物后 https://www.caocaospa.com/book/8q1p6r4/
 - 朕看上的少年是侠女 https://www.caocaospa.com/book/8q1p6ae/

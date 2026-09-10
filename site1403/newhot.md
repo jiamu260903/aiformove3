@@ -1,11 +1,12 @@
 
 # 微雨数据小说,新笔趣小说阅读网,顶点小说网备份-热门小说大全
 
-更新时间：2026-09-08 03:43:08
+更新时间：2026-09-09 03:43:12
 
 微雨数据小说网作为广大书友喜爱的平台之一，同时也是顶点小说阅读网的官方备份网站，汇集了当前最受欢迎和最火热的小说资源。当遇到顶点小说网无法访问时，请访问笔趣看小说网继续享受精彩内容！ https://www.weiyushuju.com
 
 ## 最新小说
+- 网球带给齐木的灾难 https://www.weiyushuju.com/book/6rf7lcr/
 - 当甚尔转生成继国 https://www.weiyushuju.com/book/6rf7je1/
 - 节能型社恐靠交友存活打排球 https://www.weiyushuju.com/book/6rf7ior/
 - 渣攻他疯了［快穿］ https://www.weiyushuju.com/book/6rf7i54/
@@ -28,7 +29,6 @@
 - 我有嘉宾 https://www.weiyushuju.com/book/6rf76mr/
 - 孤独症崽崽穿越到狗血爽文里[穿书] https://www.weiyushuju.com/book/6rf76jc/
 - 我，始皇闺女，未来皇帝，打钱 https://www.weiyushuju.com/book/6rf7663/
-- 阴郁路人不想被喜欢 https://www.weiyushuju.com/book/6rf75m1/
 - 开局给李世民盘点安史之乱 https://www.weiyushuju.com/book/6rf75fq/
 - 怪谈小镇游玩指南[无限] https://www.weiyushuju.com/book/6rf74ef/
 - 离开那个混蛋后 https://www.weiyushuju.com/book/6rf73oo/
@@ -46,7 +46,6 @@
 - 伪装路人后成了反派首领 https://www.weiyushuju.com/book/6rf62lo/
 - 被欺负的老实人[快穿] https://www.weiyushuju.com/book/6rf62ik/
 - [足球]葡萄牙世界杯if线 https://www.weiyushuju.com/book/6rf61uo/
-- 被鬼怪宠爱的漂亮书生 https://www.weiyushuju.com/book/6rf61l8/
 - 我骗家里的钱养你啊 https://www.weiyushuju.com/book/6rf61iv/
 - 乱步他哥，但武力值max https://www.weiyushuju.com/book/6rf61f9/
 - 渣过我的主角全都重生了[快穿] https://www.weiyushuju.com/book/6rf60u4/
@@ -164,7 +163,6 @@
 - 苗疆蛊女模拟器 https://www.weiyushuju.com/book/6rf571q/
 - 普通人的乙女RPG[西幻] https://www.weiyushuju.com/book/6rf56v5/
 - 战死的阿爹回来了[年代] https://www.weiyushuju.com/book/6rf56sm/
-- 沈助理又在隐藏他的超能力 https://www.weiyushuju.com/book/6rf5605/
 - 纨绔渣A拒绝入赘长公主府 https://www.weiyushuju.com/book/6rf55vv/
 - 忍界有文学 https://www.weiyushuju.com/book/6rf55tn/
 - 万人迷总被入侵角色觊觎[快穿] https://www.weiyushuju.com/book/6rf55mq/
@@ -251,7 +249,6 @@
 - 退圈后，我靠职场综艺火爆全网 https://www.weiyushuju.com/book/6rf4p6d/
 - [综英美]小玉有话说 https://www.weiyushuju.com/book/6rf4p5s/
 - 如何登顶反派第一 https://www.weiyushuju.com/book/6rf4oss/
-- 炮灰的我该如何上位？ https://www.weiyushuju.com/book/6rf4oq9/
 - 人在综漫，但崩铁马甲 https://www.weiyushuju.com/book/6rf4opm/
 - 我被厉鬼盯上了 https://www.weiyushuju.com/book/6rf4od0/
 - 小亲王他不是吉祥物 https://www.weiyushuju.com/book/6rf4och/
@@ -427,14 +424,15 @@
 - 我，剑圣，养生中，勿扰 https://www.weiyushuju.com/book/6rf4as9/
 - 柯学剧本杀，但恋爱流打法 https://www.weiyushuju.com/book/6rf4aru/
 - 欢迎来到重生点 https://www.weiyushuju.com/book/6rf4ao7/
+- 魔物堆里的人类幼崽 https://www.weiyushuju.com/book/6rf4898/
 - 李玉灯 https://www.weiyushuju.com/book/6rf4876/
 - [崩铁]请给玩家一个准确的血条！ https://www.weiyushuju.com/book/6rf44i2/
 - [综英美]和亲友群穿哥谭以后 https://www.weiyushuju.com/book/6rf42ap/
 - 自大狂 https://www.weiyushuju.com/book/6rf3pk2/
+- 为她守节第十年 https://www.weiyushuju.com/book/6rf3mne/
 - 书呆子扮演渣攻翻车【快穿】 https://www.weiyushuju.com/book/6rf3jvp/
 - 满级竹马从异世穿回来了 https://www.weiyushuju.com/book/6rf3hmb/
 - 丧尸老婆喂养日记 https://www.weiyushuju.com/book/6rf37tn/
-- 误入反派培养直播后 https://www.weiyushuju.com/book/6rf29g6/
 - 朕看上的少年是侠女 https://www.weiyushuju.com/book/6rf29ap/
 - [封神]圣人生欲 https://www.weiyushuju.com/book/6rf295t/
 - 你，后室管理员 https://www.weiyushuju.com/book/6rf2915/

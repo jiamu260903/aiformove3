@@ -1,11 +1,12 @@
 
 # 积家健康小说 - 无弹窗无广告小说在线阅读
 
-更新时间：2026-09-08 03:31:19
+更新时间：2026-09-09 03:31:24
 
 积家健康小说提供一个干净简洁的平台让您享受无弹窗无广告的小说在线阅读体验。无论是在线阅读还是下载小说，都是完全免费的。 https://www.jijiajk.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.jijiajk.com/book/3ab34a3/
 - 怨明月不独照 https://www.jijiajk.com/book/3ab2pof/
 - 前妻她肯定会后悔 https://www.jijiajk.com/book/3ab2poe/
 - 二次分化后他怀了死对头的崽 https://www.jijiajk.com/book/3ab2pod/
@@ -70,7 +71,6 @@
 - 起初，我只是想找个冤大头 https://www.jijiajk.com/book/3ab2l2b/
 - 天幕今天也在直播我搞基建 https://www.jijiajk.com/book/3ab2l0h/
 - 上个鬼班[无限] https://www.jijiajk.com/book/3ab2ip4/
-- 仙门透明人被迫万人迷 https://www.jijiajk.com/book/3ab2grn/
 - [足球]足坛人生模拟器 https://www.jijiajk.com/book/3ab2bhm/
 - 九零重组小家庭 https://www.jijiajk.com/book/3ab29lp/
 - 让暴君Alpha怀崽后 https://www.jijiajk.com/book/3ab26vd/
@@ -82,7 +82,6 @@
 - 诡话第一boss https://www.jijiajk.com/book/3ab1c5a/
 - 老实人妻，但顶级魅魔 https://www.jijiajk.com/book/3ab1b0e/
 - 我骗家里的钱养你啊 https://www.jijiajk.com/book/3ab186m/
-- 摄政王家的咸鱼夫郎 https://www.jijiajk.com/book/3ab15dt/
 - 我与龙傲天寿命共享 https://www.jijiajk.com/book/3ab15a5/
 - [足球]我的游戏存档成真了？！ https://www.jijiajk.com/book/3ab1439/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.jijiajk.com/book/3ab119v/
@@ -103,6 +102,7 @@
 - 开局绑定郭奉孝，谋定三国风云 https://www.jijiajk.com/book/3ab0cpn/
 - 从童星开始杀穿港娱 https://www.jijiajk.com/book/3ab0cfc/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.jijiajk.com/book/3ab0c5m/
+- 月亮上的大筒木 https://www.jijiajk.com/book/3ab0bk5/
 - 直男咒术师的限制级游戏 https://www.jijiajk.com/book/3ab06lm/
 - 如何嫁给当朝首辅 https://www.jijiajk.com/book/3ab05vj/
 - 漂亮女配是万人迷［快穿］ https://www.jijiajk.com/book/3ab04ov/
@@ -110,6 +110,7 @@
 - 我有一座地下城 https://www.jijiajk.com/book/3ab03qj/
 - 和治君只是饭搭子的关系 https://www.jijiajk.com/book/3ab01k9/
 - 阴阳师也可以打网球 https://www.jijiajk.com/book/3ab01jr/
+- 我只梦你一页 https://www.jijiajk.com/book/3aavv4h/
 - 五条老师与他的封建妻子 https://www.jijiajk.com/book/3aavuq1/
 - 在魔法贵族学院当白月光 https://www.jijiajk.com/book/3aavtcl/
 - 和贵志君是世界第一的好朋友 https://www.jijiajk.com/book/3aavso0/
@@ -138,10 +139,8 @@
 - 爱好和平但狂拆机甲 https://www.jijiajk.com/book/3aaui9j/
 - 你让魔王组建勇者小队？ https://www.jijiajk.com/book/3aaufoq/
 - 在民俗惊悚片被诸神庇护 https://www.jijiajk.com/book/3aatj93/
-- 星际团宠小人鱼 https://www.jijiajk.com/book/3aatj10/
 - 卷王后妈，八零养娃 https://www.jijiajk.com/book/3aatirf/
 - [封神]圣人生欲 https://www.jijiajk.com/book/3aatin5/
-- 寡妇美人模拟器 https://www.jijiajk.com/book/3aatime/
 - 十九世纪贵族厨房（美食） https://www.jijiajk.com/book/3aatik0/
 - 海岛求生：生活玩家种田囤货 https://www.jijiajk.com/book/3aatij1/
 - 日化人生[科研] https://www.jijiajk.com/book/3aatibf/

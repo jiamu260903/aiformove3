@@ -1,11 +1,12 @@
 
 # 泡泡中文小说-无弹窗书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-08 03:46:36
+更新时间：2026-09-09 03:46:49
 
 泡泡中文小说是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。 https://www.xiaoshuo288.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.xiaoshuo288.com/book/dm3vdf/
 - 在中世纪做奴隶 https://www.xiaoshuo288.com/book/dm3vdb/
 - ［西幻］RPG就不要谈恋爱了吧！ https://www.xiaoshuo288.com/book/dm3vda/
 - 双生子反派的端水抑郁妈[九零] https://www.xiaoshuo288.com/book/dm3vd6/
@@ -82,9 +83,9 @@
 - 始乱终弃清冷首辅后 https://www.xiaoshuo288.com/book/dm2kg8/
 - 十九世纪贵族厨房（美食） https://www.xiaoshuo288.com/book/dm2ken/
 - 原配夫人 https://www.xiaoshuo288.com/book/dm2kbs/
-- 星际团宠小人鱼 https://www.xiaoshuo288.com/book/dm2k9m/
 - 完蛋！被恨孕男包围了！ https://www.xiaoshuo288.com/book/dm2dba/
 - 高调装神，猥琐发育 https://www.xiaoshuo288.com/book/dm2dan/
+- 我只梦你一页 https://www.xiaoshuo288.com/book/dm2d71/
 - 食明 https://www.xiaoshuo288.com/book/dm2af1/
 - 诡话第一boss https://www.xiaoshuo288.com/book/dm278n/
 - 老实人妻，但顶级魅魔 https://www.xiaoshuo288.com/book/dm26de/
@@ -92,7 +93,6 @@
 - [足球]我的游戏存档成真了？！ https://www.xiaoshuo288.com/book/dm2059/
 - 我与龙傲天寿命共享 https://www.xiaoshuo288.com/book/dm1t0u/
 - 让你们无剧本可走（快穿） https://www.xiaoshuo288.com/book/dm1sh7/
-- 摄政王家的咸鱼夫郎 https://www.xiaoshuo288.com/book/dm1s8d/
 - 如何正确哄睡暴君 https://www.xiaoshuo288.com/book/dm1q4f/
 - 死遁的亡夫们都回来了 https://www.xiaoshuo288.com/book/dm1j0a/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.xiaoshuo288.com/book/dm1il5/
@@ -104,6 +104,7 @@
 - 从童星开始杀穿港娱 https://www.xiaoshuo288.com/book/dm14bo/
 - 咦？我爸爸复活啦 https://www.xiaoshuo288.com/book/dm144h/
 - 同时扮演贵族学院F4和平民校花 https://www.xiaoshuo288.com/book/dm13db/
+- 月亮上的大筒木 https://www.xiaoshuo288.com/book/dm134g/
 - 路人攻了主角攻［快穿］ https://www.xiaoshuo288.com/book/dm130m/
 - 开局绑定郭奉孝，谋定三国风云 https://www.xiaoshuo288.com/book/dm11uu/
 - 韩团绿卡不想忍了 https://www.xiaoshuo288.com/book/dm112c/
@@ -144,7 +145,6 @@
 - 爱好和平但狂拆机甲 https://www.xiaoshuo288.com/book/dlva49/
 - 成为养成系练习生后 https://www.xiaoshuo288.com/book/dlue8s/
 - 六零之成了卷王的妹妹 https://www.xiaoshuo288.com/book/dlue8h/
-- 仙门透明人被迫万人迷 https://www.xiaoshuo288.com/book/dlue45/
 - 大瑛弟国 https://www.xiaoshuo288.com/book/dludfv/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.xiaoshuo288.com/book/dludeh/
 - 天幕今天也在直播我搞基建 https://www.xiaoshuo288.com/book/dluct0/
@@ -160,7 +160,6 @@
 - 海岛求生：生活玩家种田囤货 https://www.xiaoshuo288.com/book/dlubd5/
 - 老公对不起 https://www.xiaoshuo288.com/book/dlubad/
 - [娱乐圈]过分美丽的她 https://www.xiaoshuo288.com/book/dlub9h/
-- 寡妇美人模拟器 https://www.xiaoshuo288.com/book/dlub48/
 - 日化人生[科研] https://www.xiaoshuo288.com/book/dlub1c/
 ## 相关内容
 - [README](/README.md)

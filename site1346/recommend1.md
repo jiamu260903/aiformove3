@@ -1,11 +1,12 @@
 
 # 奇幻凤影台小说-都市玄幻言情仙侠免费小说在线阅读
 
-更新时间：2026-09-08 03:37:35
+更新时间：2026-09-09 03:37:36
 
 奇幻凤影台小说提供都市玄幻、言情仙侠等类型的小说在线免费阅读服务。让您的通勤路上不再无聊，无论是日常出行还是夜晚静谧时刻，总有一本好书陪伴您度过美好时光。 https://www.qihuan868.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.qihuan868.com/book/42idth0/
 - [全职高手]治疗什么的不干了！ https://www.qihuan868.com/book/42idtgq/
 - 从1951开始 https://www.qihuan868.com/book/42idtgp/
 - 魔尊闭关十年连生十一子？！ https://www.qihuan868.com/book/42idtgl/
@@ -81,17 +82,16 @@
 - 昭暮 https://www.qihuan868.com/book/42iclq4/
 - 十九世纪贵族厨房（美食） https://www.qihuan868.com/book/42icijr/
 - 原配夫人 https://www.qihuan868.com/book/42icija/
-- 星际团宠小人鱼 https://www.qihuan868.com/book/42icifb/
 - 始乱终弃清冷首辅后 https://www.qihuan868.com/book/42icief/
 - 完蛋！被恨孕男包围了！ https://www.qihuan868.com/book/42icbf7/
 - 高调装神，猥琐发育 https://www.qihuan868.com/book/42icbec/
+- 我只梦你一页 https://www.qihuan868.com/book/42icbbf/
 - 食明 https://www.qihuan868.com/book/42ic8k7/
 - 诡话第一boss https://www.qihuan868.com/book/42ic59r/
 - 老实人妻，但顶级魅魔 https://www.qihuan868.com/book/42ic3c8/
 - 专业女配的自我修养（快穿） https://www.qihuan868.com/book/42ic1v2/
 - [足球]我的游戏存档成真了？！ https://www.qihuan868.com/book/42ibtiq/
 - 让你们无剧本可走（快穿） https://www.qihuan868.com/book/42ibrkn/
-- 摄政王家的咸鱼夫郎 https://www.qihuan868.com/book/42ibp2e/
 - 我与龙傲天寿命共享 https://www.qihuan868.com/book/42ibp1h/
 - 如何正确哄睡暴君 https://www.qihuan868.com/book/42ibm70/
 - 死遁的亡夫们都回来了 https://www.qihuan868.com/book/42ibgl5/
@@ -107,6 +107,7 @@
 - 韩团绿卡不想忍了 https://www.qihuan868.com/book/42ib0tq/
 - 路人攻了主角攻［快穿］ https://www.qihuan868.com/book/42iav2m/
 - 开局绑定郭奉孝，谋定三国风云 https://www.qihuan868.com/book/42iauo0/
+- 月亮上的大筒木 https://www.qihuan868.com/book/42iaukd/
 - 苏娘子汴京摆摊日常（美食） https://www.qihuan868.com/book/42iaufe/
 - 我有一座地下城 https://www.qihuan868.com/book/42iasm3/
 - 漂亮女配是万人迷［快穿］ https://www.qihuan868.com/book/42iarj0/
@@ -152,14 +153,12 @@
 - 清澈女大的六零年代 https://www.qihuan868.com/book/42i8alm/
 - 成为养成系练习生后 https://www.qihuan868.com/book/42i8af4/
 - 老公对不起 https://www.qihuan868.com/book/42i8a9p/
-- 仙门透明人被迫万人迷 https://www.qihuan868.com/book/42i8a7a/
 - 全民求生:从小木屋到魔法农场 https://www.qihuan868.com/book/42i89vm/
 - [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.qihuan868.com/book/42i89ov/
 - 我是唯一地上神国 https://www.qihuan868.com/book/42i89lq/
 - 六零之成了卷王的妹妹 https://www.qihuan868.com/book/42i89ho/
 - 日化人生[科研] https://www.qihuan868.com/book/42i89et/
 - 我有一座安全城 https://www.qihuan868.com/book/42i89dr/
-- 寡妇美人模拟器 https://www.qihuan868.com/book/42i899d/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.qihuan868.com/book/42i898q/
 - [娱乐圈]过分美丽的她 https://www.qihuan868.com/book/42i8977/
 ## 相关内容

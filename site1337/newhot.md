@@ -1,7 +1,7 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-08 03:27:50
+更新时间：2026-09-09 03:27:59
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。 https://www.cq082.com
 
@@ -107,7 +107,6 @@
 - 我在异世当妖精 https://www.cq082.com/book/1sddcct/
 - 五零之我在香江富甲一方 https://www.cq082.com/book/1sddcbm/
 - [综英美]怎么就蝙蝠崽文学了 https://www.cq082.com/book/1sddca4/
-- 阴郁路人不想被喜欢 https://www.cq082.com/book/1sddbu5/
 - 好巧，我爸也是狗血文男主 https://www.cq082.com/book/1sddb1p/
 - 万人迷绑定美强惨系统后 https://www.cq082.com/book/1sddarg/
 - 七零年代闺蜜团的奋斗 https://www.cq082.com/book/1sdda8n/
@@ -189,7 +188,6 @@
 - 穿到废土末世三十年后 https://www.cq082.com/book/1sdcpi9/
 - 直男大佬误闯生子文片场 https://www.cq082.com/book/1sdcopo/
 - 我在原始种田 https://www.cq082.com/book/1sdcooq/
-- 沈助理又在隐藏他的超能力 https://www.cq082.com/book/1sdcooh/
 - 神经病又不影响我谈恋爱[快穿] https://www.cq082.com/book/1sdcole/
 - [综英美]和小杰鸟青梅竹马的日子 https://www.cq082.com/book/1sdcohl/
 - 转生星际有了签到系统可我是颗树啊 https://www.cq082.com/book/1sdcogm/
@@ -265,7 +263,6 @@
 - 当魔修反派穿成治愈系[穿书] https://www.cq082.com/book/1sdccvb/
 - 想听越前君向我告白 https://www.cq082.com/book/1sdccsu/
 - 小亲王他不是吉祥物 https://www.cq082.com/book/1sdccsf/
-- 误入反派培养直播后 https://www.cq082.com/book/1sdccrf/
 - 假如樱是砂忍 https://www.cq082.com/book/1sdccjk/
 - 重回被拐那一天[千禧年代] https://www.cq082.com/book/1sdccjg/
 - 金发室友有肌肤饥渴症 https://www.cq082.com/book/1sdcc65/
@@ -327,7 +324,6 @@
 - [HP]我和救世主有个约会 https://www.cq082.com/book/1sdc7ku/
 - 摄政长公主穿成炮灰女配[七零] https://www.cq082.com/book/1sdc7g4/
 - 瓮中惊春 https://www.cq082.com/book/1sdc7c2/
-- 被鬼怪宠爱的漂亮书生 https://www.cq082.com/book/1sdc7bg/
 - 魔尊他邪得发正 https://www.cq082.com/book/1sdc72k/
 - 豪门狗血文里的天才后妈 https://www.cq082.com/book/1sdc70a/
 - 微臣怜惜公主 https://www.cq082.com/book/1sdc6r4/
@@ -363,7 +359,6 @@
 - 苦咒琉璃 https://www.cq082.com/book/1sdc4lg/
 - 蝴蝶园 https://www.cq082.com/book/1sdc4l2/
 - 朱棣造反被朱元璋表扬这事[直播剧透] https://www.cq082.com/book/1sdc4i4/
-- 炮灰的我该如何上位？ https://www.cq082.com/book/1sdc4el/
 - 女beta的星际悠闲生活 https://www.cq082.com/book/1sdc4dl/
 - 丧尸闻了闻你的恋爱脑 https://www.cq082.com/book/1sdc4b0/
 - 忍界观察日记 https://www.cq082.com/book/1sdc49j/
@@ -426,6 +421,7 @@
 - [综英美]让我统治哥谭！！！ https://www.cq082.com/book/1sdbfm2/
 - 欢迎来到重生点 https://www.cq082.com/book/1sdbeus/
 - 好巧，你也是妹控？[综崩铁] https://www.cq082.com/book/1sdbepi/
+- 魔物堆里的人类幼崽 https://www.cq082.com/book/1sdbels/
 - 好兄弟暴富后非要跟我结婚 https://www.cq082.com/book/1sdbbna/
 - 关于我虚构了一个男友这件事 https://www.cq082.com/book/1sdbbif/
 - 求生游戏：当邪神成为生活玩家后 https://www.cq082.com/book/1sdb9aj/

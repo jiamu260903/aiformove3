@@ -1,11 +1,14 @@
 
 # 瑞文文学网 - 最新穿越小说大全及热门小说排行榜
 
-更新时间：2026-09-08 03:45:47
+更新时间：2026-09-09 03:45:55
 
 瑞文文学网提供多种类型的小说推荐，包括最新的都市、玄幻、武侠等多种类别。无论您是喜欢穿越还是重生故事，或是对其他风格如历史、科幻感兴趣，在这里都能找到心仪的作品！ https://www.wxdx2.com
 
 ## 最新小说
+- 月亮上的大筒木 https://www.wxdx2.com/book/7k6mtkt/
+- 入梦修罗场，但我脸盲 https://www.wxdx2.com/book/7k6ms3t/
+- 我只梦你一页 https://www.wxdx2.com/book/7k6lrm0/
 - 天幕今天也在直播我搞基建 https://www.wxdx2.com/book/7k6knlm/
 - 热恋过期需重追 https://www.wxdx2.com/book/7k6jtmg/
 - 这个位面归我了！[经营] https://www.wxdx2.com/book/7k6jtm3/
@@ -90,7 +93,6 @@
 - 老公对不起 https://www.wxdx2.com/book/7k6jrqr/
 - 让你们无剧本可走（快穿） https://www.wxdx2.com/book/7k6jrpm/
 - 国运求生：我的金手指是生命树 https://www.wxdx2.com/book/7k6jrpe/
-- 摄政王家的咸鱼夫郎 https://www.wxdx2.com/book/7k6jrp7/
 - 假意逢承 https://www.wxdx2.com/book/7k6jrou/
 - 在卷王和废物之间选择做吉祥物 https://www.wxdx2.com/book/7k6jrot/
 - 强取师尊后 https://www.wxdx2.com/book/7k6jrod/
@@ -118,7 +120,6 @@
 - 清冷丞相怀了死对头的崽 https://www.wxdx2.com/book/7k6jrah/
 - 从童星开始杀穿港娱 https://www.wxdx2.com/book/7k6jra4/
 - 从维多利亚时代开始 https://www.wxdx2.com/book/7k6jr8d/
-- 寡妇美人模拟器 https://www.wxdx2.com/book/7k6jr7j/
 - 妻主风流（女尊） https://www.wxdx2.com/book/7k6jr6u/
 - 海岛求生：生活玩家种田囤货 https://www.wxdx2.com/book/7k6jr67/
 - 趁她之危 https://www.wxdx2.com/book/7k6jr65/
@@ -139,7 +140,6 @@
 - 韩团绿卡不想忍了 https://www.wxdx2.com/book/7k6jqth/
 - 如何嫁给当朝首辅 https://www.wxdx2.com/book/7k6jqsf/
 - 死遁的亡夫们都回来了 https://www.wxdx2.com/book/7k6jqse/
-- 仙门透明人被迫万人迷 https://www.wxdx2.com/book/7k6jqri/
 - 死对头又在挑衅我 https://www.wxdx2.com/book/7k6jqqk/
 - 和贵志君是世界第一的好朋友 https://www.wxdx2.com/book/7k6jqqh/
 - 被天使之王骗婚后[诡秘之主] https://www.wxdx2.com/book/7k6jqqc/
@@ -158,7 +158,6 @@
 - 我是唯一地上神国 https://www.wxdx2.com/book/7k6jqi7/
 - 穿为龙傲天发妻后 https://www.wxdx2.com/book/7k6jqfp/
 - 高调装神，猥琐发育 https://www.wxdx2.com/book/7k6jqdv/
-- 星际团宠小人鱼 https://www.wxdx2.com/book/7k6jqde/
 - 权宋一只统 https://www.wxdx2.com/book/7k6jqd7/
 - 大瑛弟国 https://www.wxdx2.com/book/7k6jqck/
 - [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.wxdx2.com/book/7k6jqbt/

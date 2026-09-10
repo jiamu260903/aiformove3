@@ -1,11 +1,12 @@
 
 # 阅读小说网-免费分享优质完结小说下载阅读平台
 
-更新时间：2026-09-08 03:48:29
+更新时间：2026-09-09 03:48:46
 
 阅读小说网为广大读者提供丰富多样的网络免费小说资源，包括但不限于完本小说、玄幻小说、言情小说、耽美小说以及各种经典名著。支持小说上传、下载和在线免费阅读服务。 https://www.yuedu687.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.yuedu687.com/book/2bu5j0q/
 - [洪荒]成为太清妹妹后 https://www.yuedu687.com/book/2bu5j0m/
 - [足球]雏鸟 https://www.yuedu687.com/book/2bu5j0l/
 - 二次分化后他怀了死对头的崽 https://www.yuedu687.com/book/2bu5j0k/
@@ -81,8 +82,8 @@
 - 始乱终弃清冷首辅后 https://www.yuedu687.com/book/2bu5ip1/
 - 十九世纪贵族厨房（美食） https://www.yuedu687.com/book/2bu5ioa/
 - 原配夫人 https://www.yuedu687.com/book/2bu5io3/
-- 星际团宠小人鱼 https://www.yuedu687.com/book/2bu5ink/
 - [封神]圣人生欲 https://www.yuedu687.com/book/2bu5ine/
+- 我只梦你一页 https://www.yuedu687.com/book/2bu5imj/
 - 高调装神，猥琐发育 https://www.yuedu687.com/book/2bu5imi/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.yuedu687.com/book/2bu5ill/
 - 直男咒术师的限制级游戏 https://www.yuedu687.com/book/2bu5iis/
@@ -101,17 +102,14 @@
 - 食明 https://www.yuedu687.com/book/2bu2q0r/
 - 诡话第一boss https://www.yuedu687.com/book/2bu2mn3/
 - 让暴君Alpha怀崽后 https://www.yuedu687.com/book/2bu2iof/
-- 仙门透明人被迫万人迷 https://www.yuedu687.com/book/2bu2h6n/
 - 专业女配的自我修养（快穿） https://www.yuedu687.com/book/2bu2e22/
 - 日化人生[科研] https://www.yuedu687.com/book/2bu2dbg/
 - 老实人妻，但顶级魅魔 https://www.yuedu687.com/book/2bu2d53/
 - 巨物致富：回乡开钓场 https://www.yuedu687.com/book/2bu2cms/
 - [足球]我的游戏存档成真了？！ https://www.yuedu687.com/book/2bu2a04/
 - 让你们无剧本可走（快穿） https://www.yuedu687.com/book/2bu27jm/
-- 寡妇美人模拟器 https://www.yuedu687.com/book/2bu277b/
 - 趁她之危 https://www.yuedu687.com/book/2bu24gs/
 - 起初，我只是想找个冤大头 https://www.yuedu687.com/book/2bu216a/
-- 摄政王家的咸鱼夫郎 https://www.yuedu687.com/book/2bu213o/
 - 死遁的亡夫们都回来了 https://www.yuedu687.com/book/7j2q2o/
 - 沈助理又在隐藏他的超能力 https://www.yuedu687.com/book/7j2na0/
 - 天幕今天也在直播我搞基建 https://www.yuedu687.com/book/7j2mcv/
@@ -162,6 +160,7 @@
 - 完蛋！被恨孕男包围了！ https://www.yuedu687.com/book/o9jrp/
 - 开局绑定郭奉孝，谋定三国风云 https://www.yuedu687.com/book/2dp4e/
 - 我有一座安全城 https://www.yuedu687.com/book/2dp1j/
+- 月亮上的大筒木 https://www.yuedu687.com/book/2docr/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1323/index.md)

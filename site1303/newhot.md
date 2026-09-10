@@ -1,7 +1,7 @@
 
 # 顶点小说 - 无广告无弹窗在线小说阅读网站
 
-更新时间：2026-09-08 03:36:48
+更新时间：2026-09-09 03:36:49
 
 顶点小说致力于提供一个无广告、无弹窗干扰的高质量在线小说阅读体验。支持多种类型的小说在线阅读与TXT格式下载，界面设计简洁友好。 https://www.panyuplastic.com
 
@@ -11,9 +11,11 @@
 - 欲加之罪 https://www.panyuplastic.com/book/6h8ug2v/
 - 穿为龙傲天发妻后 https://www.panyuplastic.com/book/6h8ug2e/
 - 重组家庭，但美校搞基！ https://www.panyuplastic.com/book/6h8ug1n/
+- 为她守节第十年 https://www.panyuplastic.com/book/6h8ug1l/
 - 抢了哨向文渣攻的老婆后 https://www.panyuplastic.com/book/6h8ug1g/
 - 清穿女回来后[天幕] https://www.panyuplastic.com/book/6h8ug17/
 - 被俄罗斯小疯子娇养了 https://www.panyuplastic.com/book/6h8ug15/
+- 霓虹坠落 https://www.panyuplastic.com/book/6h8ug13/
 - [全职高手]带着魔性美貌穿越有什么用 https://www.panyuplastic.com/book/6h8ug0s/
 - 何至于此 https://www.panyuplastic.com/book/6h8ug0r/
 - 自知之明 https://www.panyuplastic.com/book/6h8ug0q/
@@ -50,14 +52,12 @@
 - 你，后室管理员 https://www.panyuplastic.com/book/6h8ufp4/
 - 人偶游戏 https://www.panyuplastic.com/book/6h8ufor/
 - [崩铁]请给玩家一个准确的血条！ https://www.panyuplastic.com/book/6h8ufoa/
-- 被鬼怪宠爱的漂亮书生 https://www.panyuplastic.com/book/6h8ufni/
 - 满级竹马从异世穿回来了 https://www.panyuplastic.com/book/6h8ufnh/
 - 同时扮演贵族学院F4和平民校花 https://www.panyuplastic.com/book/6h8ufng/
 - 亚当斯与韦恩的适配性 https://www.panyuplastic.com/book/6h8ufnc/
 - 幼崽假少爷选择回归寒门 https://www.panyuplastic.com/book/6h8ufmv/
 - [封神]圣人生欲 https://www.panyuplastic.com/book/6h8ufmo/
 - 战死的阿爹回来了[年代] https://www.panyuplastic.com/book/6h8ufml/
-- 炮灰的我该如何上位？ https://www.panyuplastic.com/book/6h8ufmf/
 - 我骗家里的钱养你啊 https://www.panyuplastic.com/book/6h8ufme/
 - 青城玩家明明超强却过分谨慎 https://www.panyuplastic.com/book/6h8ufm4/
 - 可怜的天然呆直男[快穿] https://www.panyuplastic.com/book/6h8ufm0/
@@ -70,6 +70,7 @@
 - 直男咒术师的限制级游戏 https://www.panyuplastic.com/book/6h8ufk9/
 - 求生游戏：当邪神成为生活玩家后 https://www.panyuplastic.com/book/6h8ufk7/
 - 好巧，你也是妹控？[综崩铁] https://www.panyuplastic.com/book/6h8uec8/
+- 魔物堆里的人类幼崽 https://www.panyuplastic.com/book/6h8uec4/
 - 大美人怀了enigma上司的崽 https://www.panyuplastic.com/book/6h8uebv/
 - 高调装神，猥琐发育 https://www.panyuplastic.com/book/6h8uebr/
 - 皇后守则[快穿] https://www.panyuplastic.com/book/6h8ueb7/
@@ -77,7 +78,6 @@
 - 我不可能舔一个漂亮捞子 https://www.panyuplastic.com/book/6h8ueav/
 - 昭暮 https://www.panyuplastic.com/book/6h8ueag/
 - 欢迎来到重生点 https://www.panyuplastic.com/book/6h8ue9t/
-- 阴郁路人不想被喜欢 https://www.panyuplastic.com/book/6h8ue9e/
 - 善逸拒绝成为咒术师 https://www.panyuplastic.com/book/6h8ue98/
 - 微臣怜惜公主 https://www.panyuplastic.com/book/6h8ta08/
 - 某柯学的正义伙伴 https://www.panyuplastic.com/book/6h8t9vp/
@@ -90,12 +90,10 @@
 - 这谁的沙雕二次元心声！ https://www.panyuplastic.com/book/6h8t68h/
 - 你也没死？ https://www.panyuplastic.com/book/6h8t68g/
 - 青空来信 https://www.panyuplastic.com/book/6h8t62s/
-- 误入反派培养直播后 https://www.panyuplastic.com/book/6h8t5vr/
 - 老公是松散生命体 https://www.panyuplastic.com/book/6h8t5vo/
 - 隔壁班的松田君 https://www.panyuplastic.com/book/6h8t5v7/
 - 养了一个废太子 https://www.panyuplastic.com/book/6h8t5ui/
 - 我最讨厌打球了！ https://www.panyuplastic.com/book/6h8t5se/
-- 沈助理又在隐藏他的超能力 https://www.panyuplastic.com/book/6h8t5n3/
 - 在立海大玩网球模拟器 https://www.panyuplastic.com/book/6h8t5j1/
 - 当了卧底的我发现遍地熟人 https://www.panyuplastic.com/book/6h8t5j0/
 - [综英美]小玉有话说 https://www.panyuplastic.com/book/6h8t5b5/

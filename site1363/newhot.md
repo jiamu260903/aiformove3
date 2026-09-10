@@ -1,7 +1,7 @@
 
 # 无瑕天涯在线书库 - 免费小说在线阅读
 
-更新时间：2026-09-08 03:45:17
+更新时间：2026-09-09 03:45:25
 
 无瑕天涯在线书库自2003年创立至今，致力于提供包括武侠、言情、科幻等多种类型的小说免费在线阅读服务。页面设计简洁，持续优化用户体验，旨在为读者带来更好的阅读享受。 https://www.wuxia688.com
 
@@ -166,10 +166,8 @@
 - 普通人的乙女RPG[西幻] https://www.wuxia688.com/book/2bjorib/
 - 老公是松散生命体 https://www.wuxia688.com/book/2bjord5/
 - 万人迷总被入侵角色觊觎[快穿] https://www.wuxia688.com/book/2bjorb1/
-- 被鬼怪宠爱的漂亮书生 https://www.wuxia688.com/book/2bjoqvp/
 - 忍界有文学 https://www.wuxia688.com/book/2bjoqsg/
 - 苗疆蛊女模拟器 https://www.wuxia688.com/book/2bjoq6p/
-- 沈助理又在隐藏他的超能力 https://www.wuxia688.com/book/2bjoq58/
 - 夏油弟弟在立海大 https://www.wuxia688.com/book/2bjoq1o/
 - 全小区宠物都是卧底 https://www.wuxia688.com/book/2bjoppu/
 - [综英美]和小杰鸟青梅竹马的日子 https://www.wuxia688.com/book/2bjopke/
@@ -228,7 +226,6 @@
 - 我家夫郎是暴君 https://www.wuxia688.com/book/2bjohfp/
 - 在情敌变情人文里当炮灰 https://www.wuxia688.com/book/2bjoha5/
 - 摆烂后我成了邪神学院大佬 https://www.wuxia688.com/book/2bjoh7e/
-- 误入反派培养直播后 https://www.wuxia688.com/book/2bjoh5e/
 - 变成龙傲天的心上猫后 https://www.wuxia688.com/book/2bjoh0c/
 - 一见倾心[快穿] https://www.wuxia688.com/book/2bjogi8/
 - 少女妄想症 https://www.wuxia688.com/book/2bjoggh/
@@ -284,7 +281,6 @@
 - [综英美]让我统治哥谭！！！ https://www.wuxia688.com/book/2bjoah6/
 - 被四皇错看成小动物后 https://www.wuxia688.com/book/2bjoa9v/
 - 陌上炊烟（种田） https://www.wuxia688.com/book/2bjoa5g/
-- 炮灰的我该如何上位？ https://www.wuxia688.com/book/2bjoa2u/
 - 穿进民国后宅从杂役做起 https://www.wuxia688.com/book/2bjoa02/
 - 修仙回来后开了间民宿 https://www.wuxia688.com/book/2bjo9ub/
 - 好好做1 https://www.wuxia688.com/book/2bjo9sd/
@@ -437,7 +433,7 @@
 - 满级竹马从异世穿回来了 https://www.wuxia688.com/book/2bjmsp3/
 - 京秋婚约 https://www.wuxia688.com/book/2bjltv3/
 - 直男咒术师的限制级游戏 https://www.wuxia688.com/book/2bjltog/
-- 阴郁路人不想被喜欢 https://www.wuxia688.com/book/2bjlsrm/
+- 魔物堆里的人类幼崽 https://www.wuxia688.com/book/2bjlsg5/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1363/index.md)

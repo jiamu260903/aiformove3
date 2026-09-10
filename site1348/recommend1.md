@@ -1,7 +1,7 @@
 
 # 看剧文学网 - 书友最值得收藏的小说阅读网
 
-更新时间：2026-09-08 03:32:42
+更新时间：2026-09-09 03:32:46
 
 看剧文学网，精选最好看的小说推荐给大家在线阅读。这里有网络小说大全，包括最火、最热门的小说最新章节，是书友最值得收藏的免费小说阅读网。 https://www.kanju788.com
 
@@ -145,7 +145,6 @@
 - 仙门透明人被迫万人迷 https://www.kanju788.com/book/tnvdd1/
 - 巨物致富：回乡开钓场 https://www.kanju788.com/book/tnvdcj/
 - 天幕今天也在直播我搞基建 https://www.kanju788.com/book/tnvd86/
-- 寡妇美人模拟器 https://www.kanju788.com/book/tnvd3j/
 - 我有一座安全城 https://www.kanju788.com/book/tnvcrk/
 - 成为养成系练习生后 https://www.kanju788.com/book/tnvcll/
 - 大瑛弟国 https://www.kanju788.com/book/tnvcct/

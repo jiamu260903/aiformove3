@@ -1,7 +1,7 @@
 
 # 欣怡书屋 - 免费最新章节小说阅读,全本无弹窗
 
-更新时间：2026-09-08 03:50:14
+更新时间：2026-09-09 03:50:34
 
 欣怡书屋是最值得收藏的小说阅读网之一，提供大量热门网络小说的免费阅读服务。所有小说均为高质量，并且支持最新章节即时更新与全本无弹窗浏览体验。 https://www.znenghs.com
 
@@ -34,8 +34,8 @@
 - 你，后室管理员 https://www.znenghs.com/book/5n2k8th/
 - 高调装神，猥琐发育 https://www.znenghs.com/book/5n2k8sf/
 - 满级竹马从异世穿回来了 https://www.znenghs.com/book/5n2k8r3/
-- 阴郁路人不想被喜欢 https://www.znenghs.com/book/5n2k8r0/
 - 京秋婚约 https://www.znenghs.com/book/5n2k8oe/
+- 魔物堆里的人类幼崽 https://www.znenghs.com/book/5n2k8o4/
 - 直男咒术师的限制级游戏 https://www.znenghs.com/book/5n2k8nt/
 - 求生游戏：当邪神成为生活玩家后 https://www.znenghs.com/book/5n2k8n7/
 - 穿书八年后，女配再就业 https://www.znenghs.com/book/5n2ju04/
@@ -194,7 +194,6 @@
 - 想换个老公怎么这么难 https://www.znenghs.com/book/i9tq99/
 - 夏油弟弟在立海大 https://www.znenghs.com/book/i9tq6j/
 - [综英美]和小杰鸟青梅竹马的日子 https://www.znenghs.com/book/i9tpo8/
-- 沈助理又在隐藏他的超能力 https://www.znenghs.com/book/i9tpf4/
 - 天崩开局还能通关吗？ https://www.znenghs.com/book/i9tpe2/
 - 全小区宠物都是卧底 https://www.znenghs.com/book/i9tpdh/
 - 老公是恐怖游戏男主 https://www.znenghs.com/book/i9tp1b/
@@ -410,7 +409,6 @@
 - 青空来信 https://www.znenghs.com/book/i9ssnb/
 - 老公是松散生命体 https://www.znenghs.com/book/i9sptm/
 - 我最讨厌打球了！ https://www.znenghs.com/book/i9smrj/
-- 误入反派培养直播后 https://www.znenghs.com/book/i9sh6m/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.znenghs.com/book/i9sf47/
 - [足球]罗蜜第一志愿 https://www.znenghs.com/book/i9sdb6/
 - 哥你不能不要我 https://www.znenghs.com/book/i9rs4f/
