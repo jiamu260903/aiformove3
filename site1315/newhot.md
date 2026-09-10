@@ -1,7 +1,7 @@
 
 # 连载小说网, 新笔趣小说阅读网 - 热门小说在线免费阅读
 
-更新时间：2026-09-08 03:34:37
+更新时间：2026-09-09 03:34:41
 
 连载小说网为您提供最新最全的小说资源，当顶点小说网无法访问时，请选择我们作为替代。这里是书友们的聚集地，拥有海量热门小说供您免费在线阅读。 https://www.lianzai007.com
 
@@ -32,7 +32,7 @@
 - 被四皇错看成小动物后 https://www.lianzai007.com/book/6g3n1da/
 - 你，后室管理员 https://www.lianzai007.com/book/6g3n1d5/
 - 高调装神，猥琐发育 https://www.lianzai007.com/book/6g3n1cj/
-- 阴郁路人不想被喜欢 https://www.lianzai007.com/book/6g3n1bj/
+- 魔物堆里的人类幼崽 https://www.lianzai007.com/book/6g3n1b6/
 - 直男咒术师的限制级游戏 https://www.lianzai007.com/book/6g3n1ad/
 - 京秋婚约 https://www.lianzai007.com/book/6g3n19d/
 - 满级竹马从异世穿回来了 https://www.lianzai007.com/book/6g3n17g/
@@ -201,7 +201,6 @@
 - 如何投入虚情假意 https://www.lianzai007.com/book/kq17cq/
 - [足球]那个德国队新皇 https://www.lianzai007.com/book/kq174c/
 - [综英美]和小杰鸟青梅竹马的日子 https://www.lianzai007.com/book/kq171s/
-- 沈助理又在隐藏他的超能力 https://www.lianzai007.com/book/kq16tu/
 - 绝色美人模拟器[快穿] https://www.lianzai007.com/book/kq16pb/
 - 夏油弟弟在立海大 https://www.lianzai007.com/book/kq16ms/
 - 围观吃瓜却发现老公和别人在一起 https://www.lianzai007.com/book/kq16hl/
@@ -410,7 +409,6 @@
 - 这谁的沙雕二次元心声！ https://www.lianzai007.com/book/kq0b8s/
 - 老公是松散生命体 https://www.lianzai007.com/book/kq09km/
 - 我最讨厌打球了！ https://www.lianzai007.com/book/kq055a/
-- 误入反派培养直播后 https://www.lianzai007.com/book/kq007m/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.lianzai007.com/book/kpvtjn/
 - [足球]罗蜜第一志愿 https://www.lianzai007.com/book/kpvrdj/
 - 哥你不能不要我 https://www.lianzai007.com/book/kpvare/

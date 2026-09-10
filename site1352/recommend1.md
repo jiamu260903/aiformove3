@@ -1,11 +1,12 @@
 
 # 读者电子书-全本TXT小说免费下载,最新全集小说阅读
 
-更新时间：2026-09-08 03:28:21
+更新时间：2026-09-09 03:28:29
 
 读者电子书提供全本TXT小说下载及完整版电子书下载服务，涵盖各类最新最全的小说资源，支持手机等多终端阅读。每日更新，满足您的阅读需求。 https://www.duzhe368.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.duzhe368.com/book/3hfvb7k/
 - 漫画取材所引发的修罗场 https://www.duzhe368.com/book/3hfvb7f/
 - 二次分化后他怀了死对头的崽 https://www.duzhe368.com/book/3hfvb7d/
 - 暗恋的价格是三万块 https://www.duzhe368.com/book/3hfvb7c/
@@ -81,16 +82,15 @@
 - 昭暮 https://www.duzhe368.com/book/3hfu3i1/
 - 十九世纪贵族厨房（美食） https://www.duzhe368.com/book/3hfu082/
 - 原配夫人 https://www.duzhe368.com/book/3hfu075/
-- 星际团宠小人鱼 https://www.duzhe368.com/book/3hfu02v/
 - 始乱终弃清冷首辅后 https://www.duzhe368.com/book/3hfu024/
 - 高调装神，猥琐发育 https://www.duzhe368.com/book/3hftp55/
 - 完蛋！被恨孕男包围了！ https://www.duzhe368.com/book/3hftp38/
+- 我只梦你一页 https://www.duzhe368.com/book/3hftp25/
 - 食明 https://www.duzhe368.com/book/3hftm3n/
 - 诡话第一boss https://www.duzhe368.com/book/3hftj50/
 - 专业女配的自我修养（快穿） https://www.duzhe368.com/book/3hfti44/
 - 老实人妻，但顶级魅魔 https://www.duzhe368.com/book/3hftgkm/
 - [足球]我的游戏存档成真了？！ https://www.duzhe368.com/book/3hftani/
-- 摄政王家的咸鱼夫郎 https://www.duzhe368.com/book/3hft98j/
 - 让你们无剧本可走（快穿） https://www.duzhe368.com/book/3hft7nl/
 - 我与龙傲天寿命共享 https://www.duzhe368.com/book/3hft7jd/
 - 如何正确哄睡暴君 https://www.duzhe368.com/book/3hft43q/
@@ -106,6 +106,7 @@
 - 同时扮演贵族学院F4和平民校花 https://www.duzhe368.com/book/3hfsgak/
 - 路人攻了主角攻［快穿］ https://www.duzhe368.com/book/3hfsf1j/
 - 开局绑定郭奉孝，谋定三国风云 https://www.duzhe368.com/book/3hfsf15/
+- 月亮上的大筒木 https://www.duzhe368.com/book/3hfser5/
 - 韩团绿卡不想忍了 https://www.duzhe368.com/book/3hfseca/
 - 苏娘子汴京摆摊日常（美食） https://www.duzhe368.com/book/3hfsbkf/
 - 我有一座地下城 https://www.duzhe368.com/book/3hfsbfb/
@@ -148,13 +149,11 @@
 - 大瑛弟国 https://www.duzhe368.com/book/3hfpp62/
 - 95美国贵族高中模拟 https://www.duzhe368.com/book/3hfpp5l/
 - 六零之成了卷王的妹妹 https://www.duzhe368.com/book/3hfpp3i/
-- 寡妇美人模拟器 https://www.duzhe368.com/book/3hfpp2l/
 - 老公对不起 https://www.duzhe368.com/book/3hfpor6/
 - 我有一座安全城 https://www.duzhe368.com/book/3hfpoio/
 - 巨物致富：回乡开钓场 https://www.duzhe368.com/book/3hfpoei/
 - 成为养成系练习生后 https://www.duzhe368.com/book/3hfpoe0/
 - 五十年代港城日常 https://www.duzhe368.com/book/3hfpoaf/
-- 仙门透明人被迫万人迷 https://www.duzhe368.com/book/3hfpnep/
 - 全民求生:从小木屋到魔法农场 https://www.duzhe368.com/book/3hfpnbc/
 - 海岛求生：生活玩家种田囤货 https://www.duzhe368.com/book/3hfpnb9/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.duzhe368.com/book/3hfpn89/

@@ -1,7 +1,7 @@
 
 # 文学小说网手机版_好看的文学小说TXT下载,无弹窗手机小说网
 
-更新时间：2026-09-08 03:43:38
+更新时间：2026-09-09 03:43:42
 
 文学小说网收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者最值得收藏的网络小说阅读网,精彩小说尽在文学小说网(无弹窗小说网)。 https://www.wenxue521.com
 
@@ -34,7 +34,7 @@
 - 高调装神，猥琐发育 https://www.wenxue521.com/book/93olsaf/
 - 直男咒术师的限制级游戏 https://www.wenxue521.com/book/93ols9s/
 - 京秋婚约 https://www.wenxue521.com/book/93ols95/
-- 阴郁路人不想被喜欢 https://www.wenxue521.com/book/93ols6h/
+- 魔物堆里的人类幼崽 https://www.wenxue521.com/book/93ols7h/
 - 满级竹马从异世穿回来了 https://www.wenxue521.com/book/93ols57/
 - 求生游戏：当邪神成为生活玩家后 https://www.wenxue521.com/book/93ols56/
 - 昭暮 https://www.wenxue521.com/book/93olh8o/
@@ -185,7 +185,6 @@
 - 穿到废土末世三十年后 https://www.wenxue521.com/book/t5nk9b/
 - 若清晨所见之蓝 https://www.wenxue521.com/book/t5njod/
 - 万人迷总被入侵角色觊觎[快穿] https://www.wenxue521.com/book/t5njaq/
-- 沈助理又在隐藏他的超能力 https://www.wenxue521.com/book/t5nj0r/
 - 全星际捧我当神明 https://www.wenxue521.com/book/t5niuq/
 - 天崩开局还能通关吗？ https://www.wenxue521.com/book/t5nirl/
 - [综英美]和小杰鸟青梅竹马的日子 https://www.wenxue521.com/book/t5nipf/
@@ -411,7 +410,6 @@
 - 老公是松散生命体 https://www.wenxue521.com/book/t5mit0/
 - 我最讨厌打球了！ https://www.wenxue521.com/book/t5mdcm/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.wenxue521.com/book/t5m8s5/
-- 误入反派培养直播后 https://www.wenxue521.com/book/t5m6s8/
 - [足球]罗蜜第一志愿 https://www.wenxue521.com/book/t5m68n/
 - 哥你不能不要我 https://www.wenxue521.com/book/t5lihi/
 ## 相关内容

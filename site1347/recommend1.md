@@ -1,7 +1,7 @@
 
 # 故事来书吧-免费阅读全网最新最热小说
 
-更新时间：2026-09-08 03:30:46
+更新时间：2026-09-09 03:30:50
 
 故事来书吧提供海量免费无弹窗小说在线阅读服务，涵盖言情、都市、玄幻、武侠等多种类型，让你随时随地享受阅读的乐趣。 https://www.gushi688.com
 
@@ -152,7 +152,6 @@
 - 直男咒术师的限制级游戏 https://www.gushi688.com/book/511rq5e/
 - 清澈女大的六零年代 https://www.gushi688.com/book/511rq3r/
 - 老公对不起 https://www.gushi688.com/book/511rq2f/
-- 寡妇美人模拟器 https://www.gushi688.com/book/511rpue/
 - 仙门透明人被迫万人迷 https://www.gushi688.com/book/511rps9/
 - [娱乐圈]过分美丽的她 https://www.gushi688.com/book/511rpqt/
 - 我有一座安全城 https://www.gushi688.com/book/511rppg/

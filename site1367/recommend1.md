@@ -1,11 +1,12 @@
 
 # 奇幻笔趣屋 - 书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-08 03:37:50
+更新时间：2026-09-09 03:37:51
 
 奇幻笔趣屋收录整理最新最全的热门网络小说，提供所有小说首发最新章节免费阅读服务，是书友们最值得收藏的小说阅读网站。 https://www.qihuan958.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.qihuan958.com/book/4rau100/
 - 全民求生，但剑三 https://www.qihuan958.com/book/4rau0vt/
 - 炮灰的海外亲戚回国啦！ https://www.qihuan958.com/book/4rau0vl/
 - 乖乖女的杂货铺[八零] https://www.qihuan958.com/book/4rau0vh/
@@ -81,9 +82,9 @@
 - 昭暮 https://www.qihuan958.com/book/4rasovg/
 - 十九世纪贵族厨房（美食） https://www.qihuan958.com/book/4rasl9q/
 - 原配夫人 https://www.qihuan958.com/book/4rasl72/
-- 星际团宠小人鱼 https://www.qihuan958.com/book/4rasl0k/
 - 始乱终弃清冷首辅后 https://www.qihuan958.com/book/4raskub/
 - 完蛋！被恨孕男包围了！ https://www.qihuan958.com/book/4rase1v/
+- 我只梦你一页 https://www.qihuan958.com/book/4rase0r/
 - 高调装神，猥琐发育 https://www.qihuan958.com/book/4rasdul/
 - 食明 https://www.qihuan958.com/book/4rasbsn/
 - 诡话第一boss https://www.qihuan958.com/book/4ras8kj/
@@ -92,7 +93,6 @@
 - [足球]我的游戏存档成真了？！ https://www.qihuan958.com/book/4ras21t/
 - 让你们无剧本可走（快穿） https://www.qihuan958.com/book/4raru3m/
 - 我与龙傲天寿命共享 https://www.qihuan958.com/book/4rartgl/
-- 摄政王家的咸鱼夫郎 https://www.qihuan958.com/book/4rart7o/
 - 如何正确哄睡暴君 https://www.qihuan958.com/book/4rars4v/
 - 死遁的亡夫们都回来了 https://www.qihuan958.com/book/4rarkt2/
 - 我骗家里的钱养你啊 https://www.qihuan958.com/book/4rarkcd/
@@ -107,6 +107,7 @@
 - 从童星开始杀穿港娱 https://www.qihuan958.com/book/4rar54m/
 - 开局绑定郭奉孝，谋定三国风云 https://www.qihuan958.com/book/4rar3dn/
 - 路人攻了主角攻［快穿］ https://www.qihuan958.com/book/4rar3ca/
+- 月亮上的大筒木 https://www.qihuan958.com/book/4rar30o/
 - 苏娘子汴京摆摊日常（美食） https://www.qihuan958.com/book/4rar1t9/
 - 我有一座地下城 https://www.qihuan958.com/book/4rar1le/
 - 漂亮女配是万人迷［快穿］ https://www.qihuan958.com/book/4rar1kc/
@@ -144,7 +145,6 @@
 - 爱好和平但狂拆机甲 https://www.qihuan958.com/book/4rapclj/
 - 日化人生[科研] https://www.qihuan958.com/book/4raofs2/
 - 95美国贵族高中模拟 https://www.qihuan958.com/book/4raofe7/
-- 仙门透明人被迫万人迷 https://www.qihuan958.com/book/4raof82/
 - 直男咒术师的限制级游戏 https://www.qihuan958.com/book/4raof4l/
 - 五十年代港城日常 https://www.qihuan958.com/book/4raof2o/
 - [娱乐圈]过分美丽的她 https://www.qihuan958.com/book/4raoesk/
@@ -161,7 +161,6 @@
 - 巨物致富：回乡开钓场 https://www.qihuan958.com/book/4raod6f/
 - [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.qihuan958.com/book/4raod0o/
 - 海岛求生：生活玩家种田囤货 https://www.qihuan958.com/book/4raocvd/
-- 寡妇美人模拟器 https://www.qihuan958.com/book/4raocns/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1367/index.md)

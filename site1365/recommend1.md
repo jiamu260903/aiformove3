@@ -1,11 +1,12 @@
 
 # 书城读书网_免费小说在线阅读|无弹窗广告
 
-更新时间：2026-09-08 03:40:01
+更新时间：2026-09-09 03:40:00
 
 书城读书网是最热门的免费小说网站，提供包括玄幻、都市、言情等多种类型的小说在线阅读服务。这里不仅有最新章节的实时更新，还有全面的小说排行榜，让您轻松找到喜欢的作品。阅读体验极佳，全程无弹窗广告干扰，值得收藏！ https://www.shucheng168.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.shucheng168.com/book/47fpabr/
 - 失忆后和死对头有了崽 https://www.shucheng168.com/book/47fpabm/
 - [综英美]和亲友群穿哥谭以后 https://www.shucheng168.com/book/47fpabg/
 - 禁止继承限制级雌君 https://www.shucheng168.com/book/47fpabe/
@@ -79,11 +80,11 @@
 - 在卷王和废物之间选择做吉祥物 https://www.shucheng168.com/book/47fo7hj/
 - 从维多利亚时代开始 https://www.shucheng168.com/book/47fo4fs/
 - 昭暮 https://www.shucheng168.com/book/47fo26p/
-- 星际团宠小人鱼 https://www.shucheng168.com/book/47fnukd/
 - 原配夫人 https://www.shucheng168.com/book/47fnuft/
 - 始乱终弃清冷首辅后 https://www.shucheng168.com/book/47fnufg/
 - 十九世纪贵族厨房（美食） https://www.shucheng168.com/book/47fnudm/
 - 完蛋！被恨孕男包围了！ https://www.shucheng168.com/book/47fnnd3/
+- 我只梦你一页 https://www.shucheng168.com/book/47fnna2/
 - 高调装神，猥琐发育 https://www.shucheng168.com/book/47fnn9t/
 - 食明 https://www.shucheng168.com/book/47fnla8/
 - 诡话第一boss https://www.shucheng168.com/book/47fni3q/
@@ -92,7 +93,6 @@
 - [足球]我的游戏存档成真了？！ https://www.shucheng168.com/book/47fn9uh/
 - 我与龙傲天寿命共享 https://www.shucheng168.com/book/47fn8ca/
 - 让你们无剧本可走（快穿） https://www.shucheng168.com/book/47fn7ug/
-- 摄政王家的咸鱼夫郎 https://www.shucheng168.com/book/47fn6s4/
 - 如何正确哄睡暴君 https://www.shucheng168.com/book/47fn5j0/
 - 我骗家里的钱养你啊 https://www.shucheng168.com/book/47fmuuq/
 - 死遁的亡夫们都回来了 https://www.shucheng168.com/book/47fmtom/
@@ -107,6 +107,7 @@
 - 从童星开始杀穿港娱 https://www.shucheng168.com/book/47fmeaq/
 - 开局绑定郭奉孝，谋定三国风云 https://www.shucheng168.com/book/47fmdf8/
 - 路人攻了主角攻［快穿］ https://www.shucheng168.com/book/47fmcop/
+- 月亮上的大筒木 https://www.shucheng168.com/book/47fmc3h/
 - 漂亮女配是万人迷［快穿］ https://www.shucheng168.com/book/47fm9tp/
 - 我有一座地下城 https://www.shucheng168.com/book/47fm9o9/
 - 苏娘子汴京摆摊日常（美食） https://www.shucheng168.com/book/47fm9gj/
@@ -146,8 +147,6 @@
 - 直男咒术师的限制级游戏 https://www.shucheng168.com/book/47fjonv/
 - 成为养成系练习生后 https://www.shucheng168.com/book/47fjomf/
 - 大瑛弟国 https://www.shucheng168.com/book/47fjoj0/
-- 寡妇美人模拟器 https://www.shucheng168.com/book/47fjoes/
-- 仙门透明人被迫万人迷 https://www.shucheng168.com/book/47fjoau/
 - 五十年代港城日常 https://www.shucheng168.com/book/47fjo8s/
 - 日化人生[科研] https://www.shucheng168.com/book/47fjnjv/
 - [娱乐圈]过分美丽的她 https://www.shucheng168.com/book/47fjn8q/

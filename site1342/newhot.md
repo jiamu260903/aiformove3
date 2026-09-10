@@ -1,7 +1,7 @@
 
 # 阿舍岛小说 - 章节最新最全免费的小说阅读网
 
-更新时间：2026-09-08 03:25:23
+更新时间：2026-09-09 03:25:35
 
 阿舍岛小说提供数万本经典热门小说免费阅读服务，包括但不限于玄幻、言情、网游、穿越等多种类型。网站内容丰富，章节更新及时全面，致力于为读者打造最佳的免费小说阅读体验。 https://www.ashedao.com
 
@@ -108,7 +108,6 @@
 - 全世界都靠我吃瓜 https://www.ashedao.com/book/99d14fc/
 - 五零之我在香江富甲一方 https://www.ashedao.com/book/99d13ma/
 - 好巧，我爸也是狗血文男主 https://www.ashedao.com/book/99d13k9/
-- 阴郁路人不想被喜欢 https://www.ashedao.com/book/99d13as/
 - 修罗场里的无能丈夫 https://www.ashedao.com/book/99d137k/
 - 我在异世当妖精 https://www.ashedao.com/book/99d134n/
 - 万人迷绑定美强惨系统后 https://www.ashedao.com/book/99d12si/
@@ -185,7 +184,6 @@
 - 想换个老公怎么这么难 https://www.ashedao.com/book/99d0iqi/
 - 影后是个外星人[娱乐圈] https://www.ashedao.com/book/99d0iq6/
 - 不要小看娇妻啊！ https://www.ashedao.com/book/99d0io0/
-- 沈助理又在隐藏他的超能力 https://www.ashedao.com/book/99d0i9j/
 - 全小区宠物都是卧底 https://www.ashedao.com/book/99d0i9e/
 - 帝国唯一雄虫长官[虫族] https://www.ashedao.com/book/99d0i82/
 - 沉烟 https://www.ashedao.com/book/99d0i3t/
@@ -246,7 +244,6 @@
 - 蜜蜂膝盖银子弹 https://www.ashedao.com/book/99d08gf/
 - 强爱清冷O后她上瘾了[快穿] https://www.ashedao.com/book/99d08fh/
 - 吃瓜也能整顿豪门？ https://www.ashedao.com/book/99d08ci/
-- 误入反派培养直播后 https://www.ashedao.com/book/99d083l/
 - 皇后守则[快穿] https://www.ashedao.com/book/99d0813/
 - 娇气包在无限游戏被坏男人骗 https://www.ashedao.com/book/99d07vq/
 - 当魔修反派穿成治愈系[穿书] https://www.ashedao.com/book/99d07vc/
@@ -334,7 +331,6 @@
 - 坏女人绑定攻略系统后 https://www.ashedao.com/book/99cvvtr/
 - [足球]德意志小比也能拿冠军吗 https://www.ashedao.com/book/99cvvp9/
 - [HP]我和救世主有个约会 https://www.ashedao.com/book/99cvvnu/
-- 被鬼怪宠爱的漂亮书生 https://www.ashedao.com/book/99cvvkd/
 - [综英美]忠诚的地球迎来了伟大的开拓者 https://www.ashedao.com/book/99cvvjk/
 - 我养龙傲天的那些年 https://www.ashedao.com/book/99cvvj8/
 - [全职高手]卸载键在哪里 https://www.ashedao.com/book/99cvvfs/
@@ -377,7 +373,6 @@
 - 误把钓系病美人O娇养后 https://www.ashedao.com/book/99cvtbb/
 - 女beta的星际悠闲生活 https://www.ashedao.com/book/99cvt15/
 - 贵族学院F4中的第四人 https://www.ashedao.com/book/99cvspm/
-- 炮灰的我该如何上位？ https://www.ashedao.com/book/99cvspb/
 - 软饭的正确吃法[快穿] https://www.ashedao.com/book/99cvsod/
 - 随便捡小狗会出大问题 https://www.ashedao.com/book/99cvsmd/
 - 无能的丈夫们 https://www.ashedao.com/book/99cvsee/
@@ -425,6 +420,7 @@
 - 战死的阿爹回来了[年代] https://www.ashedao.com/book/99cvc85/
 - [综英美]让我统治哥谭！！！ https://www.ashedao.com/book/99cv8ni/
 - 好巧，你也是妹控？[综崩铁] https://www.ashedao.com/book/99cv7aj/
+- 魔物堆里的人类幼崽 https://www.ashedao.com/book/99cv6df/
 - 欢迎来到重生点 https://www.ashedao.com/book/99cv5ok/
 - 好兄弟暴富后非要跟我结婚 https://www.ashedao.com/book/99cv3n9/
 - 求生游戏：当邪神成为生活玩家后 https://www.ashedao.com/book/99cv2le/

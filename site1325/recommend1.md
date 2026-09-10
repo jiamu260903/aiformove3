@@ -1,11 +1,12 @@
 
 # 炫书网-免费全本小说在线阅读分享平台
 
-更新时间：2026-09-08 03:46:51
+更新时间：2026-09-09 03:47:04
 
 炫书网提供免费全本小说在线阅读服务，是国内领先的全集全本完结TXT电子书免费下载分享平台。用户可以上传或下载各种类型的优秀电子书籍。 https://www.xqwz8bk.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.xqwz8bk.com/book/1igm36q/
 - 二次分化后他怀了死对头的崽 https://www.xqwz8bk.com/book/1igm36m/
 - 强取师尊后 https://www.xqwz8bk.com/book/1igm36l/
 - 国师 https://www.xqwz8bk.com/book/1igm36k/
@@ -78,12 +79,12 @@
 - [原神]魔法使恋爱指南 https://www.xqwz8bk.com/book/1igm34f/
 - 和治君只是饭搭子的关系 https://www.xqwz8bk.com/book/1igm34e/
 - 大佬的漂亮老婆回来带崽了[八零] https://www.xqwz8bk.com/book/1igm34d/
-- 星际团宠小人鱼 https://www.xqwz8bk.com/book/1igm2ui/
 - 原配夫人 https://www.xqwz8bk.com/book/1igm2ua/
 - 始乱终弃清冷首辅后 https://www.xqwz8bk.com/book/1igm2ti/
 - [封神]圣人生欲 https://www.xqwz8bk.com/book/1igm2t8/
 - 十九世纪贵族厨房（美食） https://www.xqwz8bk.com/book/1igm2sr/
 - 高调装神，猥琐发育 https://www.xqwz8bk.com/book/1igm2sj/
+- 我只梦你一页 https://www.xqwz8bk.com/book/1igm2si/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.xqwz8bk.com/book/1igm2o2/
 - 直男咒术师的限制级游戏 https://www.xqwz8bk.com/book/1igm2nn/
 - 六零之成了卷王的妹妹 https://www.xqwz8bk.com/book/1igm1fe/
@@ -100,18 +101,15 @@
 - 如何嫁给当朝首辅 https://www.xqwz8bk.com/book/1igjao3/
 - 食明 https://www.xqwz8bk.com/book/1igjaek/
 - 诡话第一boss https://www.xqwz8bk.com/book/1igj6u8/
-- 仙门透明人被迫万人迷 https://www.xqwz8bk.com/book/1igj0ng/
 - 日化人生[科研] https://www.xqwz8bk.com/book/1igj0f9/
 - 让暴君Alpha怀崽后 https://www.xqwz8bk.com/book/1igivl4/
 - 专业女配的自我修养（快穿） https://www.xqwz8bk.com/book/1igive4/
 - 老实人妻，但顶级魅魔 https://www.xqwz8bk.com/book/1igitbg/
 - 巨物致富：回乡开钓场 https://www.xqwz8bk.com/book/1igisge/
 - [足球]我的游戏存档成真了？！ https://www.xqwz8bk.com/book/1igiq11/
-- 寡妇美人模拟器 https://www.xqwz8bk.com/book/1igimat/
 - 让你们无剧本可走（快穿） https://www.xqwz8bk.com/book/1igilq9/
 - 趁她之危 https://www.xqwz8bk.com/book/1igil0s/
 - 起初，我只是想找个冤大头 https://www.xqwz8bk.com/book/1igigvm/
-- 摄政王家的咸鱼夫郎 https://www.xqwz8bk.com/book/1igifdv/
 - 死遁的亡夫们都回来了 https://www.xqwz8bk.com/book/51nmoc/
 - 天幕今天也在直播我搞基建 https://www.xqwz8bk.com/book/51nido/
 - 沈助理又在隐藏他的超能力 https://www.xqwz8bk.com/book/51nhdc/
@@ -159,6 +157,7 @@
 - 开局绑定郭奉孝，谋定三国风云 https://www.xqwz8bk.com/book/g5a4b/
 - 苏娘子汴京摆摊日常（美食） https://www.xqwz8bk.com/book/g5a0k/
 - 海岛求生：生活玩家种田囤货 https://www.xqwz8bk.com/book/g59r1/
+- 月亮上的大筒木 https://www.xqwz8bk.com/book/1jo6k/
 - 95美国贵族高中模拟 https://www.xqwz8bk.com/book/1jnr7/
 - 我有一座安全城 https://www.xqwz8bk.com/book/1jnmc/
 - 我是唯一地上神国 https://www.xqwz8bk.com/book/1jnen/

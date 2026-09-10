@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-09-08 03:26:40
+更新时间：2026-09-09 03:26:51
 
 速阅阁小说网为您提供最新、最全的网络小说资源，在线阅读无限制，支持多种格式下载，打造书友们最爱的小说阅读体验。 https://www.ccccenergy.com
 
@@ -109,7 +109,6 @@
 - 让你们无剧本可走（快穿） https://www.ccccenergy.com/book/7cans9e/
 - [足球]我的游戏存档成真了？！ https://www.ccccenergy.com/book/7canroe/
 - 趁她之危 https://www.ccccenergy.com/book/7canqij/
-- 寡妇美人模拟器 https://www.ccccenergy.com/book/7canq7q/
 - 起初，我只是想找个冤大头 https://www.ccccenergy.com/book/7cankmh/
 - 摄政王家的咸鱼夫郎 https://www.ccccenergy.com/book/7cani3d/
 - 天幕今天也在直播我搞基建 https://www.ccccenergy.com/book/nkbb0r/

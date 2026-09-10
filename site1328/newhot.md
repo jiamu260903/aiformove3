@@ -1,7 +1,7 @@
 
 # 新乐文小说 - 最热门免费在线阅读平台 | 玄幻、网游、言情、穿越、都市全本小说
 
-更新时间：2026-09-08 03:34:20
+更新时间：2026-09-09 03:34:23
 
 新乐文小说为您提供一个无广告无弹窗的纯净阅读环境，专注于玄幻、网游、言情、穿越、都市等多种类型的小说在线阅读体验。在这里可以找到最新最热的小说章节更新，享受舒适的阅读时光。 https://www.ksqinlida.com
 
@@ -34,8 +34,8 @@
 - 高调装神，猥琐发育 https://www.ksqinlida.com/book/1svdoah/
 - 满级竹马从异世穿回来了 https://www.ksqinlida.com/book/1svdo9m/
 - 京秋婚约 https://www.ksqinlida.com/book/1svdo9k/
+- 魔物堆里的人类幼崽 https://www.ksqinlida.com/book/1svdo8q/
 - 直男咒术师的限制级游戏 https://www.ksqinlida.com/book/1svdo8f/
-- 阴郁路人不想被喜欢 https://www.ksqinlida.com/book/1svdo6q/
 - 求生游戏：当邪神成为生活玩家后 https://www.ksqinlida.com/book/1svdo57/
 - 昭暮 https://www.ksqinlida.com/book/1svddb9/
 - 修仙界都为我神魂颠倒 https://www.ksqinlida.com/book/1svdcb4/
@@ -195,7 +195,6 @@
 - 围观吃瓜却发现老公和别人在一起 https://www.ksqinlida.com/book/636ne0/
 - 如何投入虚情假意 https://www.ksqinlida.com/book/636n69/
 - 开局一间小卖部[经营] https://www.ksqinlida.com/book/636mqd/
-- 沈助理又在隐藏他的超能力 https://www.ksqinlida.com/book/636mq8/
 - 沉烟 https://www.ksqinlida.com/book/636mln/
 - 我在原始种田 https://www.ksqinlida.com/book/636mip/
 - [综武侠]与剑有缘 https://www.ksqinlida.com/book/636mhs/
@@ -410,7 +409,6 @@
 - 这谁的沙雕二次元心声！ https://www.ksqinlida.com/book/635pmh/
 - 青空来信 https://www.ksqinlida.com/book/635pm2/
 - 我最讨厌打球了！ https://www.ksqinlida.com/book/635kmu/
-- 误入反派培养直播后 https://www.ksqinlida.com/book/635fsq/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.ksqinlida.com/book/635e54/
 - [足球]罗蜜第一志愿 https://www.ksqinlida.com/book/635bun/
 - 哥你不能不要我 https://www.ksqinlida.com/book/634pd9/

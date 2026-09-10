@@ -1,11 +1,12 @@
 
 # 科幻读书-免费小说阅读|言情小说|小说排行榜|全本完本小说下载
 
-更新时间：2026-09-08 03:33:31
+更新时间：2026-09-09 03:33:34
 
 科幻读书提供海量完结全本小说在线阅读服务，涵盖言情、都市、耽美、穿越等多种类型，并定期更新连载章节及发布最新小说排行榜单。支持有声小说推荐与下载。 https://www.kehuan918.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.kehuan918.com/book/1d56hdt/
 - 怨明月不独照 https://www.kehuan918.com/book/1d56hdq/
 - 穿为龙傲天发妻后 https://www.kehuan918.com/book/1d56hdp/
 - 二次分化后他怀了死对头的崽 https://www.kehuan918.com/book/1d56hdo/
@@ -80,9 +81,9 @@
 - 从维多利亚时代开始 https://www.kehuan918.com/book/1d55bbg/
 - 昭暮 https://www.kehuan918.com/book/1d559c9/
 - 始乱终弃清冷首辅后 https://www.kehuan918.com/book/1d555mu/
-- 星际团宠小人鱼 https://www.kehuan918.com/book/1d555km/
 - 十九世纪贵族厨房（美食） https://www.kehuan918.com/book/1d555kj/
 - 原配夫人 https://www.kehuan918.com/book/1d555f6/
+- 我只梦你一页 https://www.kehuan918.com/book/1d54ug1/
 - 完蛋！被恨孕男包围了！ https://www.kehuan918.com/book/1d54ues/
 - 高调装神，猥琐发育 https://www.kehuan918.com/book/1d54udq/
 - 食明 https://www.kehuan918.com/book/1d54scu/
@@ -91,7 +92,6 @@
 - 专业女配的自我修养（快穿） https://www.kehuan918.com/book/1d54m0a/
 - [足球]我的游戏存档成真了？！ https://www.kehuan918.com/book/1d54g84/
 - 我与龙傲天寿命共享 https://www.kehuan918.com/book/1d54fdu/
-- 摄政王家的咸鱼夫郎 https://www.kehuan918.com/book/1d54f2u/
 - 让你们无剧本可走（快穿） https://www.kehuan918.com/book/1d54crs/
 - 如何正确哄睡暴君 https://www.kehuan918.com/book/1d54cjp/
 - 我骗家里的钱养你啊 https://www.kehuan918.com/book/1d546qe/
@@ -106,6 +106,7 @@
 - 同时扮演贵族学院F4和平民校花 https://www.kehuan918.com/book/1d53n5l/
 - 咦？我爸爸复活啦 https://www.kehuan918.com/book/1d53mqo/
 - 路人攻了主角攻［快穿］ https://www.kehuan918.com/book/1d53k9s/
+- 月亮上的大筒木 https://www.kehuan918.com/book/1d53jme/
 - 开局绑定郭奉孝，谋定三国风云 https://www.kehuan918.com/book/1d53ivc/
 - 我有一座地下城 https://www.kehuan918.com/book/1d53ht9/
 - 漂亮女配是万人迷［快穿］ https://www.kehuan918.com/book/1d53hle/
@@ -151,11 +152,9 @@
 - 我是唯一地上神国 https://www.kehuan918.com/book/1d50vni/
 - 五十年代港城日常 https://www.kehuan918.com/book/1d50vmp/
 - 日化人生[科研] https://www.kehuan918.com/book/1d50vmg/
-- 仙门透明人被迫万人迷 https://www.kehuan918.com/book/1d50v6p/
 - 成为养成系练习生后 https://www.kehuan918.com/book/1d50uto/
 - 天幕今天也在直播我搞基建 https://www.kehuan918.com/book/1d50uql/
 - 我有一座安全城 https://www.kehuan918.com/book/1d50ui3/
-- 寡妇美人模拟器 https://www.kehuan918.com/book/1d50ucc/
 - 六零之成了卷王的妹妹 https://www.kehuan918.com/book/1d50tkm/
 - 清澈女大的六零年代 https://www.kehuan918.com/book/1d50til/
 - 95美国贵族高中模拟 https://www.kehuan918.com/book/1d50th6/

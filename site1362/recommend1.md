@@ -1,11 +1,12 @@
 
 # 漫话乐文小说-免费小说阅读,无弹窗,最新章节更新快
 
-更新时间：2026-09-08 03:35:32
+更新时间：2026-09-09 03:35:34
 
 漫话乐文小说是广大书友最值得收藏的网络小说阅读网，提供当前最火热的网络小说免费阅读服务，高质量的小说最新章节更新快速，适合所有网络小说爱好者。 https://www.manhua958.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.manhua958.com/book/17scts2/
 - 烈火焚身[巴黎圣母院] https://www.manhua958.com/book/17sctrs/
 - 康熙宠妃日常 https://www.manhua958.com/book/17sctrq/
 - 欲和离？夫君他目不识丁 https://www.manhua958.com/book/17sctrl/
@@ -82,16 +83,15 @@
 - 原配夫人 https://www.manhua958.com/book/17sbi10/
 - 十九世纪贵族厨房（美食） https://www.manhua958.com/book/17sbhvu/
 - 始乱终弃清冷首辅后 https://www.manhua958.com/book/17sbhtg/
-- 星际团宠小人鱼 https://www.manhua958.com/book/17sbhqj/
 - 完蛋！被恨孕男包围了！ https://www.manhua958.com/book/17sbara/
 - 高调装神，猥琐发育 https://www.manhua958.com/book/17sbaq2/
+- 我只梦你一页 https://www.manhua958.com/book/17sbapm/
 - 食明 https://www.manhua958.com/book/17sb8oc/
 - 诡话第一boss https://www.manhua958.com/book/17sb5i1/
 - 老实人妻，但顶级魅魔 https://www.manhua958.com/book/17sb2c5/
 - 专业女配的自我修养（快穿） https://www.manhua958.com/book/17sb2a9/
 - [足球]我的游戏存档成真了？！ https://www.manhua958.com/book/17sau40/
 - 我与龙傲天寿命共享 https://www.manhua958.com/book/17saqt2/
-- 摄政王家的咸鱼夫郎 https://www.manhua958.com/book/17saqas/
 - 让你们无剧本可走（快穿） https://www.manhua958.com/book/17sap9v/
 - 如何正确哄睡暴君 https://www.manhua958.com/book/17sap12/
 - 我骗家里的钱养你啊 https://www.manhua958.com/book/17sahuh/
@@ -105,6 +105,7 @@
 - 咦？我爸爸复活啦 https://www.manhua958.com/book/17sa3t0/
 - 同时扮演贵族学院F4和平民校花 https://www.manhua958.com/book/17sa2cq/
 - 从童星开始杀穿港娱 https://www.manhua958.com/book/17sa25d/
+- 月亮上的大筒木 https://www.manhua958.com/book/17sa1h6/
 - 路人攻了主角攻［快穿］ https://www.manhua958.com/book/17sa0q9/
 - 开局绑定郭奉孝，谋定三国风云 https://www.manhua958.com/book/17s9v5a/
 - 我有一座地下城 https://www.manhua958.com/book/17s9u97/
@@ -148,7 +149,6 @@
 - 我有一座安全城 https://www.manhua958.com/book/17s7c1k/
 - 95美国贵族高中模拟 https://www.manhua958.com/book/17s7bo4/
 - [娱乐圈]过分美丽的她 https://www.manhua958.com/book/17s7bl5/
-- 仙门透明人被迫万人迷 https://www.manhua958.com/book/17s7b7r/
 - 老公对不起 https://www.manhua958.com/book/17s7b55/
 - 我是唯一地上神国 https://www.manhua958.com/book/17s7ar4/
 - 全民求生:从小木屋到魔法农场 https://www.manhua958.com/book/17s7amb/
@@ -156,7 +156,6 @@
 - 清澈女大的六零年代 https://www.manhua958.com/book/17s7aib/
 - 巨物致富：回乡开钓场 https://www.manhua958.com/book/17s7ab8/
 - 大瑛弟国 https://www.manhua958.com/book/17s79qq/
-- 寡妇美人模拟器 https://www.manhua958.com/book/17s79ot/
 - 海岛求生：生活玩家种田囤货 https://www.manhua958.com/book/17s79nd/
 - [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.manhua958.com/book/17s79n2/
 - 五十年代港城日常 https://www.manhua958.com/book/17s79mj/

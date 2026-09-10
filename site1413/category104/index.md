@@ -1,11 +1,45 @@
 
 # 雷火小说网 - 最新最全的小说阅读平台
 
-更新时间：2026-09-08 03:48:13
+更新时间：2026-09-09 03:48:24
 
 雷火小说网提供海量正版小说资源，在线免费阅读最新热门小说，支持手机电脑多端同步阅读，是书友们值得收藏的优质小说阅读网站。 https://www.yskuq.com
 
 ## 仙侠小说 
+- [仙侠 第1页](/site1413/category104/1.md)
+- [仙侠 第2页](/site1413/category104/2.md)
+- [仙侠 第3页](/site1413/category104/3.md)
+- [仙侠 第4页](/site1413/category104/4.md)
+- [仙侠 第5页](/site1413/category104/5.md)
+- [仙侠 第6页](/site1413/category104/6.md)
+- [仙侠 第7页](/site1413/category104/7.md)
+- [仙侠 第8页](/site1413/category104/8.md)
+- [仙侠 第9页](/site1413/category104/9.md)
+- [仙侠 第10页](/site1413/category104/10.md)
+- [仙侠 第11页](/site1413/category104/11.md)
+- [仙侠 第12页](/site1413/category104/12.md)
+- [仙侠 第13页](/site1413/category104/13.md)
+- [仙侠 第14页](/site1413/category104/14.md)
+- [仙侠 第15页](/site1413/category104/15.md)
+- [仙侠 第16页](/site1413/category104/16.md)
+- [仙侠 第17页](/site1413/category104/17.md)
+- [仙侠 第18页](/site1413/category104/18.md)
+- [仙侠 第19页](/site1413/category104/19.md)
+- [仙侠 第20页](/site1413/category104/20.md)
+- [仙侠 第21页](/site1413/category104/21.md)
+- [仙侠 第22页](/site1413/category104/22.md)
+- [仙侠 第23页](/site1413/category104/23.md)
+- [仙侠 第24页](/site1413/category104/24.md)
+- [仙侠 第25页](/site1413/category104/25.md)
+- [仙侠 第26页](/site1413/category104/26.md)
+- [仙侠 第27页](/site1413/category104/27.md)
+- [仙侠 第28页](/site1413/category104/28.md)
+- [仙侠 第29页](/site1413/category104/29.md)
+- [仙侠 第30页](/site1413/category104/30.md)
+- [仙侠 第31页](/site1413/category104/31.md)
+- [仙侠 第32页](/site1413/category104/32.md)
+- [仙侠 第33页](/site1413/category104/33.md)
+- [仙侠 第34页](/site1413/category104/34.md)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1413/index.md)
