@@ -1,11 +1,12 @@
 
 # 精英文学 - 书友最值得收藏的小说免费阅读网
 
-更新时间：2026-09-08 03:45:48
+更新时间：2026-09-09 03:46:02
 
 精英文学为您提供一个干净舒适的阅读环境，作为书友最值得收藏的小说免费阅读网之一，我们致力于打造无广告干扰的最佳在线阅读体验。 https://www.xcposji.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.xcposji.com/book/jnn1le/
 - 世界伏于她刀下[无限] https://www.xcposji.com/book/jnmrpr/
 - 好心的俄罗斯人 https://www.xcposji.com/book/jnmrpq/
 - 娘娘扶摇直上 https://www.xcposji.com/book/jnmrpl/
@@ -71,7 +72,6 @@
 - 天幕今天也在直播我搞基建 https://www.xcposji.com/book/jnmkgt/
 - 起初，我只是想找个冤大头 https://www.xcposji.com/book/jnmk0l/
 - 上个鬼班[无限] https://www.xcposji.com/book/jnmg7e/
-- 仙门透明人被迫万人迷 https://www.xcposji.com/book/jnmf4u/
 - [足球]足坛人生模拟器 https://www.xcposji.com/book/jnm8sb/
 - 九零重组小家庭 https://www.xcposji.com/book/jnm8cn/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.xcposji.com/book/jnm7pg/
@@ -84,7 +84,6 @@
 - 老实人妻，但顶级魅魔 https://www.xcposji.com/book/jnl7aj/
 - 专业女配的自我修养（快穿） https://www.xcposji.com/book/jnl6vs/
 - [足球]我的游戏存档成真了？！ https://www.xcposji.com/book/jnl1ma/
-- 摄政王家的咸鱼夫郎 https://www.xcposji.com/book/jnl15r/
 - 我与龙傲天寿命共享 https://www.xcposji.com/book/jnl0er/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.xcposji.com/book/jnkuf3/
 - 让你们无剧本可走（快穿） https://www.xcposji.com/book/jnktqp/
@@ -99,8 +98,10 @@
 - 从童星开始杀穿港娱 https://www.xcposji.com/book/jnk9vu/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.xcposji.com/book/jnk9s0/
 - 同时扮演贵族学院F4和平民校花 https://www.xcposji.com/book/jnk9n0/
+- 我只梦你一页 https://www.xcposji.com/book/jnk8fv/
 - 路人攻了主角攻［快穿］ https://www.xcposji.com/book/jnk8e0/
 - 苏娘子汴京摆摊日常（美食） https://www.xcposji.com/book/jnk7qb/
+- 月亮上的大筒木 https://www.xcposji.com/book/jnk64h/
 - 开局绑定郭奉孝，谋定三国风云 https://www.xcposji.com/book/jnk5sp/
 - 直男咒术师的限制级游戏 https://www.xcposji.com/book/jnk3jo/
 - 漂亮女配是万人迷［快穿］ https://www.xcposji.com/book/jnk1uv/
@@ -139,7 +140,6 @@
 - 始乱终弃清冷首辅后 https://www.xcposji.com/book/jnhgjs/
 - 我有一座安全城 https://www.xcposji.com/book/jnhged/
 - 海岛求生：生活玩家种田囤货 https://www.xcposji.com/book/jnhgck/
-- 星际团宠小人鱼 https://www.xcposji.com/book/jnhgbu/
 - 完蛋！被恨孕男包围了！ https://www.xcposji.com/book/jnhfrc/
 - 在民俗惊悚片被诸神庇护 https://www.xcposji.com/book/jnhfqf/
 - 全民求生:从小木屋到魔法农场 https://www.xcposji.com/book/jnhfkf/
@@ -158,7 +158,6 @@
 - 原配夫人 https://www.xcposji.com/book/jnhecl/
 - [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.xcposji.com/book/jnhecg/
 - 高调装神，猥琐发育 https://www.xcposji.com/book/jnheam/
-- 寡妇美人模拟器 https://www.xcposji.com/book/jnhe6l/
 - 成为养成系练习生后 https://www.xcposji.com/book/jnhe5o/
 - 卷王后妈，八零养娃 https://www.xcposji.com/book/jnhe5m/
 - 95美国贵族高中模拟 https://www.xcposji.com/book/jnhdlq/

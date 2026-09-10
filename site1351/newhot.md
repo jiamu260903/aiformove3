@@ -1,7 +1,7 @@
 
 # 泡泡中文小说-无弹窗书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-08 03:46:36
+更新时间：2026-09-09 03:46:49
 
 泡泡中文小说是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。 https://www.xiaoshuo288.com
 
@@ -159,11 +159,9 @@
 - 当然是拿世界冠军啦![短道速滑] https://www.xiaoshuo288.com/book/dm1c91/
 - 被迫跟死对头结婚后 https://www.xiaoshuo288.com/book/dm1c8n/
 - 若清晨所见之蓝 https://www.xiaoshuo288.com/book/dm1c58/
-- 被鬼怪宠爱的漂亮书生 https://www.xiaoshuo288.com/book/dm1bro/
 - 渣攻试图洗白[快穿] https://www.xiaoshuo288.com/book/dm1bqu/
 - 沉烟 https://www.xiaoshuo288.com/book/dm1bpf/
 - 忍界有文学 https://www.xiaoshuo288.com/book/dm1ajd/
-- 沈助理又在隐藏他的超能力 https://www.xiaoshuo288.com/book/dm1a9c/
 - 老公是松散生命体 https://www.xiaoshuo288.com/book/dm1a7p/
 - 苗疆蛊女模拟器 https://www.xiaoshuo288.com/book/dm1a7m/
 - [全职高手]小船 https://www.xiaoshuo288.com/book/dm1a3m/
@@ -230,7 +228,6 @@
 - 荒谬神父是个渣 https://www.xiaoshuo288.com/book/dm109l/
 - 亚当斯与韦恩的适配性 https://www.xiaoshuo288.com/book/dm105g/
 - 掉马后成了奥特带恶人 https://www.xiaoshuo288.com/book/dm102k/
-- 误入反派培养直播后 https://www.xiaoshuo288.com/book/dm0vtb/
 - 蜜蜂膝盖银子弹 https://www.xiaoshuo288.com/book/dm0vr5/
 - 人外收集录［快穿］ https://www.xiaoshuo288.com/book/dm0vpo/
 - 和灵异片boss谈恋爱 https://www.xiaoshuo288.com/book/dm0vg1/
@@ -272,7 +269,6 @@
 - 一觉醒来老公变男大了 https://www.xiaoshuo288.com/book/dm0qfl/
 - 佐久早才不是洁癖！ https://www.xiaoshuo288.com/book/dm0qej/
 - 好好做1 https://www.xiaoshuo288.com/book/dm0qb2/
-- 炮灰的我该如何上位？ https://www.xiaoshuo288.com/book/dm0q9i/
 - [西汉]我打工给全家改命 https://www.xiaoshuo288.com/book/dm0q2m/
 - 哥你不能不要我 https://www.xiaoshuo288.com/book/dm0pp3/
 - 系统错绑后我成了顶级白富美 https://www.xiaoshuo288.com/book/dm0pms/
@@ -436,8 +432,8 @@
 - 和室友他爸恋爱后 https://www.xiaoshuo288.com/book/dlvjtf/
 - 满级竹马从异世穿回来了 https://www.xiaoshuo288.com/book/dlvc8n/
 - 京秋婚约 https://www.xiaoshuo288.com/book/dludu4/
-- 阴郁路人不想被喜欢 https://www.xiaoshuo288.com/book/dlucq7/
 - 直男咒术师的限制级游戏 https://www.xiaoshuo288.com/book/dlucec/
+- 魔物堆里的人类幼崽 https://www.xiaoshuo288.com/book/dlucct/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1351/index.md)

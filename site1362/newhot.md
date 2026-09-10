@@ -1,7 +1,7 @@
 
 # 漫话乐文小说-免费小说阅读,无弹窗,最新章节更新快
 
-更新时间：2026-09-08 03:35:32
+更新时间：2026-09-09 03:35:34
 
 漫话乐文小说是广大书友最值得收藏的网络小说阅读网，提供当前最火热的网络小说免费阅读服务，高质量的小说最新章节更新快速，适合所有网络小说爱好者。 https://www.manhua958.com
 
@@ -162,14 +162,12 @@
 - 万人迷总被入侵角色觊觎[快穿] https://www.manhua958.com/book/17saaf8/
 - [全职高手]小船 https://www.manhua958.com/book/17saadr/
 - 忍界有文学 https://www.manhua958.com/book/17saa93/
-- 被鬼怪宠爱的漂亮书生 https://www.manhua958.com/book/17saa0i/
 - 纨绔渣A拒绝入赘长公主府 https://www.manhua958.com/book/17sa97c/
 - 苗疆蛊女模拟器 https://www.manhua958.com/book/17sa8ej/
 - 渣攻试图洗白[快穿] https://www.manhua958.com/book/17sa8dq/
 - 普通人的乙女RPG[西幻] https://www.manhua958.com/book/17sa823/
 - 沉烟 https://www.manhua958.com/book/17sa81e/
 - 老公是松散生命体 https://www.manhua958.com/book/17sa7li/
-- 沈助理又在隐藏他的超能力 https://www.manhua958.com/book/17sa7k6/
 - 绝色美人模拟器[快穿] https://www.manhua958.com/book/17sa7cp/
 - 穿到废土末世三十年后 https://www.manhua958.com/book/17sa7bj/
 - 神经病又不影响我谈恋爱[快穿] https://www.manhua958.com/book/17sa73u/
@@ -230,7 +228,6 @@
 - 都说了我很娇纵了 https://www.manhua958.com/book/17s9uot/
 - 父皇，我是gay https://www.manhua958.com/book/17s9unm/
 - 变成龙傲天的心上猫后 https://www.manhua958.com/book/17s9un5/
-- 误入反派培养直播后 https://www.manhua958.com/book/17s9ugq/
 - 强爱清冷O后她上瘾了[快穿] https://www.manhua958.com/book/17s9u60/
 - 亚当斯与韦恩的适配性 https://www.manhua958.com/book/17s9u40/
 - 摆烂后我成了邪神学院大佬 https://www.manhua958.com/book/17s9tsk/
@@ -274,7 +271,6 @@
 - 佐久早才不是洁癖！ https://www.manhua958.com/book/17s9oom/
 - 修仙回来后开了间民宿 https://www.manhua958.com/book/17s9ond/
 - 拯救美强惨女主进行时[快穿] https://www.manhua958.com/book/17s9oma/
-- 炮灰的我该如何上位？ https://www.manhua958.com/book/17s9okl/
 - 如何在玛丽苏包围圈中生存 https://www.manhua958.com/book/17s9okh/
 - [西汉]我打工给全家改命 https://www.manhua958.com/book/17s9oih/
 - 穿进民国后宅从杂役做起 https://www.manhua958.com/book/17s9o5l/
@@ -436,8 +432,8 @@
 - 和室友他爸恋爱后 https://www.manhua958.com/book/17s8hn1/
 - 满级竹马从异世穿回来了 https://www.manhua958.com/book/17s8bnf/
 - 直男咒术师的限制级游戏 https://www.manhua958.com/book/17s7cjd/
+- 魔物堆里的人类幼崽 https://www.manhua958.com/book/17s7c58/
 - 京秋婚约 https://www.manhua958.com/book/17s7c3i/
-- 阴郁路人不想被喜欢 https://www.manhua958.com/book/17s7aft/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1362/index.md)

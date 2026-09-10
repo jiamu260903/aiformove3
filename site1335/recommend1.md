@@ -1,7 +1,7 @@
 
 # 奇书网 - 奇书网epub,mobi,txt全本电子书免费下载
 
-更新时间：2026-09-08 03:31:53
+更新时间：2026-09-09 03:31:57
 
 奇书网提供最新的奇书网txt格式全本电子书资源免费下载服务，涵盖各种类型的小说，满足您的阅读需求。 https://www.jxbfsz.com
 
@@ -95,7 +95,6 @@
 - [足球]我的游戏存档成真了？！ https://www.jxbfsz.com/book/29hvmgd/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.jxbfsz.com/book/29hvmbi/
 - 让你们无剧本可走（快穿） https://www.jxbfsz.com/book/29hvm83/
-- 寡妇美人模拟器 https://www.jxbfsz.com/book/29hvleu/
 - 仙门透明人被迫万人迷 https://www.jxbfsz.com/book/29hvlap/
 - 直男咒术师的限制级游戏 https://www.jxbfsz.com/book/29hvl7t/
 - 摄政王家的咸鱼夫郎 https://www.jxbfsz.com/book/29hvic0/

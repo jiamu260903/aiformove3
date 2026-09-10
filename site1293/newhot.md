@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-09-08 03:26:40
+更新时间：2026-09-09 03:26:51
 
 速阅阁小说网为您提供最新、最全的网络小说资源，在线阅读无限制，支持多种格式下载，打造书友们最爱的小说阅读体验。 https://www.ccccenergy.com
 
@@ -35,7 +35,7 @@
 - 京秋婚约 https://www.ccccenergy.com/book/7car5vo/
 - 满级竹马从异世穿回来了 https://www.ccccenergy.com/book/7car5vb/
 - 直男咒术师的限制级游戏 https://www.ccccenergy.com/book/7car5tj/
-- 阴郁路人不想被喜欢 https://www.ccccenergy.com/book/7car5tb/
+- 魔物堆里的人类幼崽 https://www.ccccenergy.com/book/7car5te/
 - 求生游戏：当邪神成为生活玩家后 https://www.ccccenergy.com/book/7car5t8/
 - 昭暮 https://www.ccccenergy.com/book/7caqr3e/
 - 修仙界都为我神魂颠倒 https://www.ccccenergy.com/book/7caqgm0/
@@ -205,7 +205,6 @@
 - [足球]那个德国队新皇 https://www.ccccenergy.com/book/nkb7k6/
 - 帝国唯一雄虫长官[虫族] https://www.ccccenergy.com/book/nkb732/
 - 伟大航路万人迷游戏中 https://www.ccccenergy.com/book/nkb71j/
-- 沈助理又在隐藏他的超能力 https://www.ccccenergy.com/book/nkb70f/
 - 骄纵漂亮万人嫌被觊觎后［快穿］ https://www.ccccenergy.com/book/nkb6v4/
 - 全星际捧我当神明 https://www.ccccenergy.com/book/nkb6u2/
 - 开局一间小卖部[经营] https://www.ccccenergy.com/book/nkb6tn/
@@ -410,7 +409,6 @@
 - 青空来信 https://www.ccccenergy.com/book/nka97q/
 - 这谁的沙雕二次元心声！ https://www.ccccenergy.com/book/nka963/
 - 我最讨厌打球了！ https://www.ccccenergy.com/book/nka4oj/
-- 误入反派培养直播后 https://www.ccccenergy.com/book/nka2g6/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.ccccenergy.com/book/nk9tio/
 - [足球]罗蜜第一志愿 https://www.ccccenergy.com/book/nk9sjl/
 - 哥你不能不要我 https://www.ccccenergy.com/book/nk9ase/

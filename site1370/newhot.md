@@ -1,7 +1,7 @@
 
 # 燃文故事小说网 - 无弹窗全本小说免费阅读
 
-更新时间：2026-09-08 03:30:30
+更新时间：2026-09-09 03:30:35
 
 燃文故事小说网提供无弹窗干扰的小说阅读体验，支持全本小说在线免费阅读。 https://www.gushi687.com
 
@@ -162,11 +162,9 @@
 - 普通人的乙女RPG[西幻] https://www.gushi687.com/book/63qspd8/
 - 忍界有文学 https://www.gushi687.com/book/63qspco/
 - 万人迷总被入侵角色觊觎[快穿] https://www.gushi687.com/book/63qsp6o/
-- 被鬼怪宠爱的漂亮书生 https://www.gushi687.com/book/63qsota/
 - [全职高手]小船 https://www.gushi687.com/book/63qsoin/
 - 沉烟 https://www.gushi687.com/book/63qsodf/
 - 苗疆蛊女模拟器 https://www.gushi687.com/book/63qso5q/
-- 沈助理又在隐藏他的超能力 https://www.gushi687.com/book/63qsnnl/
 - 渣攻试图洗白[快穿] https://www.gushi687.com/book/63qsnmt/
 - 纨绔渣A拒绝入赘长公主府 https://www.gushi687.com/book/63qsnmn/
 - 老公是松散生命体 https://www.gushi687.com/book/63qsnk7/
@@ -239,7 +237,6 @@
 - 一见倾心[快穿] https://www.gushi687.com/book/63qscjl/
 - [足球]职业模拟器但足坛 https://www.gushi687.com/book/63qscgc/
 - 荒谬神父是个渣 https://www.gushi687.com/book/63qscek/
-- 误入反派培养直播后 https://www.gushi687.com/book/63qsce8/
 - 摆烂后我成了邪神学院大佬 https://www.gushi687.com/book/63qsc1n/
 - 强爱清冷O后她上瘾了[快穿] https://www.gushi687.com/book/63qsbv2/
 - 反派的病弱白月光重生了 https://www.gushi687.com/book/63qsbon/
@@ -299,7 +296,6 @@
 - 好好做1 https://www.gushi687.com/book/63qs62q/
 - 月光白 https://www.gushi687.com/book/63qs5vv/
 - 被四皇错看成小动物后 https://www.gushi687.com/book/63qs5u0/
-- 炮灰的我该如何上位？ https://www.gushi687.com/book/63qs5r0/
 - 漫画路人绑定系统后 https://www.gushi687.com/book/63qs5nu/
 - [综武侠]万人迷小姐想要富贵荣华 https://www.gushi687.com/book/63qs5kv/
 - 哥你不能不要我 https://www.gushi687.com/book/63qs5k6/
@@ -436,8 +432,8 @@
 - 和室友他爸恋爱后 https://www.gushi687.com/book/63qqvkj/
 - 满级竹马从异世穿回来了 https://www.gushi687.com/book/63qqruf/
 - 京秋婚约 https://www.gushi687.com/book/63qpru7/
+- 魔物堆里的人类幼崽 https://www.gushi687.com/book/63qpqku/
 - 直男咒术师的限制级游戏 https://www.gushi687.com/book/63qpqgi/
-- 阴郁路人不想被喜欢 https://www.gushi687.com/book/63qppp7/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1370/index.md)

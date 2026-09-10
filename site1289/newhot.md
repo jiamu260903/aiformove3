@@ -1,7 +1,7 @@
 
 # 三三言情小说 - 全本网文免费阅读, 最新最热言情故事
 
-更新时间：2026-09-08 03:49:22
+更新时间：2026-09-09 03:49:43
 
 三三言情小说为您提供海量全本完结的言情小说资源，在这里您可以免费在线阅读最新、最受欢迎的爱情故事。无论您是喜欢经典还是追求潮流的新作，我们都有丰富的选择等待着您来探索。 https://www.zhaoxingangjiegou.com
 
@@ -35,7 +35,7 @@
 - 京秋婚约 https://www.zhaoxingangjiegou.com/book/1duosq0/
 - 求求你们别吃了 https://www.zhaoxingangjiegou.com/book/1duospp/
 - 直男咒术师的限制级游戏 https://www.zhaoxingangjiegou.com/book/1duoso6/
-- 阴郁路人不想被喜欢 https://www.zhaoxingangjiegou.com/book/1duosnv/
+- 魔物堆里的人类幼崽 https://www.zhaoxingangjiegou.com/book/1duosnu/
 - 满级竹马从异世穿回来了 https://www.zhaoxingangjiegou.com/book/1duoslb/
 - 求生游戏：当邪神成为生活玩家后 https://www.zhaoxingangjiegou.com/book/1duosla/
 - 穿书八年后，女配再就业 https://www.zhaoxingangjiegou.com/book/1duohqo/
@@ -183,7 +183,6 @@
 - 开局一间小卖部[经营] https://www.zhaoxingangjiegou.com/book/4j4mjk/
 - 神经病又不影响我谈恋爱[快穿] https://www.zhaoxingangjiegou.com/book/4j4mgl/
 - 围观吃瓜却发现老公和别人在一起 https://www.zhaoxingangjiegou.com/book/4j4m4l/
-- 沈助理又在隐藏他的超能力 https://www.zhaoxingangjiegou.com/book/4j4m3p/
 - 全星际捧我当神明 https://www.zhaoxingangjiegou.com/book/4j4lv9/
 - 天崩开局还能通关吗？ https://www.zhaoxingangjiegou.com/book/4j4lt2/
 - 夏油弟弟在立海大 https://www.zhaoxingangjiegou.com/book/4j4lq2/
@@ -409,7 +408,6 @@
 - 青空来信 https://www.zhaoxingangjiegou.com/book/4j3nh3/
 - 这谁的沙雕二次元心声！ https://www.zhaoxingangjiegou.com/book/4j3nbb/
 - 我最讨厌打球了！ https://www.zhaoxingangjiegou.com/book/4j3gjk/
-- 误入反派培养直播后 https://www.zhaoxingangjiegou.com/book/4j3cj1/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.zhaoxingangjiegou.com/book/4j3a9b/
 - [足球]罗蜜第一志愿 https://www.zhaoxingangjiegou.com/book/4j3a1m/
 - 哥你不能不要我 https://www.zhaoxingangjiegou.com/book/4j2m6k/

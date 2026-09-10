@@ -1,11 +1,12 @@
 
 # 顶点小说 - 无广告无弹窗在线小说阅读网站
 
-更新时间：2026-09-08 03:42:52
+更新时间：2026-09-09 03:42:51
 
 顶点小说致力于提供一个无广告、无弹窗干扰的高质量在线小说阅读体验。支持多种类型的小说在线阅读与TXT格式下载，界面设计简洁友好。 https://www.wangrn.com
 
 ## 最新小说
+- 网球带给齐木的灾难 https://www.wangrn.com/book/4bbodd6/
 - 当甚尔转生成继国 https://www.wangrn.com/book/4bbobgl/
 - 节能型社恐靠交友存活打排球 https://www.wangrn.com/book/4bboaqp/
 - 渣攻他疯了［快穿］ https://www.wangrn.com/book/4bboa87/
@@ -28,7 +29,6 @@
 - 我有嘉宾 https://www.wangrn.com/book/4bbnul8/
 - 孤独症崽崽穿越到狗血爽文里[穿书] https://www.wangrn.com/book/4bbnuj3/
 - 我，始皇闺女，未来皇帝，打钱 https://www.wangrn.com/book/4bbnuat/
-- 阴郁路人不想被喜欢 https://www.wangrn.com/book/4bbntkf/
 - 开局给李世民盘点安史之乱 https://www.wangrn.com/book/4bbnti6/
 - 怪谈小镇游玩指南[无限] https://www.wangrn.com/book/4bbnsh2/
 - 离开那个混蛋后 https://www.wangrn.com/book/4bbnrpt/
@@ -53,7 +53,6 @@
 - 我在无限游戏里假扮NPC[无限流] https://www.wangrn.com/book/4bbmpe2/
 - 乱步他哥，但武力值max https://www.wangrn.com/book/4bbmp4q/
 - 渣过我的主角全都重生了[快穿] https://www.wangrn.com/book/4bbmoc2/
-- 被鬼怪宠爱的漂亮书生 https://www.wangrn.com/book/4bbmobu/
 - 每天回到家都看到雄虫在装死 https://www.wangrn.com/book/4bbmo03/
 - 求求你们别吃了 https://www.wangrn.com/book/4bbmnur/
 - 优质攻不做恋爱脑[快穿] https://www.wangrn.com/book/4bbmndc/
@@ -155,7 +154,6 @@
 - 巨龙宝藏是个小社恐 https://www.wangrn.com/book/4bbm19r/
 - 被迫跟死对头结婚后 https://www.wangrn.com/book/4bbm0l8/
 - 带着刀剑穿越伟大航路后，你当上了五皇 https://www.wangrn.com/book/4bbm0ko/
-- 沈助理又在隐藏他的超能力 https://www.wangrn.com/book/4bbm0ao/
 - 战死的阿爹回来了[年代] https://www.wangrn.com/book/4bblvva/
 - 大美人怀了enigma上司的崽 https://www.wangrn.com/book/4bblvub/
 - 普通人的乙女RPG[西幻] https://www.wangrn.com/book/4bblvu7/
@@ -266,7 +264,6 @@
 - 我被厉鬼盯上了 https://www.wangrn.com/book/4bblfiu/
 - 想听越前君向我告白 https://www.wangrn.com/book/4bblfhr/
 - 绝世美人靠脸躺赢[快穿] https://www.wangrn.com/book/4bblfbk/
-- 炮灰的我该如何上位？ https://www.wangrn.com/book/4bblf61/
 - 假如樱是砂忍 https://www.wangrn.com/book/4bblf4a/
 - 重回被拐那一天[千禧年代] https://www.wangrn.com/book/4bblf3h/
 - 揍敌客大小姐好难攻略 https://www.wangrn.com/book/4bbleu9/
@@ -423,6 +420,7 @@
 - 失忆后，和五条激情互演 https://www.wangrn.com/book/4bbl3fn/
 - 请问夫君你哪位 https://www.wangrn.com/book/4bbl3bd/
 - 在重男兄弟间夹缝求生 https://www.wangrn.com/book/4bbl32l/
+- 魔物堆里的人类幼崽 https://www.wangrn.com/book/4bbl28u/
 - 好巧，你也是妹控？[综崩铁] https://www.wangrn.com/book/4bbl1qu/
 - 欢迎来到重生点 https://www.wangrn.com/book/4bbl1c8/
 - 我，剑圣，养生中，勿扰 https://www.wangrn.com/book/4bbl1aa/
@@ -431,11 +429,11 @@
 - [综英美]和亲友群穿哥谭以后 https://www.wangrn.com/book/4bbkrlc/
 - [崩铁]请给玩家一个准确的血条！ https://www.wangrn.com/book/4bbkr7q/
 - 自大狂 https://www.wangrn.com/book/4bbki2t/
+- 为她守节第十年 https://www.wangrn.com/book/4bbkflp/
 - 书呆子扮演渣攻翻车【快穿】 https://www.wangrn.com/book/4bbkcjf/
 - 满级竹马从异世穿回来了 https://www.wangrn.com/book/4bbkacd/
 - 丧尸老婆喂养日记 https://www.wangrn.com/book/4bbk0kg/
 - 被四皇错看成小动物后 https://www.wangrn.com/book/4bbj2h6/
-- 误入反派培养直播后 https://www.wangrn.com/book/4bbj0l3/
 - [封神]圣人生欲 https://www.wangrn.com/book/4bbj0ge/
 - 你，后室管理员 https://www.wangrn.com/book/4bbj0b9/
 - 高调装神，猥琐发育 https://www.wangrn.com/book/4bbivq7/

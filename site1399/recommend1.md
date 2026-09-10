@@ -1,12 +1,12 @@
 
 # 佚名奇书小说 - 免费更新的小说阅读网站
 
-更新时间：2026-09-08 03:47:43
+更新时间：2026-09-09 03:47:54
 
 佚名奇书小说提供全网各类热门小说在线阅读服务，支持免费观看。这里汇集了丰富的小说资源，包括但不限于都市、玄幻、武侠等多种类型，并且保证章节更新及时，页面设计清爽无广告干扰，是广大书友不可多得的好去处。 https://www.yimingeduai.com
 
 ## 最新小说
-- 仙门透明人被迫万人迷 https://www.yimingeduai.com/book/6adngio/
+- 入梦修罗场，但我脸盲 https://www.yimingeduai.com/book/6adnppl/
 - 从1951开始 https://www.yimingeduai.com/book/6adng45/
 - 康熙宠妃日常 https://www.yimingeduai.com/book/6adng43/
 - 全民求生，但剑三 https://www.yimingeduai.com/book/6adng3v/
@@ -91,7 +91,6 @@
 - 全世界名为爱的恶意 https://www.yimingeduai.com/book/6adlnq9/
 - 我187了，你敢见我吗？ https://www.yimingeduai.com/book/6adll1f/
 - 和治君只是饭搭子的关系 https://www.yimingeduai.com/book/6adliqg/
-- 摄政王家的咸鱼夫郎 https://www.yimingeduai.com/book/6adlhml/
 - 让你们无剧本可走（快穿） https://www.yimingeduai.com/book/6adlgur/
 - 韩团绿卡不想忍了 https://www.yimingeduai.com/book/6adlgoi/
 - 如何正确哄睡暴君 https://www.yimingeduai.com/book/6adlbf5/
@@ -112,6 +111,7 @@
 - 开局绑定郭奉孝，谋定三国风云 https://www.yimingeduai.com/book/6adkj0a/
 - 死亡悖论[无限流] https://www.yimingeduai.com/book/6adkh1f/
 - 专业女配的自我修养（快穿） https://www.yimingeduai.com/book/6adkgl8/
+- 我只梦你一页 https://www.yimingeduai.com/book/6adkdh2/
 - 路人攻了主角攻［快穿］ https://www.yimingeduai.com/book/6adkda6/
 - 从童星开始杀穿港娱 https://www.yimingeduai.com/book/6adkbtd/
 - 清冷丞相怀了死对头的崽 https://www.yimingeduai.com/book/6adkbpv/
@@ -126,6 +126,7 @@
 - 五条老师与他的封建妻子 https://www.yimingeduai.com/book/6adjq4i/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.yimingeduai.com/book/6adjodi/
 - 和姐姐的前女友欢愉后 https://www.yimingeduai.com/book/6adjngt/
+- 月亮上的大筒木 https://www.yimingeduai.com/book/6adjnd7/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.yimingeduai.com/book/6adjmes/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.yimingeduai.com/book/6adjm9q/
 - 死遁的亡夫们都回来了 https://www.yimingeduai.com/book/6adjm1l/
@@ -151,7 +152,6 @@
 - 清澈女大的六零年代 https://www.yimingeduai.com/book/6adi7ap/
 - 趁她之危 https://www.yimingeduai.com/book/6adi7ae/
 - 高调装神，猥琐发育 https://www.yimingeduai.com/book/6adi75l/
-- 星际团宠小人鱼 https://www.yimingeduai.com/book/6adi74q/
 - [娱乐圈]过分美丽的她 https://www.yimingeduai.com/book/6adi742/
 - 我是唯一地上神国 https://www.yimingeduai.com/book/6adi70r/
 - 五十年代港城日常 https://www.yimingeduai.com/book/6adi6nm/
@@ -160,7 +160,6 @@
 - 95美国贵族高中模拟 https://www.yimingeduai.com/book/6adi6e5/
 - 大瑛弟国 https://www.yimingeduai.com/book/6adi6bh/
 - [封神]圣人生欲 https://www.yimingeduai.com/book/6adi68f/
-- 寡妇美人模拟器 https://www.yimingeduai.com/book/6adi62a/
 - 完蛋！被恨孕男包围了！ https://www.yimingeduai.com/book/6adi5nm/
 ## 相关内容
 - [README](/README.md)

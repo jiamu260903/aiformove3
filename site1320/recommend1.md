@@ -1,11 +1,12 @@
 
 # 故事文学网 - 精彩小说尽在其中
 
-更新时间：2026-09-08 03:30:12
+更新时间：2026-09-09 03:30:17
 
 故事文学网是一个专注于小说创作与阅读的网站，汇聚了众多优秀作品，为读者提供精彩的文学体验。欢迎您来到故事文学网，发现阅读的乐趣！ https://www.gushi1314.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.gushi1314.com/book/8m9juck/
 - 病美人重生日记 https://www.gushi1314.com/book/8m9jucg/
 - 恐游作精女配求生指南 https://www.gushi1314.com/book/8m9jucf/
 - 魔尊闭关十年连生十一子？！ https://www.gushi1314.com/book/8m9juce/
@@ -82,8 +83,8 @@
 - 始乱终弃清冷首辅后 https://www.gushi1314.com/book/8m9ju35/
 - 原配夫人 https://www.gushi1314.com/book/8m9ju2n/
 - 十九世纪贵族厨房（美食） https://www.gushi1314.com/book/8m9ju2m/
-- 星际团宠小人鱼 https://www.gushi1314.com/book/8m9ju2l/
 - 高调装神，猥琐发育 https://www.gushi1314.com/book/8m9ju2f/
+- 我只梦你一页 https://www.gushi1314.com/book/8m9ju2c/
 - 直男咒术师的限制级游戏 https://www.gushi1314.com/book/8m9ju1p/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.gushi1314.com/book/8m9jtu1/
 - 六零之成了卷王的妹妹 https://www.gushi1314.com/book/8m9jsm0/
@@ -100,7 +101,6 @@
 - 如何嫁给当朝首辅 https://www.gushi1314.com/book/8m9h47n/
 - 食明 https://www.gushi1314.com/book/8m9h3dj/
 - 诡话第一boss https://www.gushi1314.com/book/8m9h05o/
-- 仙门透明人被迫万人迷 https://www.gushi1314.com/book/8m9gsn3/
 - 让暴君Alpha怀崽后 https://www.gushi1314.com/book/8m9gpuo/
 - 日化人生[科研] https://www.gushi1314.com/book/8m9gnpg/
 - 老实人妻，但顶级魅魔 https://www.gushi1314.com/book/8m9gnp8/
@@ -109,9 +109,7 @@
 - 巨物致富：回乡开钓场 https://www.gushi1314.com/book/8m9gjre/
 - 让你们无剧本可走（快穿） https://www.gushi1314.com/book/8m9gjgu/
 - 趁她之危 https://www.gushi1314.com/book/8m9gj1l/
-- 寡妇美人模拟器 https://www.gushi1314.com/book/8m9gios/
 - 起初，我只是想找个冤大头 https://www.gushi1314.com/book/8m9gcrh/
-- 摄政王家的咸鱼夫郎 https://www.gushi1314.com/book/8m9gcr9/
 - 天幕今天也在直播我搞基建 https://www.gushi1314.com/book/rqk68q/
 - 死遁的亡夫们都回来了 https://www.gushi1314.com/book/rqk59m/
 - 沈助理又在隐藏他的超能力 https://www.gushi1314.com/book/rqk36j/
@@ -161,6 +159,7 @@
 - 五十年代港城日常 https://www.gushi1314.com/book/2p1or3/
 - 完蛋！被恨孕男包围了！ https://www.gushi1314.com/book/2p1occ/
 - 我是唯一地上神国 https://www.gushi1314.com/book/8svmv/
+- 月亮上的大筒木 https://www.gushi1314.com/book/8svcf/
 - 清澈女大的六零年代 https://www.gushi1314.com/book/sfvp/
 ## 相关内容
 - [README](/README.md)

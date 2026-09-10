@@ -1,7 +1,7 @@
 
 # 书包网 - 免费小说阅读网_网络小说排行榜_最新小说推荐
 
-更新时间：2026-09-08 03:27:17
+更新时间：2026-09-09 03:27:27
 
 书包网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。 https://www.cialisgs.com
 
@@ -35,7 +35,7 @@
 - 满级竹马从异世穿回来了 https://www.cialisgs.com/book/89ru3d8/
 - 京秋婚约 https://www.cialisgs.com/book/89ru3ca/
 - 直男咒术师的限制级游戏 https://www.cialisgs.com/book/89ru3bn/
-- 阴郁路人不想被喜欢 https://www.cialisgs.com/book/89ru3ba/
+- 魔物堆里的人类幼崽 https://www.cialisgs.com/book/89ru3bb/
 - 求生游戏：当邪神成为生活玩家后 https://www.cialisgs.com/book/89ru3b9/
 - 昭暮 https://www.cialisgs.com/book/89rtoen/
 - 修仙界都为我神魂颠倒 https://www.cialisgs.com/book/89rtdk5/
@@ -202,7 +202,6 @@
 - 全星际捧我当神明 https://www.cialisgs.com/book/qirhpo/
 - 反派师尊又在迫害主角了 https://www.cialisgs.com/book/qirhic/
 - [足球]那个德国队新皇 https://www.cialisgs.com/book/qirhgq/
-- 沈助理又在隐藏他的超能力 https://www.cialisgs.com/book/qirhaa/
 - 开局一间小卖部[经营] https://www.cialisgs.com/book/qirgvb/
 - 暗堕本丸，在线直播 https://www.cialisgs.com/book/qirghq/
 - 这个剑修明明超强却过分贫穷 https://www.cialisgs.com/book/qirgee/
@@ -409,7 +408,6 @@
 - 青空来信 https://www.cialisgs.com/book/qiqkoa/
 - 这谁的沙雕二次元心声！ https://www.cialisgs.com/book/qiqk7h/
 - 我最讨厌打球了！ https://www.cialisgs.com/book/qiqd26/
-- 误入反派培养直播后 https://www.cialisgs.com/book/qiq9o8/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.cialisgs.com/book/qiq8en/
 - [足球]罗蜜第一志愿 https://www.cialisgs.com/book/qiq7jp/
 - 哥你不能不要我 https://www.cialisgs.com/book/qipjq5/

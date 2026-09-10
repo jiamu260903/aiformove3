@@ -1,11 +1,12 @@
 
 # 春日书屋-免费热门小说在线阅读平台|晋江文学|全本免费畅读
 
-更新时间：2026-09-08 03:39:30
+更新时间：2026-09-09 03:39:30
 
 春日书屋是一个专注于提供免费全本小说的在线阅读平台。精选海量热门网络小说，涵盖玄幻、言情、都市、仙侠等各类题材，所有书籍均可免费畅读。致力于为广大书友打造一个无弹窗、更新快的纯净阅读空间，让您轻松追更，尽享阅读乐趣！ https://www.shenyuanhg.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.shenyuanhg.com/book/7gie9jb/
 - 魔改剧本后我爆火了[娱乐圈] https://www.shenyuanhg.com/book/7gie9j8/
 - 前妻她肯定会后悔 https://www.shenyuanhg.com/book/7gie9j5/
 - 好心的俄罗斯人 https://www.shenyuanhg.com/book/7gie9j4/
@@ -75,10 +76,10 @@
 - ［综英美］蝙蝠崽？我不是啊！ https://www.shenyuanhg.com/book/7gie9e5/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.shenyuanhg.com/book/7gie38u/
 - 上个鬼班[无限] https://www.shenyuanhg.com/book/7gidpa7/
-- 星际团宠小人鱼 https://www.shenyuanhg.com/book/7gido92/
 - 始乱终弃清冷首辅后 https://www.shenyuanhg.com/book/7gido8d/
 - 原配夫人 https://www.shenyuanhg.com/book/7gido6v/
 - 让暴君Alpha怀崽后 https://www.shenyuanhg.com/book/7gidmqc/
+- 我只梦你一页 https://www.shenyuanhg.com/book/7gidl6m/
 - 九零重组小家庭 https://www.shenyuanhg.com/book/7gidjpq/
 - [足球]足坛人生模拟器 https://www.shenyuanhg.com/book/7gidh1c/
 - 趁她之危 https://www.shenyuanhg.com/book/7gidb53/
@@ -92,13 +93,10 @@
 - 十九世纪贵族厨房（美食） https://www.shenyuanhg.com/book/7gicen4/
 - 起初，我只是想找个冤大头 https://www.shenyuanhg.com/book/7gicctd/
 - 高调装神，猥琐发育 https://www.shenyuanhg.com/book/7giccbi/
-- 寡妇美人模拟器 https://www.shenyuanhg.com/book/7gic7ld/
 - 让你们无剧本可走（快穿） https://www.shenyuanhg.com/book/7gic70d/
 - [足球]我的游戏存档成真了？！ https://www.shenyuanhg.com/book/7gic6uh/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.shenyuanhg.com/book/7gic6cb/
-- 仙门透明人被迫万人迷 https://www.shenyuanhg.com/book/7gic5oe/
 - 直男咒术师的限制级游戏 https://www.shenyuanhg.com/book/7gic5ii/
-- 摄政王家的咸鱼夫郎 https://www.shenyuanhg.com/book/7gic2k7/
 - 我与龙傲天寿命共享 https://www.shenyuanhg.com/book/7gibvks/
 - 如何正确哄睡暴君 https://www.shenyuanhg.com/book/7gibt0n/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.shenyuanhg.com/book/7gibkrv/
@@ -107,6 +105,7 @@
 - 被天使之王骗婚后[诡秘之主] https://www.shenyuanhg.com/book/7gibgfs/
 - 在民俗惊悚片被诸神庇护 https://www.shenyuanhg.com/book/7gibccb/
 - 从童星开始杀穿港娱 https://www.shenyuanhg.com/book/7gibai0/
+- 月亮上的大筒木 https://www.shenyuanhg.com/book/7gib94v/
 - 我有一座地下城 https://www.shenyuanhg.com/book/7gib8vj/
 - 漂亮女配是万人迷［快穿］ https://www.shenyuanhg.com/book/7gib8lq/
 - 开局绑定郭奉孝，谋定三国风云 https://www.shenyuanhg.com/book/7gib5id/

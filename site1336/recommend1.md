@@ -1,7 +1,7 @@
 
 # 笔看阁-最热门的免费小说网 | 玄幻、网游、言情、穿越、都市全本小说在线阅读
 
-更新时间：2026-09-08 03:28:06
+更新时间：2026-09-09 03:28:14
 
 笔看阁是最热门的免费小说网站之一，专注于提供包括玄幻、网游、言情、穿越、都市等多种类型的小说在线阅读服务。本站承诺不设任何弹窗广告，页面简洁易用，为读者创造一个纯净舒适的阅读环境。 https://www.dasenluan.com
 
@@ -94,7 +94,6 @@
 - 起初，我只是想找个冤大头 https://www.dasenluan.com/book/3jmfoa3/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.dasenluan.com/book/3jmfk8j/
 - 仙门透明人被迫万人迷 https://www.dasenluan.com/book/3jmfidm/
-- 寡妇美人模拟器 https://www.dasenluan.com/book/3jmfi4t/
 - 让你们无剧本可走（快穿） https://www.dasenluan.com/book/3jmfhdv/
 - [足球]我的游戏存档成真了？！ https://www.dasenluan.com/book/3jmfh4l/
 - 直男咒术师的限制级游戏 https://www.dasenluan.com/book/3jmfg4k/

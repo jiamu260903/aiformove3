@@ -1,11 +1,12 @@
 
 # 探秘笔神阁小说-好看小说快速更新,页面清新流畅的免费小说网
 
-更新时间：2026-09-08 03:42:04
+更新时间：2026-09-09 03:42:03
 
 探秘笔神阁小说收录了大量受欢迎的小说作品，以极快的速度进行更新，并且保证用户在阅读时能够享受到清新流畅的页面体验。作为一个完全免费的小说网站，它深受广大网友的喜爱。 https://www.tanmi818.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.tanmi818.com/book/977fhbn/
 - ［综英美］蝙蝠崽？我不是啊！ https://www.tanmi818.com/book/977fhbg/
 - 恐游里的邻居们[万人迷] https://www.tanmi818.com/book/977fhba/
 - 占有欲Daddy是我老公？ https://www.tanmi818.com/book/977fhb7/
@@ -82,7 +83,7 @@
 - 十九世纪贵族厨房（美食） https://www.tanmi818.com/book/977e6d7/
 - 原配夫人 https://www.tanmi818.com/book/977e6bh/
 - 始乱终弃清冷首辅后 https://www.tanmi818.com/book/977e67f/
-- 星际团宠小人鱼 https://www.tanmi818.com/book/977e669/
+- 我只梦你一页 https://www.tanmi818.com/book/977dvcg/
 - 完蛋！被恨孕男包围了！ https://www.tanmi818.com/book/977dvb2/
 - 高调装神，猥琐发育 https://www.tanmi818.com/book/977dv7j/
 - 食明 https://www.tanmi818.com/book/977ds7p/
@@ -90,7 +91,6 @@
 - 专业女配的自我修养（快穿） https://www.tanmi818.com/book/977dnvi/
 - 老实人妻，但顶级魅魔 https://www.tanmi818.com/book/977dnmk/
 - [足球]我的游戏存档成真了？！ https://www.tanmi818.com/book/977dhjo/
-- 摄政王家的咸鱼夫郎 https://www.tanmi818.com/book/977de6o/
 - 让你们无剧本可走（快穿） https://www.tanmi818.com/book/977ddss/
 - 我与龙傲天寿命共享 https://www.tanmi818.com/book/977dcs7/
 - 如何正确哄睡暴君 https://www.tanmi818.com/book/977d9vg/
@@ -106,6 +106,7 @@
 - 咦？我爸爸复活啦 https://www.tanmi818.com/book/977cn4u/
 - 开局绑定郭奉孝，谋定三国风云 https://www.tanmi818.com/book/977cl0j/
 - 路人攻了主角攻［快穿］ https://www.tanmi818.com/book/977ck0t/
+- 月亮上的大筒木 https://www.tanmi818.com/book/977cjlu/
 - 韩团绿卡不想忍了 https://www.tanmi818.com/book/977cj7b/
 - 漂亮女配是万人迷［快穿］ https://www.tanmi818.com/book/977ci5i/
 - 苏娘子汴京摆摊日常（美食） https://www.tanmi818.com/book/977cgi4/
@@ -152,9 +153,7 @@
 - 我有一座安全城 https://www.tanmi818.com/book/9779ugk/
 - 清澈女大的六零年代 https://www.tanmi818.com/book/9779uff/
 - 全民求生:从小木屋到魔法农场 https://www.tanmi818.com/book/9779u9l/
-- 寡妇美人模拟器 https://www.tanmi818.com/book/9779u81/
 - 直男咒术师的限制级游戏 https://www.tanmi818.com/book/9779u7v/
-- 仙门透明人被迫万人迷 https://www.tanmi818.com/book/9779u3p/
 - 巨物致富：回乡开钓场 https://www.tanmi818.com/book/9779u0g/
 - 95美国贵族高中模拟 https://www.tanmi818.com/book/9779tnu/
 - 老公对不起 https://www.tanmi818.com/book/9779tdq/

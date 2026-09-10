@@ -1,11 +1,12 @@
 
 # 作品思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-09-08 03:50:33
+更新时间：2026-09-09 03:50:52
 
 作品思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等全本小说免费阅读,最新完本小说阅读就在思路客。 https://www.zuopin666.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.zuopin666.com/book/8befhkm/
 - 怨明月不独照 https://www.zuopin666.com/book/8befhki/
 - 病美人重生日记 https://www.zuopin666.com/book/8befhkh/
 - 夫人每天都在伪装 https://www.zuopin666.com/book/8befhkg/
@@ -78,12 +79,12 @@
 - 正是冬雪沸腾时 https://www.zuopin666.com/book/8befhib/
 - 大佬的漂亮老婆回来带崽了[八零] https://www.zuopin666.com/book/8befhia/
 - 恐游里的邻居们[万人迷] https://www.zuopin666.com/book/8befhi9/
-- 星际团宠小人鱼 https://www.zuopin666.com/book/8befhcl/
 - [封神]圣人生欲 https://www.zuopin666.com/book/8befhcb/
 - 原配夫人 https://www.zuopin666.com/book/8befhc2/
 - 十九世纪贵族厨房（美食） https://www.zuopin666.com/book/8befhbj/
 - 始乱终弃清冷首辅后 https://www.zuopin666.com/book/8befhan/
 - 高调装神，猥琐发育 https://www.zuopin666.com/book/8befhaf/
+- 我只梦你一页 https://www.zuopin666.com/book/8befhae/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.zuopin666.com/book/8befh7s/
 - 直男咒术师的限制级游戏 https://www.zuopin666.com/book/8befh71/
 - 六零之成了卷王的妹妹 https://www.zuopin666.com/book/8befftp/
@@ -101,17 +102,14 @@
 - 食明 https://www.zuopin666.com/book/8becoir/
 - 诡话第一boss https://www.zuopin666.com/book/8becl5i/
 - 让暴君Alpha怀崽后 https://www.zuopin666.com/book/8bech60/
-- 仙门透明人被迫万人迷 https://www.zuopin666.com/book/8becfju/
 - 专业女配的自我修养（快穿） https://www.zuopin666.com/book/8becdd5/
 - 日化人生[科研] https://www.zuopin666.com/book/8beccup/
 - 老实人妻，但顶级魅魔 https://www.zuopin666.com/book/8becco8/
 - 巨物致富：回乡开钓场 https://www.zuopin666.com/book/8becbb4/
 - 让你们无剧本可走（快穿） https://www.zuopin666.com/book/8bec8md/
 - [足球]我的游戏存档成真了？！ https://www.zuopin666.com/book/8bec63u/
-- 寡妇美人模拟器 https://www.zuopin666.com/book/8bec37j/
 - 趁她之危 https://www.zuopin666.com/book/8bec2u5/
 - 起初，我只是想找个冤大头 https://www.zuopin666.com/book/8bec2k3/
-- 摄政王家的咸鱼夫郎 https://www.zuopin666.com/book/8bebuk8/
 - 死遁的亡夫们都回来了 https://www.zuopin666.com/book/qntcpn/
 - 沈助理又在隐藏他的超能力 https://www.zuopin666.com/book/qntaf1/
 - 天幕今天也在直播我搞基建 https://www.zuopin666.com/book/qnt9k9/
@@ -162,6 +160,7 @@
 - 苏娘子汴京摆摊日常（美食） https://www.zuopin666.com/book/8hrvn/
 - 五十年代港城日常 https://www.zuopin666.com/book/8hrr3/
 - 95美国贵族高中模拟 https://www.zuopin666.com/book/rcda/
+- 月亮上的大筒木 https://www.zuopin666.com/book/rccl/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1317/index.md)

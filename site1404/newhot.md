@@ -1,11 +1,12 @@
 
 # 小顽童寻书网-最热门的免费小说阅读平台|全本玄幻言情网游穿越都市小说在线阅读
 
-更新时间：2026-09-08 03:47:10
+更新时间：2026-09-09 03:47:22
 
 小顽童寻书网提供一个无广告、无弹窗干扰的环境，让您享受纯净的小说阅读体验。涵盖玄幻、网游、言情、穿越、都市等多种类型的小说资源，在这里可以找到最新的章节更新以及完整的书籍内容。 https://www.xwt999.com
 
 ## 最新小说
+- 网球带给齐木的灾难 https://www.xwt999.com/book/1u5nsg4/
 - 当甚尔转生成继国 https://www.xwt999.com/book/1u5nqhs/
 - 节能型社恐靠交友存活打排球 https://www.xwt999.com/book/1u5npto/
 - 渣攻他疯了［快穿］ https://www.xwt999.com/book/1u5npa7/
@@ -28,7 +29,6 @@
 - 孤独症崽崽穿越到狗血爽文里[穿书] https://www.xwt999.com/book/1u5ndnr/
 - 我有嘉宾 https://www.xwt999.com/book/1u5ndno/
 - 我，始皇闺女，未来皇帝，打钱 https://www.xwt999.com/book/1u5ndbh/
-- 阴郁路人不想被喜欢 https://www.xwt999.com/book/1u5ncov/
 - 开局给李世民盘点安史之乱 https://www.xwt999.com/book/1u5ncjr/
 - 怪谈小镇游玩指南[无限] https://www.xwt999.com/book/1u5nbll/
 - 离开那个混蛋后 https://www.xwt999.com/book/1u5nas2/
@@ -49,7 +49,6 @@
 - 某横滨的时间操纵 https://www.xwt999.com/book/1u5m9b1/
 - 穿成猫的咒术高专生活 https://www.xwt999.com/book/1u5m99u/
 - 我骗家里的钱养你啊 https://www.xwt999.com/book/1u5m911/
-- 被鬼怪宠爱的漂亮书生 https://www.xwt999.com/book/1u5m8ki/
 - 我在无限游戏里假扮NPC[无限流] https://www.xwt999.com/book/1u5m8kg/
 - 渣过我的主角全都重生了[快穿] https://www.xwt999.com/book/1u5m8hg/
 - 每天回到家都看到雄虫在装死 https://www.xwt999.com/book/1u5m824/
@@ -159,7 +158,6 @@
 - 渣攻试图洗白[快穿] https://www.xwt999.com/book/1u5letl/
 - 纨绔渣A拒绝入赘长公主府 https://www.xwt999.com/book/1u5lekv/
 - [综英美]让我统治哥谭！！！ https://www.xwt999.com/book/1u5lekc/
-- 沈助理又在隐藏他的超能力 https://www.xwt999.com/book/1u5leil/
 - 万人迷总被入侵角色觊觎[快穿] https://www.xwt999.com/book/1u5le8n/
 - 普通人的乙女RPG[西幻] https://www.xwt999.com/book/1u5le6h/
 - 忍界有文学 https://www.xwt999.com/book/1u5le1s/
@@ -257,7 +255,6 @@
 - 善逸拒绝成为咒术师 https://www.xwt999.com/book/1u5kvso/
 - 绝世美人靠脸躺赢[快穿] https://www.xwt999.com/book/1u5kvju/
 - 全世界名为爱的恶意 https://www.xwt999.com/book/1u5kvcj/
-- 炮灰的我该如何上位？ https://www.xwt999.com/book/1u5kv4r/
 - 当魔修反派穿成治愈系[穿书] https://www.xwt999.com/book/1u5kv2s/
 - 恶毒女配是绝色美人[快穿] https://www.xwt999.com/book/1u5kv0s/
 - 小亲王他不是吉祥物 https://www.xwt999.com/book/1u5kv0l/
@@ -428,9 +425,11 @@
 - 欢迎来到重生点 https://www.xwt999.com/book/1u5kgtc/
 - 好巧，你也是妹控？[综崩铁] https://www.xwt999.com/book/1u5kgm6/
 - 李玉灯 https://www.xwt999.com/book/1u5kgg6/
+- 魔物堆里的人类幼崽 https://www.xwt999.com/book/1u5kg0k/
 - [综英美]和亲友群穿哥谭以后 https://www.xwt999.com/book/1u5kc17/
 - [崩铁]请给玩家一个准确的血条！ https://www.xwt999.com/book/1u5k9oh/
 - 自大狂 https://www.xwt999.com/book/1u5k1jt/
+- 为她守节第十年 https://www.xwt999.com/book/1u5jtvd/
 - 书呆子扮演渣攻翻车【快穿】 https://www.xwt999.com/book/1u5jtks/
 - 满级竹马从异世穿回来了 https://www.xwt999.com/book/1u5jqa1/
 - 丧尸老婆喂养日记 https://www.xwt999.com/book/1u5jhj4/
@@ -438,7 +437,6 @@
 - 被四皇错看成小动物后 https://www.xwt999.com/book/1u5ih1k/
 - 高调装神，猥琐发育 https://www.xwt999.com/book/1u5igkh/
 - 你，后室管理员 https://www.xwt999.com/book/1u5igd7/
-- 误入反派培养直播后 https://www.xwt999.com/book/1u5ig7j/
 - [封神]圣人生欲 https://www.xwt999.com/book/1u5ierl/
 ## 相关内容
 - [README](/README.md)

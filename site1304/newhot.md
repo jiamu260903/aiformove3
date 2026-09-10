@@ -1,7 +1,7 @@
 
 # 唯我小说网-最新小说在线阅读,好看小说全文阅读
 
-更新时间：2026-09-08 03:31:01
+更新时间：2026-09-09 03:31:06
 
 唯我小说网提供最新最热门的小说在线阅读服务，包括但不限于各类好看的小说全文内容，满足广大读者的需求。 https://www.hkffbw.com
 
@@ -33,7 +33,7 @@
 - 被四皇错看成小动物后 https://www.hkffbw.com/book/4nr5rd8/
 - 高调装神，猥琐发育 https://www.hkffbw.com/book/4nr5rcf/
 - 京秋婚约 https://www.hkffbw.com/book/4nr5rae/
-- 阴郁路人不想被喜欢 https://www.hkffbw.com/book/4nr5r9m/
+- 魔物堆里的人类幼崽 https://www.hkffbw.com/book/4nr5ra1/
 - 直男咒术师的限制级游戏 https://www.hkffbw.com/book/4nr5r9h/
 - 满级竹马从异世穿回来了 https://www.hkffbw.com/book/4nr5r7n/
 - 求生游戏：当邪神成为生活玩家后 https://www.hkffbw.com/book/4nr5r75/
@@ -208,7 +208,6 @@
 - 围观吃瓜却发现老公和别人在一起 https://www.hkffbw.com/book/f5vf5n/
 - 这个剑修明明超强却过分贫穷 https://www.hkffbw.com/book/f5vf33/
 - 声息渐止 https://www.hkffbw.com/book/f5vf31/
-- 沈助理又在隐藏他的超能力 https://www.hkffbw.com/book/f5vf27/
 - 微胖才是天花板 https://www.hkffbw.com/book/f5vesv/
 - [足球]那个德国队新皇 https://www.hkffbw.com/book/f5venp/
 - 反派师尊又在迫害主角了 https://www.hkffbw.com/book/f5ven6/
@@ -408,7 +407,6 @@
 - 你也没死？ https://www.hkffbw.com/book/f5ujps/
 - 老公是松散生命体 https://www.hkffbw.com/book/f5uhrl/
 - 我最讨厌打球了！ https://www.hkffbw.com/book/f5ufj9/
-- 误入反派培养直播后 https://www.hkffbw.com/book/f5u9od/
 - [足球]罗蜜第一志愿 https://www.hkffbw.com/book/f5u6mh/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.hkffbw.com/book/f5u4rv/
 - 哥你不能不要我 https://www.hkffbw.com/book/f5tj2g/
