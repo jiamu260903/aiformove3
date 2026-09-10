@@ -1,7 +1,7 @@
 
 # 武侠文学网 - 值得收藏的小说阅读平台
 
-更新时间：2026-09-08 03:45:31
+更新时间：2026-09-09 03:45:40
 
 武侠文学网为您提供丰富多样的小说资源，在这里您可以找到最新最热门的小说作品。无论是经典文学还是现代流行小说，都是您值得收藏的阅读选择。 https://www.wuxia988.com
 
@@ -161,9 +161,7 @@
 - [综武侠]换装之江湖遍地是小号 https://www.wuxia988.com/book/1ms0lfm/
 - 纨绔渣A拒绝入赘长公主府 https://www.wuxia988.com/book/1ms0lf3/
 - [全职高手]小船 https://www.wuxia988.com/book/1ms0lbe/
-- 被鬼怪宠爱的漂亮书生 https://www.wuxia988.com/book/1ms0l8m/
 - 渣攻试图洗白[快穿] https://www.wuxia988.com/book/1ms0l2c/
-- 沈助理又在隐藏他的超能力 https://www.wuxia988.com/book/1ms0khm/
 - 沉烟 https://www.wuxia988.com/book/1ms0kdm/
 - 苗疆蛊女模拟器 https://www.wuxia988.com/book/1ms0k7d/
 - 老公是松散生命体 https://www.wuxia988.com/book/1ms0itq/
@@ -238,7 +236,6 @@
 - [足球]职业模拟器但足坛 https://www.wuxia988.com/book/1ms08il/
 - 反派的病弱白月光重生了 https://www.wuxia988.com/book/1ms089g/
 - 变成龙傲天的心上猫后 https://www.wuxia988.com/book/1ms0835/
-- 误入反派培养直播后 https://www.wuxia988.com/book/1ms07vf/
 - 强爱清冷O后她上瘾了[快穿] https://www.wuxia988.com/book/1ms07si/
 - 都说了我很娇纵了 https://www.wuxia988.com/book/1ms07ru/
 - 掉马后成了奥特带恶人 https://www.wuxia988.com/book/1ms07pl/
@@ -302,7 +299,6 @@
 - 废土猫猫求生指南 https://www.wuxia988.com/book/1ms014u/
 - 与前妻上了同档综艺 https://www.wuxia988.com/book/1ms0138/
 - 好好做1 https://www.wuxia988.com/book/1ms0131/
-- 炮灰的我该如何上位？ https://www.wuxia988.com/book/1ms0127/
 - 一觉醒来老公变男大了 https://www.wuxia988.com/book/1ms011p/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.wuxia988.com/book/1ms00t1/
 - 瓮中惊春 https://www.wuxia988.com/book/1ms00s8/
@@ -435,7 +431,7 @@
 - 暴君偏头痛 https://www.wuxia988.com/book/1mruug6/
 - 和室友他爸恋爱后 https://www.wuxia988.com/book/1mrus0m/
 - 满级竹马从异世穿回来了 https://www.wuxia988.com/book/1mrun6c/
-- 阴郁路人不想被喜欢 https://www.wuxia988.com/book/1mrtn8s/
+- 魔物堆里的人类幼崽 https://www.wuxia988.com/book/1mrtn5d/
 - 直男咒术师的限制级游戏 https://www.wuxia988.com/book/1mrtltr/
 - 京秋婚约 https://www.wuxia988.com/book/1mrtkt7/
 ## 相关内容

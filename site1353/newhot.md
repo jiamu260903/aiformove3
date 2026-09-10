@@ -1,7 +1,7 @@
 
 # 书社1687小说免费-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-09-08 03:40:49
+更新时间：2026-09-09 03:40:48
 
 书社1687小说免费提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏书社1687小说，享受便捷的小说阅读体验。 https://www.shushe1687.com
 
@@ -159,7 +159,6 @@
 - 绑定惊吓系统但对象狂涨好感有救吗 https://www.shushe1687.com/book/489emft/
 - 被迫扮演病娇以后[快穿] https://www.shushe1687.com/book/489emfh/
 - 恋爱脑他重生了 https://www.shushe1687.com/book/489emau/
-- 沈助理又在隐藏他的超能力 https://www.shushe1687.com/book/489em6a/
 - 忍界有文学 https://www.shushe1687.com/book/489elpd/
 - [全职高手]小船 https://www.shushe1687.com/book/489eli8/
 - 万人迷总被入侵角色觊觎[快穿] https://www.shushe1687.com/book/489el80/
@@ -168,7 +167,6 @@
 - 沉烟 https://www.shushe1687.com/book/489ejpt/
 - 纨绔渣A拒绝入赘长公主府 https://www.shushe1687.com/book/489ejpn/
 - 渣攻试图洗白[快穿] https://www.shushe1687.com/book/489ejhj/
-- 被鬼怪宠爱的漂亮书生 https://www.shushe1687.com/book/489ejae/
 - 苗疆蛊女模拟器 https://www.shushe1687.com/book/489eja6/
 - 神经病又不影响我谈恋爱[快穿] https://www.shushe1687.com/book/489ej7k/
 - 万人迷误入炮灰片场 https://www.shushe1687.com/book/489ej0m/
@@ -227,7 +225,6 @@
 - 迫害系偶像排球部出道中 https://www.shushe1687.com/book/489eb6l/
 - 飞云之上 https://www.shushe1687.com/book/489eatt/
 - 清穿纯妃养娃日常 https://www.shushe1687.com/book/489eapa/
-- 误入反派培养直播后 https://www.shushe1687.com/book/489eaai/
 - 蜜蜂膝盖银子弹 https://www.shushe1687.com/book/489e9t0/
 - 人外收集录［快穿］ https://www.shushe1687.com/book/489e9rk/
 - 摆烂后我成了邪神学院大佬 https://www.shushe1687.com/book/489e9q0/
@@ -276,7 +273,6 @@
 - 陌上炊烟（种田） https://www.shushe1687.com/book/489e46f/
 - 大美人怀了enigma上司的崽 https://www.shushe1687.com/book/489e43o/
 - 禁止对人气角色上限制级mod！！！ https://www.shushe1687.com/book/489e43k/
-- 炮灰的我该如何上位？ https://www.shushe1687.com/book/489e3ur/
 - 奶奶蛋糕店[美食] https://www.shushe1687.com/book/489e3sd/
 - 战死的阿爹回来了[年代] https://www.shushe1687.com/book/489e3s4/
 - [西汉]我打工给全家改命 https://www.shushe1687.com/book/489e3qn/
@@ -435,8 +431,8 @@
 - 我，剑圣，养生中，勿扰 https://www.shushe1687.com/book/489d2ea/
 - 和室友他爸恋爱后 https://www.shushe1687.com/book/489cudm/
 - 满级竹马从异世穿回来了 https://www.shushe1687.com/book/489cnbt/
+- 魔物堆里的人类幼崽 https://www.shushe1687.com/book/489bnvc/
 - 直男咒术师的限制级游戏 https://www.shushe1687.com/book/489bnc9/
-- 阴郁路人不想被喜欢 https://www.shushe1687.com/book/489bljo/
 - 京秋婚约 https://www.shushe1687.com/book/489bljh/
 ## 相关内容
 - [README](/README.md)

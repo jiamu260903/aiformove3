@@ -1,11 +1,12 @@
 
 # 家家福顶点书包 - 免费TXT小说下载, 手机电子书资源
 
-更新时间：2026-09-08 03:31:35
+更新时间：2026-09-09 03:31:39
 
 家家福顶点书包为您提供最新最全的小说资源，包括但不限于txt电子书、手机txt小说下载等服务，所有内容均支持全本免费下载，是小说爱好者的理想选择。 https://www.jjfbaijia.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.jjfbaijia.com/book/8hhvkum/
 - 国师 https://www.jjfbaijia.com/book/8hhvkui/
 - 穿为龙傲天发妻后 https://www.jjfbaijia.com/book/8hhvkuh/
 - 失忆后和死对头有了崽 https://www.jjfbaijia.com/book/8hhvkug/
@@ -81,9 +82,9 @@
 - [封神]圣人生欲 https://www.jjfbaijia.com/book/8hhvkmp/
 - 原配夫人 https://www.jjfbaijia.com/book/8hhvkmk/
 - 始乱终弃清冷首辅后 https://www.jjfbaijia.com/book/8hhvkm6/
-- 星际团宠小人鱼 https://www.jjfbaijia.com/book/8hhvkl5/
 - 十九世纪贵族厨房（美食） https://www.jjfbaijia.com/book/8hhvkkl/
 - 高调装神，猥琐发育 https://www.jjfbaijia.com/book/8hhvkkh/
+- 我只梦你一页 https://www.jjfbaijia.com/book/8hhvkkg/
 - 直男咒术师的限制级游戏 https://www.jjfbaijia.com/book/8hhvki1/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.jjfbaijia.com/book/8hhvkha/
 - 六零之成了卷王的妹妹 https://www.jjfbaijia.com/book/8hhvj8h/
@@ -100,7 +101,6 @@
 - 如何嫁给当朝首辅 https://www.jjfbaijia.com/book/8hhsskt/
 - 食明 https://www.jjfbaijia.com/book/8hhss2a/
 - 诡话第一boss https://www.jjfbaijia.com/book/8hhsose/
-- 仙门透明人被迫万人迷 https://www.jjfbaijia.com/book/8hhskgi/
 - 专业女配的自我修养（快穿） https://www.jjfbaijia.com/book/8hhsh0h/
 - 让暴君Alpha怀崽后 https://www.jjfbaijia.com/book/8hhsfpo/
 - 日化人生[科研] https://www.jjfbaijia.com/book/8hhsfgk/
@@ -108,10 +108,8 @@
 - 老实人妻，但顶级魅魔 https://www.jjfbaijia.com/book/8hhscgb/
 - [足球]我的游戏存档成真了？！ https://www.jjfbaijia.com/book/8hhsb94/
 - 让你们无剧本可走（快穿） https://www.jjfbaijia.com/book/8hhs7gd/
-- 寡妇美人模拟器 https://www.jjfbaijia.com/book/8hhs7ah/
 - 趁她之危 https://www.jjfbaijia.com/book/8hhs72u/
 - 起初，我只是想找个冤大头 https://www.jjfbaijia.com/book/8hhs2qn/
-- 摄政王家的咸鱼夫郎 https://www.jjfbaijia.com/book/8hhs275/
 - 死遁的亡夫们都回来了 https://www.jjfbaijia.com/book/rbf1lf/
 - 沈助理又在隐藏他的超能力 https://www.jjfbaijia.com/book/rbeva7/
 - 天幕今天也在直播我搞基建 https://www.jjfbaijia.com/book/rbetaf/
@@ -153,6 +151,7 @@
 - 95美国贵族高中模拟 https://www.jjfbaijia.com/book/2nh9mr/
 - 完蛋！被恨孕男包围了！ https://www.jjfbaijia.com/book/2nh92c/
 - 苏娘子汴京摆摊日常（美食） https://www.jjfbaijia.com/book/2nh923/
+- 月亮上的大筒木 https://www.jjfbaijia.com/book/2nh8rh/
 - 我有一座安全城 https://www.jjfbaijia.com/book/2nh8hf/
 - 全民求生:从小木屋到魔法农场 https://www.jjfbaijia.com/book/2nh8gh/
 - [娱乐圈]过分美丽的她 https://www.jjfbaijia.com/book/2nh85e/

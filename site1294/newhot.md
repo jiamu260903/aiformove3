@@ -1,7 +1,7 @@
 
 # 思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-09-08 03:25:04
+更新时间：2026-09-09 03:25:18
 
 思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,包括但不限于全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等类型的小说供用户免费阅读。 https://www.968577.com
 
@@ -34,8 +34,8 @@
 - 高调装神，猥琐发育 https://www.968577.com/book/1b28m8g/
 - 京秋婚约 https://www.968577.com/book/1b28m7p/
 - 满级竹马从异世穿回来了 https://www.968577.com/book/1b28m67/
+- 魔物堆里的人类幼崽 https://www.968577.com/book/1b28m3k/
 - 直男咒术师的限制级游戏 https://www.968577.com/book/1b28m3a/
-- 阴郁路人不想被喜欢 https://www.968577.com/book/1b28m37/
 - 求生游戏：当邪神成为生活玩家后 https://www.968577.com/book/1b28m35/
 - 昭暮 https://www.968577.com/book/1b28b9l/
 - 修仙界都为我神魂颠倒 https://www.968577.com/book/1b280vh/
@@ -198,7 +198,6 @@
 - 帝国唯一雄虫长官[虫族] https://www.968577.com/book/49skmv/
 - 全星际捧我当神明 https://www.968577.com/book/49skat/
 - 围观吃瓜却发现老公和别人在一起 https://www.968577.com/book/49sk94/
-- 沈助理又在隐藏他的超能力 https://www.968577.com/book/49sk3i/
 - [综英美]和小杰鸟青梅竹马的日子 https://www.968577.com/book/49sk02/
 - [综武侠]与剑有缘 https://www.968577.com/book/49sjvv/
 - 如何投入虚情假意 https://www.968577.com/book/49sjn4/
@@ -410,7 +409,6 @@
 - 这谁的沙雕二次元心声！ https://www.968577.com/book/49rlcv/
 - 老公是松散生命体 https://www.968577.com/book/49rl15/
 - 我最讨厌打球了！ https://www.968577.com/book/49rga7/
-- 误入反派培养直播后 https://www.968577.com/book/49rdi5/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.968577.com/book/49rb8e/
 - [足球]罗蜜第一志愿 https://www.968577.com/book/49r7cu/
 - 哥你不能不要我 https://www.968577.com/book/49ql9h/

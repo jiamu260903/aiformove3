@@ -1,11 +1,12 @@
 
 # 牛魔王JJ电子书 - 小说阅读网, 全本免费完结小说在线阅读及下载
 
-更新时间：2026-09-08 03:36:17
+更新时间：2026-09-09 03:36:19
 
 牛魔王JJ电子书提供精彩小说阅读服务，包括各种类型的小说排行榜、免费好看的小说等。涵盖穿越小说、都市小说、言情小说、玄幻小说等多种类别，支持全本全集完结小说在线阅读以及TXT下载。 https://www.nmwjj.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.nmwjj.com/book/18cjnfb/
 - [全职高手]治疗什么的不干了！ https://www.nmwjj.com/book/18cjhjo/
 - 人，今晚土拨鼠站岗 https://www.nmwjj.com/book/18cjhjn/
 - [原神]魔法使恋爱指南 https://www.nmwjj.com/book/18cjhjl/
@@ -71,7 +72,6 @@
 - 天幕今天也在直播我搞基建 https://www.nmwjj.com/book/18cjab2/
 - 起初，我只是想找个冤大头 https://www.nmwjj.com/book/18cj9pd/
 - 上个鬼班[无限] https://www.nmwjj.com/book/18cj61f/
-- 仙门透明人被迫万人迷 https://www.nmwjj.com/book/18cj502/
 - [足球]足坛人生模拟器 https://www.nmwjj.com/book/18ciukk/
 - 九零重组小家庭 https://www.nmwjj.com/book/18ciu2b/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.nmwjj.com/book/18citl9/
@@ -84,7 +84,6 @@
 - 专业女配的自我修养（快穿） https://www.nmwjj.com/book/18chug0/
 - 老实人妻，但顶级魅魔 https://www.nmwjj.com/book/18chtlc/
 - 我与龙傲天寿命共享 https://www.nmwjj.com/book/18chmo4/
-- 摄政王家的咸鱼夫郎 https://www.nmwjj.com/book/18chm7q/
 - [足球]我的游戏存档成真了？！ https://www.nmwjj.com/book/18chlua/
 - 我骗家里的钱养你啊 https://www.nmwjj.com/book/18chlds/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.nmwjj.com/book/18chkfi/
@@ -99,9 +98,11 @@
 - 从童星开始杀穿港娱 https://www.nmwjj.com/book/18ch0ql/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.nmwjj.com/book/18cgvua/
 - 同时扮演贵族学院F4和平民校花 https://www.nmwjj.com/book/18cgv3o/
+- 我只梦你一页 https://www.nmwjj.com/book/18cgtj9/
 - 苏娘子汴京摆摊日常（美食） https://www.nmwjj.com/book/18cgsth/
 - 路人攻了主角攻［快穿］ https://www.nmwjj.com/book/18cgs0a/
 - 开局绑定郭奉孝，谋定三国风云 https://www.nmwjj.com/book/18cgrth/
+- 月亮上的大筒木 https://www.nmwjj.com/book/18cgrg9/
 - 直男咒术师的限制级游戏 https://www.nmwjj.com/book/18cgolp/
 - 漂亮女配是万人迷［快穿］ https://www.nmwjj.com/book/18cgnj3/
 - 我有一座地下城 https://www.nmwjj.com/book/18cgmc3/
@@ -143,11 +144,9 @@
 - 原配夫人 https://www.nmwjj.com/book/18ce5no/
 - 完蛋！被恨孕男包围了！ https://www.nmwjj.com/book/18ce5l3/
 - 趁她之危 https://www.nmwjj.com/book/18ce5ie/
-- 寡妇美人模拟器 https://www.nmwjj.com/book/18ce5ge/
 - 巨物致富：回乡开钓场 https://www.nmwjj.com/book/18ce5el/
 - 全民求生:从小木屋到魔法农场 https://www.nmwjj.com/book/18ce5b4/
 - 我是唯一地上神国 https://www.nmwjj.com/book/18ce5a3/
-- 星际团宠小人鱼 https://www.nmwjj.com/book/18ce52v/
 - [娱乐圈]过分美丽的她 https://www.nmwjj.com/book/18ce4vd/
 - 高调装神，猥琐发育 https://www.nmwjj.com/book/18ce4lp/
 - 95美国贵族高中模拟 https://www.nmwjj.com/book/18ce4bm/

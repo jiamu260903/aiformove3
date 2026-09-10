@@ -1,11 +1,12 @@
 
 # 耽美小说网 - 最热门的耽美小说在线阅读
 
-更新时间：2026-09-08 03:36:33
+更新时间：2026-09-09 03:36:35
 
 耽美小说网是一个广大书友喜欢的小说网，免费为您提供热门耽美小说、女生小说、都市言情小说无弹窗在线阅读和txt下载。 https://www.nvwagen.com
 
 ## 最新小说
+- 网球带给齐木的灾难 https://www.nvwagen.com/book/8u4jfnk/
 - 当甚尔转生成继国 https://www.nvwagen.com/book/8u4jdo2/
 - 节能型社恐靠交友存活打排球 https://www.nvwagen.com/book/8u4jd43/
 - 渣攻他疯了［快穿］ https://www.nvwagen.com/book/8u4jcgp/
@@ -28,7 +29,6 @@
 - 孤独症崽崽穿越到狗血爽文里[穿书] https://www.nvwagen.com/book/8u4j10b/
 - 我有嘉宾 https://www.nvwagen.com/book/8u4j0sb/
 - 我，始皇闺女，未来皇帝，打钱 https://www.nvwagen.com/book/8u4j0j9/
-- 阴郁路人不想被喜欢 https://www.nvwagen.com/book/8u4ivva/
 - 开局给李世民盘点安史之乱 https://www.nvwagen.com/book/8u4ivp8/
 - 怪谈小镇游玩指南[无限] https://www.nvwagen.com/book/8u4iuoh/
 - 离开那个混蛋后 https://www.nvwagen.com/book/8u4iu2t/
@@ -52,7 +52,6 @@
 - 我骗家里的钱养你啊 https://www.nvwagen.com/book/8u4hqog/
 - 被欺负的老实人[快穿] https://www.nvwagen.com/book/8u4hqkc/
 - 求求你们别吃了 https://www.nvwagen.com/book/8u4hqjk/
-- 被鬼怪宠爱的漂亮书生 https://www.nvwagen.com/book/8u4hqh3/
 - 我于江湖已无敌 https://www.nvwagen.com/book/8u4hqdp/
 - 乱步他哥，但武力值max https://www.nvwagen.com/book/8u4hqbc/
 - [足球]葡萄牙世界杯if线 https://www.nvwagen.com/book/8u4hq3b/
@@ -158,7 +157,6 @@
 - 和室友他爸恋爱后 https://www.nvwagen.com/book/8u4h2do/
 - 普通人的乙女RPG[西幻] https://www.nvwagen.com/book/8u4h2dl/
 - 万人迷总被入侵角色觊觎[快穿] https://www.nvwagen.com/book/8u4h1i6/
-- 沈助理又在隐藏他的超能力 https://www.nvwagen.com/book/8u4h1gk/
 - 大美人怀了enigma上司的崽 https://www.nvwagen.com/book/8u4h1ge/
 - 沉烟 https://www.nvwagen.com/book/8u4h1f0/
 - 苗疆蛊女模拟器 https://www.nvwagen.com/book/8u4h1bl/
@@ -262,7 +260,6 @@
 - 假如樱是砂忍 https://www.nvwagen.com/book/8u4ghtj/
 - 全世界名为爱的恶意 https://www.nvwagen.com/book/8u4ghso/
 - 想听越前君向我告白 https://www.nvwagen.com/book/8u4ghq2/
-- 炮灰的我该如何上位？ https://www.nvwagen.com/book/8u4ghkd/
 - 社畜，但是天才魔导师 https://www.nvwagen.com/book/8u4ghhu/
 - 当魔修反派穿成治愈系[穿书] https://www.nvwagen.com/book/8u4ghh2/
 - 我被厉鬼盯上了 https://www.nvwagen.com/book/8u4ghgv/
@@ -425,12 +422,14 @@
 - 和港城大小姐先婚后爱了 https://www.nvwagen.com/book/8u4g5be/
 - 柯学剧本杀，但恋爱流打法 https://www.nvwagen.com/book/8u4g52v/
 - 我，剑圣，养生中，勿扰 https://www.nvwagen.com/book/8u4g4fp/
+- 魔物堆里的人类幼崽 https://www.nvwagen.com/book/8u4g4e6/
 - 李玉灯 https://www.nvwagen.com/book/8u4g4as/
 - 欢迎来到重生点 https://www.nvwagen.com/book/8u4g3hi/
 - 好巧，你也是妹控？[综崩铁] https://www.nvwagen.com/book/8u4g2u0/
 - [崩铁]请给玩家一个准确的血条！ https://www.nvwagen.com/book/8u4fvb7/
 - [综英美]和亲友群穿哥谭以后 https://www.nvwagen.com/book/8u4fufa/
 - 自大狂 https://www.nvwagen.com/book/8u4flss/
+- 为她守节第十年 https://www.nvwagen.com/book/8u4fit6/
 - 书呆子扮演渣攻翻车【快穿】 https://www.nvwagen.com/book/8u4fepg/
 - 满级竹马从异世穿回来了 https://www.nvwagen.com/book/8u4fbbr/
 - 丧尸老婆喂养日记 https://www.nvwagen.com/book/8u4f3fq/
@@ -438,7 +437,6 @@
 - 被四皇错看成小动物后 https://www.nvwagen.com/book/8u4e3ea/
 - 你，后室管理员 https://www.nvwagen.com/book/8u4e39t/
 - 高调装神，猥琐发育 https://www.nvwagen.com/book/8u4e2sf/
-- 误入反派培养直播后 https://www.nvwagen.com/book/8u4e26u/
 - [封神]圣人生欲 https://www.nvwagen.com/book/8u4e1vi/
 ## 相关内容
 - [README](/README.md)

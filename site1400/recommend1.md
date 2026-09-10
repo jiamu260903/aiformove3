@@ -1,11 +1,12 @@
 
 # 都来读小说网 - 免费电子书阅读平台
 
-更新时间：2026-09-08 03:41:49
+更新时间：2026-09-09 03:41:48
 
 都来读小说网提供快速更新的海量免费小说资源，主要以TXT格式为主，致力于为读者带来优质的阅读体验。 https://www.swazs.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.swazs.com/book/1u7kuie/
 - 我们小区穿末世 https://www.swazs.com/book/1u7kiv2/
 - 夫人每天都在伪装 https://www.swazs.com/book/1u7kiv1/
 - 在年代文里跑运输 https://www.swazs.com/book/1u7kiuv/
@@ -67,7 +68,6 @@
 - 穿为龙傲天发妻后 https://www.swazs.com/book/1u7kiq3/
 - 起初，我只是想找个冤大头 https://www.swazs.com/book/1u7kilo/
 - 天幕今天也在直播我搞基建 https://www.swazs.com/book/1u7kila/
-- 仙门透明人被迫万人迷 https://www.swazs.com/book/1u7ke9f/
 - 上个鬼班[无限] https://www.swazs.com/book/1u7kb9e/
 - [足球]足坛人生模拟器 https://www.swazs.com/book/1u7kapv/
 - 让暴君Alpha怀崽后 https://www.swazs.com/book/1u7k5ei/
@@ -83,7 +83,6 @@
 - 我与龙傲天寿命共享 https://www.swazs.com/book/1u7j5dv/
 - 如何正确哄睡暴君 https://www.swazs.com/book/1u7j4pf/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.swazs.com/book/1u7j4jm/
-- 摄政王家的咸鱼夫郎 https://www.swazs.com/book/1u7j2cu/
 - [足球]我的游戏存档成真了？！ https://www.swazs.com/book/1u7j2ba/
 - 死遁的亡夫们都回来了 https://www.swazs.com/book/1u7j12c/
 - 让你们无剧本可走（快穿） https://www.swazs.com/book/1u7iv7v/
@@ -92,6 +91,7 @@
 - 同时扮演贵族学院F4和平民校花 https://www.swazs.com/book/1u7ij8g/
 - 被天使之王骗婚后[诡秘之主] https://www.swazs.com/book/1u7ihmo/
 - 苏娘子汴京摆摊日常（美食） https://www.swazs.com/book/1u7ih73/
+- 月亮上的大筒木 https://www.swazs.com/book/1u7ig4k/
 - 沈助理又在隐藏他的超能力 https://www.swazs.com/book/1u7ig3g/
 - 开局绑定郭奉孝，谋定三国风云 https://www.swazs.com/book/1u7ig2q/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.swazs.com/book/1u7ifh0/
@@ -112,6 +112,7 @@
 - 五条老师与他的封建妻子 https://www.swazs.com/book/1u7hs37/
 - 我187了，你敢见我吗？ https://www.swazs.com/book/1u7hro1/
 - 和姐姐的前女友欢愉后 https://www.swazs.com/book/1u7hmga/
+- 我只梦你一页 https://www.swazs.com/book/1u7hlv7/
 - 等我吃腻了再倒闭可以吗 https://www.swazs.com/book/1u7heun/
 - 大唐守军家属 https://www.swazs.com/book/1u7hece/
 - 朕也要被强制吗？ https://www.swazs.com/book/1u7hdtp/
@@ -138,7 +139,6 @@
 - 你让魔王组建勇者小队？ https://www.swazs.com/book/1u7gfs7/
 - 我有一座安全城 https://www.swazs.com/book/1u7filg/
 - 海岛求生：生活玩家种田囤货 https://www.swazs.com/book/1u7fia2/
-- 星际团宠小人鱼 https://www.swazs.com/book/1u7fi8l/
 - 清澈女大的六零年代 https://www.swazs.com/book/1u7fi1e/
 - 完蛋！被恨孕男包围了！ https://www.swazs.com/book/1u7fhon/
 - 始乱终弃清冷首辅后 https://www.swazs.com/book/1u7fhho/
@@ -156,7 +156,6 @@
 - 卷王后妈，八零养娃 https://www.swazs.com/book/1u7fg9v/
 - [封神]圣人生欲 https://www.swazs.com/book/1u7fg6j/
 - 十九世纪贵族厨房（美食） https://www.swazs.com/book/1u7fg5k/
-- 寡妇美人模拟器 https://www.swazs.com/book/1u7fg3u/
 - 巨物致富：回乡开钓场 https://www.swazs.com/book/1u7ffvg/
 - 老公对不起 https://www.swazs.com/book/1u7ffuk/
 - 成为养成系练习生后 https://www.swazs.com/book/1u7fftb/

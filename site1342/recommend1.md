@@ -1,7 +1,7 @@
 
 # 阿舍岛小说 - 章节最新最全免费的小说阅读网
 
-更新时间：2026-09-08 03:25:23
+更新时间：2026-09-09 03:25:35
 
 阿舍岛小说提供数万本经典热门小说免费阅读服务，包括但不限于玄幻、言情、网游、穿越等多种类型。网站内容丰富，章节更新及时全面，致力于为读者打造最佳的免费小说阅读体验。 https://www.ashedao.com
 
@@ -93,7 +93,6 @@
 - 高调装神，猥琐发育 https://www.ashedao.com/book/99d1e8j/
 - 起初，我只是想找个冤大头 https://www.ashedao.com/book/99d1de3/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.ashedao.com/book/99d18ti/
-- 寡妇美人模拟器 https://www.ashedao.com/book/99d1837/
 - 仙门透明人被迫万人迷 https://www.ashedao.com/book/99d17dh/
 - 让你们无剧本可走（快穿） https://www.ashedao.com/book/99d171r/
 - [足球]我的游戏存档成真了？！ https://www.ashedao.com/book/99d16si/

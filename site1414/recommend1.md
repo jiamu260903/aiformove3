@@ -1,11 +1,14 @@
 
 # 威勇士开心读书网-最值得书友收藏的网络小说阅读平台
 
-更新时间：2026-09-08 03:43:07
+更新时间：2026-09-09 03:43:05
 
 威勇士开心读书网是广大书友最值得收藏的网络小说阅读网。网站收录了当前最火热的网络小说，平台上的所有文学作品均来源于热心用户的积极上传。分享小说，享受阅读乐趣！ https://www.weiyongshi.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.weiyongshi.com/book/4e1gn94/
+- 月亮上的大筒木 https://www.weiyongshi.com/book/4e1gn2s/
+- 我只梦你一页 https://www.weiyongshi.com/book/4e1flb4/
 - 天幕今天也在直播我搞基建 https://www.weiyongshi.com/book/4e1eibh/
 - 清冷丞相怀了死对头的崽 https://www.weiyongshi.com/book/4e1dldv/
 - 让你们无剧本可走（快穿） https://www.weiyongshi.com/book/4e1dldr/
@@ -24,7 +27,6 @@
 - 诡话第一boss https://www.weiyongshi.com/book/4e1dl63/
 - 从1951开始 https://www.weiyongshi.com/book/4e1dl5v/
 - 世界伏于她刀下[无限] https://www.weiyongshi.com/book/4e1dl5l/
-- 仙门透明人被迫万人迷 https://www.weiyongshi.com/book/4e1dl5k/
 - 全世界名为爱的恶意 https://www.weiyongshi.com/book/4e1dl54/
 - 专业女配的自我修养（快穿） https://www.weiyongshi.com/book/4e1dl3j/
 - 我有一座安全城 https://www.weiyongshi.com/book/4e1dl37/
@@ -99,7 +101,6 @@
 - 上个鬼班[无限] https://www.weiyongshi.com/book/4e1djos/
 - 在民俗惊悚片被诸神庇护 https://www.weiyongshi.com/book/4e1djom/
 - 你让魔王组建勇者小队？ https://www.weiyongshi.com/book/4e1djol/
-- 星际团宠小人鱼 https://www.weiyongshi.com/book/4e1djod/
 - ［综英美］蝙蝠崽？我不是啊！ https://www.weiyongshi.com/book/4e1djo4/
 - 和山神搭伙开农场的日子 https://www.weiyongshi.com/book/4e1djmf/
 - 被糟蹋的老实人决定反击 https://www.weiyongshi.com/book/4e1djm6/
@@ -146,11 +147,9 @@
 - 热恋过期需重追 https://www.weiyongshi.com/book/4e1dii8/
 - 村霸非要入赘受气包 https://www.weiyongshi.com/book/4e1dih7/
 - 谁说踢球就不能成为名侦探[足球] https://www.weiyongshi.com/book/4e1digs/
-- 摄政王家的咸鱼夫郎 https://www.weiyongshi.com/book/4e1dig9/
 - 95美国贵族高中模拟 https://www.weiyongshi.com/book/4e1difn/
 - 巨物致富：回乡开钓场 https://www.weiyongshi.com/book/4e1diec/
 - 恶毒男配只想躺平 https://www.weiyongshi.com/book/4e1dicv/
-- 寡妇美人模拟器 https://www.weiyongshi.com/book/4e1dicc/
 - 漫画取材所引发的修罗场 https://www.weiyongshi.com/book/4e1diat/
 - 强取师尊后 https://www.weiyongshi.com/book/4e1di9i/
 - 正是冬雪沸腾时 https://www.weiyongshi.com/book/4e1di9c/

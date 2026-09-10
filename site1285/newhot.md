@@ -1,7 +1,7 @@
 
 # 书迷村-免费高质量网络小说阅读网,热门男生女生小说大全
 
-更新时间：2026-09-08 03:47:25
+更新时间：2026-09-09 03:47:36
 
 书迷村是广大书友最值得收藏的网络小说阅读平台，提供最新最全的男生小说、女生小说以及孟静薇等作者的作品。在这里可以免费阅读到高质量的小说章节内容，是小说爱好者的首选网站。 https://www.ycqnjy.com
 
@@ -35,7 +35,7 @@
 - 京秋婚约 https://www.ycqnjy.com/book/95irejc/
 - 直男咒术师的限制级游戏 https://www.ycqnjy.com/book/95irej1/
 - 满级竹马从异世穿回来了 https://www.ycqnjy.com/book/95irei7/
-- 阴郁路人不想被喜欢 https://www.ycqnjy.com/book/95irehb/
+- 魔物堆里的人类幼崽 https://www.ycqnjy.com/book/95irefo/
 - 求生游戏：当邪神成为生活玩家后 https://www.ycqnjy.com/book/95irefb/
 - 昭暮 https://www.ycqnjy.com/book/95ir3lk/
 - 修仙界都为我神魂颠倒 https://www.ycqnjy.com/book/95ir331/
@@ -201,7 +201,6 @@
 - 全星际捧我当神明 https://www.ycqnjy.com/book/tbhlu6/
 - [综英美]和小杰鸟青梅竹马的日子 https://www.ycqnjy.com/book/tbhlh4/
 - 沉烟 https://www.ycqnjy.com/book/tbhlfk/
-- 沈助理又在隐藏他的超能力 https://www.ycqnjy.com/book/tbhldp/
 - 如何投入虚情假意 https://www.ycqnjy.com/book/tbhl91/
 - 围观吃瓜却发现老公和别人在一起 https://www.ycqnjy.com/book/tbhl4k/
 - 骄纵漂亮万人嫌被觊觎后［快穿］ https://www.ycqnjy.com/book/tbhkgk/
@@ -410,7 +409,6 @@
 - 这谁的沙雕二次元心声！ https://www.ycqnjy.com/book/tbgopb/
 - 老公是松散生命体 https://www.ycqnjy.com/book/tbgo8m/
 - 我最讨厌打球了！ https://www.ycqnjy.com/book/tbgk73/
-- 误入反派培养直播后 https://www.ycqnjy.com/book/tbgh3t/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.ycqnjy.com/book/tbgd5h/
 - [足球]罗蜜第一志愿 https://www.ycqnjy.com/book/tbg9tv/
 - 哥你不能不要我 https://www.ycqnjy.com/book/tbfptf/

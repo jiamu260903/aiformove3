@@ -1,7 +1,7 @@
 
 # 国威御林小说_国威御林小说小说在线阅读
 
-更新时间：2026-09-08 03:29:56
+更新时间：2026-09-09 03:30:02
 
 国威御林小说是拥有海量的完结全本小说作品, 提供热门小说排行榜免费在线阅读, 每日更新言情、都市、穿越、青春、悬疑等作品连载。 https://www.guoweiyulin.com
 
@@ -106,7 +106,6 @@
 - 我在异世当妖精 https://www.guoweiyulin.com/book/360nsv6/
 - 万人迷绑定美强惨系统后 https://www.guoweiyulin.com/book/360nsov/
 - 全世界都靠我吃瓜 https://www.guoweiyulin.com/book/360nsmt/
-- 阴郁路人不想被喜欢 https://www.guoweiyulin.com/book/360ns8e/
 - 当抠搜总裁被人读心[穿书] https://www.guoweiyulin.com/book/360ns09/
 - 嗲精人设走偏啦［穿书］ https://www.guoweiyulin.com/book/360nrtm/
 - [综英美]怎么就蝙蝠崽文学了 https://www.guoweiyulin.com/book/360nrp9/
@@ -173,7 +172,6 @@
 - 纨绔渣A拒绝入赘长公主府 https://www.guoweiyulin.com/book/360ncr9/
 - 忍界有文学 https://www.guoweiyulin.com/book/360nco0/
 - 普通人的乙女RPG[西幻] https://www.guoweiyulin.com/book/360ncli/
-- 沈助理又在隐藏他的超能力 https://www.guoweiyulin.com/book/360nc2h/
 - 逃妾 https://www.guoweiyulin.com/book/360nc25/
 - 神经病又不影响我谈恋爱[快穿] https://www.guoweiyulin.com/book/360nc1n/
 - 穿到废土末世三十年后 https://www.guoweiyulin.com/book/360nbtj/
@@ -255,7 +253,6 @@
 - 当魔修反派穿成治愈系[穿书] https://www.guoweiyulin.com/book/360mvsi/
 - 我被厉鬼盯上了 https://www.guoweiyulin.com/book/360mvon/
 - 恶毒女配是绝色美人[快穿] https://www.guoweiyulin.com/book/360mvng/
-- 误入反派培养直播后 https://www.guoweiyulin.com/book/360mvi9/
 - 揍敌客大小姐好难攻略 https://www.guoweiyulin.com/book/360mvc1/
 - 挚友和我穿越后分了阵营 https://www.guoweiyulin.com/book/360mva9/
 - 小亲王他不是吉祥物 https://www.guoweiyulin.com/book/360mv8v/
@@ -326,7 +323,6 @@
 - [综英美]忠诚的地球迎来了伟大的开拓者 https://www.guoweiyulin.com/book/360moaj/
 - 汉武帝戾太子什么含金量 https://www.guoweiyulin.com/book/360moai/
 - 白月光拒绝拯救反派 https://www.guoweiyulin.com/book/360mo95/
-- 被鬼怪宠爱的漂亮书生 https://www.guoweiyulin.com/book/360mo93/
 - 我让人生赢家俯首称臣的那些年 https://www.guoweiyulin.com/book/360mo8t/
 - 娇婚惯养 https://www.guoweiyulin.com/book/360mo88/
 - cos穿，但美强惨刀子精 https://www.guoweiyulin.com/book/360mo6d/
@@ -345,7 +341,6 @@
 - 女beta的星际悠闲生活 https://www.guoweiyulin.com/book/360mnee/
 - [崩铁]自恋值拉满穿越被水仙了 https://www.guoweiyulin.com/book/360mne3/
 - 忍界观察日记 https://www.guoweiyulin.com/book/360mnca/
-- 炮灰的我该如何上位？ https://www.guoweiyulin.com/book/360mn7h/
 - 蝴蝶园 https://www.guoweiyulin.com/book/360mn3p/
 - 少年天师，国外爆红 https://www.guoweiyulin.com/book/360mn2h/
 - 宇智波的遗产 https://www.guoweiyulin.com/book/360mn0l/
@@ -425,6 +420,7 @@
 - 刀子精手心的人偶崽崽 https://www.guoweiyulin.com/book/360m450/
 - [综英美]让我统治哥谭！！！ https://www.guoweiyulin.com/book/360m2s9/
 - 欢迎来到重生点 https://www.guoweiyulin.com/book/360lvms/
+- 魔物堆里的人类幼崽 https://www.guoweiyulin.com/book/360luop/
 - 好巧，你也是妹控？[综崩铁] https://www.guoweiyulin.com/book/360luah/
 - 好兄弟暴富后非要跟我结婚 https://www.guoweiyulin.com/book/360lr6f/
 - 求生游戏：当邪神成为生活玩家后 https://www.guoweiyulin.com/book/360lqoe/

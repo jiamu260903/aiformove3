@@ -1,7 +1,7 @@
 
 # 作品思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-09-08 03:50:33
+更新时间：2026-09-09 03:50:52
 
 作品思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等全本小说免费阅读,最新完本小说阅读就在思路客。 https://www.zuopin666.com
 
@@ -34,7 +34,7 @@
 - 高调装神，猥琐发育 https://www.zuopin666.com/book/8befhaf/
 - 京秋婚约 https://www.zuopin666.com/book/8befha2/
 - 满级竹马从异世穿回来了 https://www.zuopin666.com/book/8befh9t/
-- 阴郁路人不想被喜欢 https://www.zuopin666.com/book/8befh8e/
+- 魔物堆里的人类幼崽 https://www.zuopin666.com/book/8befh9o/
 - 直男咒术师的限制级游戏 https://www.zuopin666.com/book/8befh71/
 - 求生游戏：当邪神成为生活玩家后 https://www.zuopin666.com/book/8befh57/
 - 昭暮 https://www.zuopin666.com/book/8bef68s/
@@ -191,7 +191,6 @@
 - 开局一间小卖部[经营] https://www.zuopin666.com/book/qntapo/
 - [综英美]和小杰鸟青梅竹马的日子 https://www.zuopin666.com/book/qntaoj/
 - 我在原始种田 https://www.zuopin666.com/book/qntalr/
-- 沈助理又在隐藏他的超能力 https://www.zuopin666.com/book/qntaf1/
 - 全星际捧我当神明 https://www.zuopin666.com/book/qnta9p/
 - 天崩开局还能通关吗？ https://www.zuopin666.com/book/qnta11/
 - 夏油弟弟在立海大 https://www.zuopin666.com/book/qnt9s0/
@@ -411,7 +410,6 @@
 - 青空来信 https://www.zuopin666.com/book/qnsbqv/
 - 我最讨厌打球了！ https://www.zuopin666.com/book/qns5hh/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.zuopin666.com/book/qns1hg/
-- 误入反派培养直播后 https://www.zuopin666.com/book/qns0iu/
 - [足球]罗蜜第一志愿 https://www.zuopin666.com/book/qnrtla/
 - 哥你不能不要我 https://www.zuopin666.com/book/qnrd1o/
 ## 相关内容

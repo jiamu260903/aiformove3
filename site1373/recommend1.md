@@ -1,11 +1,12 @@
 
 # 泡泡中文书社-无弹窗书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-08 03:41:04
+更新时间：2026-09-09 03:41:03
 
 泡泡中文书社是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。 https://www.shushe818.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.shushe818.com/book/29bc5hl/
 - 双生子反派的端水抑郁妈[九零] https://www.shushe818.com/book/29bc5hi/
 - 病美人重生日记 https://www.shushe818.com/book/29bc5hh/
 - 烈火焚身[巴黎圣母院] https://www.shushe818.com/book/29bc5he/
@@ -82,8 +83,8 @@
 - 十九世纪贵族厨房（美食） https://www.shushe818.com/book/29bapn3/
 - 始乱终弃清冷首辅后 https://www.shushe818.com/book/29bapjo/
 - 原配夫人 https://www.shushe818.com/book/29bapj9/
-- 星际团宠小人鱼 https://www.shushe818.com/book/29baph2/
 - 高调装神，猥琐发育 https://www.shushe818.com/book/29baim3/
+- 我只梦你一页 https://www.shushe818.com/book/29baikl/
 - 完蛋！被恨孕男包围了！ https://www.shushe818.com/book/29baihm/
 - 食明 https://www.shushe818.com/book/29bagid/
 - 诡话第一boss https://www.shushe818.com/book/29bad5v/
@@ -91,7 +92,6 @@
 - 专业女配的自我修养（快穿） https://www.shushe818.com/book/29babcc/
 - [足球]我的游戏存档成真了？！ https://www.shushe818.com/book/29ba4io/
 - 让你们无剧本可走（快穿） https://www.shushe818.com/book/29ba2aa/
-- 摄政王家的咸鱼夫郎 https://www.shushe818.com/book/29ba1sc/
 - 我与龙傲天寿命共享 https://www.shushe818.com/book/29ba185/
 - 如何正确哄睡暴君 https://www.shushe818.com/book/29b9uo9/
 - 死遁的亡夫们都回来了 https://www.shushe818.com/book/29b9qkd/
@@ -106,6 +106,7 @@
 - 咦？我爸爸复活啦 https://www.shushe818.com/book/29b9b8j/
 - 从童星开始杀穿港娱 https://www.shushe818.com/book/29b9a86/
 - 路人攻了主角攻［快穿］ https://www.shushe818.com/book/29b98tt/
+- 月亮上的大筒木 https://www.shushe818.com/book/29b98sa/
 - 开局绑定郭奉孝，谋定三国风云 https://www.shushe818.com/book/29b97tv/
 - 漂亮女配是万人迷［快穿］ https://www.shushe818.com/book/29b9549/
 - 我有一座地下城 https://www.shushe818.com/book/29b9402/
@@ -148,12 +149,10 @@
 - 直男咒术师的限制级游戏 https://www.shushe818.com/book/29b6jqj/
 - 老公对不起 https://www.shushe818.com/book/29b6joc/
 - 天幕今天也在直播我搞基建 https://www.shushe818.com/book/29b6jn8/
-- 仙门透明人被迫万人迷 https://www.shushe818.com/book/29b6jg1/
 - 全民求生:从小木屋到魔法农场 https://www.shushe818.com/book/29b6j1v/
 - 六零之成了卷王的妹妹 https://www.shushe818.com/book/29b6j1o/
 - 95美国贵族高中模拟 https://www.shushe818.com/book/29b6iu2/
 - 巨物致富：回乡开钓场 https://www.shushe818.com/book/29b6irb/
-- 寡妇美人模拟器 https://www.shushe818.com/book/29b6iip/
 - [娱乐圈]过分美丽的她 https://www.shushe818.com/book/29b6ii6/
 - 我有一座安全城 https://www.shushe818.com/book/29b6idf/
 - 我是唯一地上神国 https://www.shushe818.com/book/29b6iah/

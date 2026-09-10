@@ -1,7 +1,7 @@
 
 # 读者香书小说-免费高质量网络小说阅读网
 
-更新时间：2026-09-08 03:28:37
+更新时间：2026-09-09 03:28:44
 
 读者香书小说提供最新的、最热门的网络小说在线阅读服务，支持无弹窗模式，是广大书友和小说读者理想的阅读平台。 https://www.duzhe888.com
 
@@ -32,7 +32,7 @@
 - 你，后室管理员 https://www.duzhe888.com/book/2koep6v/
 - [封神]圣人生欲 https://www.duzhe888.com/book/2koep6l/
 - 高调装神，猥琐发育 https://www.duzhe888.com/book/2koep6g/
-- 阴郁路人不想被喜欢 https://www.duzhe888.com/book/2koep5s/
+- 魔物堆里的人类幼崽 https://www.duzhe888.com/book/2koep5q/
 - 直男咒术师的限制级游戏 https://www.duzhe888.com/book/2koep4k/
 - 京秋婚约 https://www.duzhe888.com/book/2koep4i/
 - 满级竹马从异世穿回来了 https://www.duzhe888.com/book/2koep1n/
@@ -204,7 +204,6 @@
 - 恶劣大佬爆改黑月光[快穿] https://www.duzhe888.com/book/8f9vua/
 - 暗堕本丸，在线直播 https://www.duzhe888.com/book/8f9vbs/
 - 在猫猫星当珍稀动物 https://www.duzhe888.com/book/8f9v70/
-- 沈助理又在隐藏他的超能力 https://www.duzhe888.com/book/8f9v0q/
 - 这个剑修明明超强却过分贫穷 https://www.duzhe888.com/book/8f9v01/
 - 开局一间小卖部[经营] https://www.duzhe888.com/book/8f9usq/
 - 骄纵漂亮万人嫌被觊觎后［快穿］ https://www.duzhe888.com/book/8f9ush/
@@ -408,7 +407,6 @@
 - 你也没死？ https://www.duzhe888.com/book/8f94g7/
 - 老公是松散生命体 https://www.duzhe888.com/book/8f92ac/
 - 我最讨厌打球了！ https://www.duzhe888.com/book/8f8rid/
-- 误入反派培养直播后 https://www.duzhe888.com/book/8f8ogo/
 - [足球]罗蜜第一志愿 https://www.duzhe888.com/book/8f8nmm/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.duzhe888.com/book/8f8lrl/
 - 哥你不能不要我 https://www.duzhe888.com/book/8f81ui/

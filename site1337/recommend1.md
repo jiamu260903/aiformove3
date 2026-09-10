@@ -1,7 +1,7 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-08 03:27:50
+更新时间：2026-09-09 03:27:59
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。 https://www.cq082.com
 
@@ -94,7 +94,6 @@
 - 起初，我只是想找个冤大头 https://www.cq082.com/book/1sdditt/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.cq082.com/book/1sddfn1/
 - [足球]我的游戏存档成真了？！ https://www.cq082.com/book/1sddf6s/
-- 寡妇美人模拟器 https://www.cq082.com/book/1sddec1/
 - 仙门透明人被迫万人迷 https://www.cq082.com/book/1sdddd2/
 - 直男咒术师的限制级游戏 https://www.cq082.com/book/1sddd6r/
 - 让你们无剧本可走（快穿） https://www.cq082.com/book/1sddct6/

@@ -1,7 +1,7 @@
 
 # 书城读书网_免费小说在线阅读|无弹窗广告
 
-更新时间：2026-09-08 03:40:01
+更新时间：2026-09-09 03:40:00
 
 书城读书网是最热门的免费小说网站，提供包括玄幻、都市、言情等多种类型的小说在线阅读服务。这里不仅有最新章节的实时更新，还有全面的小说排行榜，让您轻松找到喜欢的作品。阅读体验极佳，全程无弹窗广告干扰，值得收藏！ https://www.shucheng168.com
 
@@ -161,14 +161,12 @@
 - [综武侠]换装之江湖遍地是小号 https://www.shucheng168.com/book/47fmn2u/
 - 苗疆蛊女模拟器 https://www.shucheng168.com/book/47fmn0t/
 - 忍界有文学 https://www.shucheng168.com/book/47fmmui/
-- 被鬼怪宠爱的漂亮书生 https://www.shucheng168.com/book/47fmmpe/
 - 渣攻试图洗白[快穿] https://www.shucheng168.com/book/47fmmkh/
 - 老公是松散生命体 https://www.shucheng168.com/book/47fmm2g/
 - [全职高手]小船 https://www.shucheng168.com/book/47fmm0k/
 - 沉烟 https://www.shucheng168.com/book/47fmko3/
 - 纨绔渣A拒绝入赘长公主府 https://www.shucheng168.com/book/47fmkht/
 - 万人迷总被入侵角色觊觎[快穿] https://www.shucheng168.com/book/47fmkg2/
-- 沈助理又在隐藏他的超能力 https://www.shucheng168.com/book/47fmked/
 - 普通人的乙女RPG[西幻] https://www.shucheng168.com/book/47fmkbm/
 - 我在原始种田 https://www.shucheng168.com/book/47fmk2b/
 - [足球]那个德国队新皇 https://www.shucheng168.com/book/47fmk1i/
@@ -242,7 +240,6 @@
 - 吃瓜也能整顿豪门？ https://www.shucheng168.com/book/47fm9gv/
 - 荒谬神父是个渣 https://www.shucheng168.com/book/47fm940/
 - 掉马后成了奥特带恶人 https://www.shucheng168.com/book/47fm8na/
-- 误入反派培养直播后 https://www.shucheng168.com/book/47fm8m4/
 - 变成龙傲天的心上猫后 https://www.shucheng168.com/book/47fm8lc/
 - 摆烂后我成了邪神学院大佬 https://www.shucheng168.com/book/47fm8fi/
 - 假如樱是砂忍 https://www.shucheng168.com/book/47fm8b9/
@@ -274,7 +271,6 @@
 - 乙骨同学很好欺负 https://www.shucheng168.com/book/47fm5ca/
 - 拯救美强惨女主进行时[快穿] https://www.shucheng168.com/book/47fm5bv/
 - 被小蜘蛛听见心声后 https://www.shucheng168.com/book/47fm58k/
-- 炮灰的我该如何上位？ https://www.shucheng168.com/book/47fm56b/
 - 战死的阿爹回来了[年代] https://www.shucheng168.com/book/47fm51n/
 - 被四皇错看成小动物后 https://www.shucheng168.com/book/47fm512/
 - [综英美]让我统治哥谭！！！ https://www.shucheng168.com/book/47fm510/
@@ -437,7 +433,7 @@
 - 满级竹马从异世穿回来了 https://www.shucheng168.com/book/47fkmtj/
 - 京秋婚约 https://www.shucheng168.com/book/47fjouq/
 - 直男咒术师的限制级游戏 https://www.shucheng168.com/book/47fjonv/
-- 阴郁路人不想被喜欢 https://www.shucheng168.com/book/47fjo3m/
+- 魔物堆里的人类幼崽 https://www.shucheng168.com/book/47fjnkp/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1365/index.md)

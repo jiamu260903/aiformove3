@@ -1,11 +1,12 @@
 
 # 宁波慈绿农垦小说-全本小说最值得收藏的绿色无弹窗免费小说阅读网
 
-更新时间：2026-09-08 03:36:02
+更新时间：2026-09-09 03:36:04
 
 宁波慈绿农垦小说提供全本网文爱好者一个纯净、安全、高质量的免费小说阅读环境，支持最新章节在线阅读，所有内容均为绿色无弹窗且保证无错字。 https://www.nbcxnk.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.nbcxnk.com/book/2ss161k/
 - 恐游作精女配求生指南 https://www.nbcxnk.com/book/2ss0rg1/
 - 国运求生：我的金手指是生命树 https://www.nbcxnk.com/book/2ss0rfv/
 - SSS级异种都是我前任 https://www.nbcxnk.com/book/2ss0rft/
@@ -70,7 +71,6 @@
 - 天幕今天也在直播我搞基建 https://www.nbcxnk.com/book/2ss0mr2/
 - 起初，我只是想找个冤大头 https://www.nbcxnk.com/book/2ss0moo/
 - 上个鬼班[无限] https://www.nbcxnk.com/book/2ss0khf/
-- 仙门透明人被迫万人迷 https://www.nbcxnk.com/book/2ss0iil/
 - [足球]足坛人生模拟器 https://www.nbcxnk.com/book/2ss0d8g/
 - 九零重组小家庭 https://www.nbcxnk.com/book/2ss0bd1/
 - 让暴君Alpha怀崽后 https://www.nbcxnk.com/book/2ss08h6/
@@ -82,7 +82,6 @@
 - 诡话第一boss https://www.nbcxnk.com/book/2srve0g/
 - 老实人妻，但顶级魅魔 https://www.nbcxnk.com/book/2srvd2l/
 - 我骗家里的钱养你啊 https://www.nbcxnk.com/book/2srv830/
-- 摄政王家的咸鱼夫郎 https://www.nbcxnk.com/book/2srv6fo/
 - 我与龙傲天寿命共享 https://www.nbcxnk.com/book/2srv5k6/
 - [足球]我的游戏存档成真了？！ https://www.nbcxnk.com/book/2srv5g6/
 - 死遁的亡夫们都回来了 https://www.nbcxnk.com/book/2srv3q2/
@@ -101,6 +100,7 @@
 - 开局绑定郭奉孝，谋定三国风云 https://www.nbcxnk.com/book/2srufkg/
 - 苏娘子汴京摆摊日常（美食） https://www.nbcxnk.com/book/2srues5/
 - 路人攻了主角攻［快穿］ https://www.nbcxnk.com/book/2srue2f/
+- 月亮上的大筒木 https://www.nbcxnk.com/book/2srud6o/
 - 从童星开始杀穿港娱 https://www.nbcxnk.com/book/2srud6d/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.nbcxnk.com/book/2srud4v/
 - 直男咒术师的限制级游戏 https://www.nbcxnk.com/book/2sru93k/
@@ -113,6 +113,7 @@
 - 在魔法贵族学院当白月光 https://www.nbcxnk.com/book/2srtvjq/
 - 五条老师与他的封建妻子 https://www.nbcxnk.com/book/2srtv19/
 - 和贵志君是世界第一的好朋友 https://www.nbcxnk.com/book/2srtusk/
+- 我只梦你一页 https://www.nbcxnk.com/book/2srtui4/
 - 我187了，你敢见我吗？ https://www.nbcxnk.com/book/2srttvu/
 - 和姐姐的前女友欢愉后 https://www.nbcxnk.com/book/2srtnig/
 - [足球]小小鸟堂堂来袭 https://www.nbcxnk.com/book/2srtmkf/
@@ -147,7 +148,6 @@
 - 海岛求生：生活玩家种田囤货 https://www.nbcxnk.com/book/2srrk0v/
 - 大瑛弟国 https://www.nbcxnk.com/book/2srrjui/
 - 老公对不起 https://www.nbcxnk.com/book/2srrjti/
-- 星际团宠小人鱼 https://www.nbcxnk.com/book/2srrjt3/
 - 原配夫人 https://www.nbcxnk.com/book/2srrjqt/
 - 趁她之危 https://www.nbcxnk.com/book/2srrjik/
 - 全民求生:从小木屋到魔法农场 https://www.nbcxnk.com/book/2srrjcg/
@@ -157,7 +157,6 @@
 - 我是唯一地上神国 https://www.nbcxnk.com/book/2srrila/
 - [娱乐圈]过分美丽的她 https://www.nbcxnk.com/book/2srriko/
 - 五十年代港城日常 https://www.nbcxnk.com/book/2srrijp/
-- 寡妇美人模拟器 https://www.nbcxnk.com/book/2srrijh/
 - [封神]圣人生欲 https://www.nbcxnk.com/book/2srri6c/
 - 成为养成系练习生后 https://www.nbcxnk.com/book/2srrhus/
 - 巨物致富：回乡开钓场 https://www.nbcxnk.com/book/2srrhrr/

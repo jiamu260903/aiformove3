@@ -1,7 +1,7 @@
 
 # 笔架中文小说_书友必备的无弹窗小说阅读网
 
-更新时间：2026-09-08 03:26:11
+更新时间：2026-09-09 03:26:22
 
 笔架中文小说致力于打造国内最权威免费小说阅读网, 提供小说在线阅读, 小说TXT下载, 网站页面清爽简洁是广大网络小说爱好者必备的小说阅读网。 https://www.bijia188.com
 
@@ -152,7 +152,6 @@
 - 六零之成了卷王的妹妹 https://www.bijia188.com/book/6tog3vm/
 - [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.bijia188.com/book/6tog3lg/
 - 我是唯一地上神国 https://www.bijia188.com/book/6tog3i4/
-- 寡妇美人模拟器 https://www.bijia188.com/book/6tog3gc/
 - 日化人生[科研] https://www.bijia188.com/book/6tog3d1/
 - 95美国贵族高中模拟 https://www.bijia188.com/book/6tog3ch/
 - 仙门透明人被迫万人迷 https://www.bijia188.com/book/6tog3c6/

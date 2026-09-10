@@ -1,11 +1,12 @@
 
 # 微雨数据小说,新笔趣小说阅读网,顶点小说网备份-热门小说大全
 
-更新时间：2026-09-08 03:43:08
+更新时间：2026-09-09 03:43:12
 
 微雨数据小说网作为广大书友喜爱的平台之一，同时也是顶点小说阅读网的官方备份网站，汇集了当前最受欢迎和最火热的小说资源。当遇到顶点小说网无法访问时，请访问笔趣看小说网继续享受精彩内容！ https://www.weiyushuju.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.weiyushuju.com/book/6rf7mb5/
 - 强取师尊后 https://www.weiyushuju.com/book/6rf7anc/
 - 漫画取材所引发的修罗场 https://www.weiyushuju.com/book/6rf7anb/
 - 恐游里的邻居们[万人迷] https://www.weiyushuju.com/book/6rf7an7/
@@ -67,7 +68,6 @@
 - 我只想上京赶考啊[聊斋] https://www.weiyushuju.com/book/6rf7aid/
 - 起初，我只是想找个冤大头 https://www.weiyushuju.com/book/6rf7ads/
 - 天幕今天也在直播我搞基建 https://www.weiyushuju.com/book/6rf7acc/
-- 仙门透明人被迫万人迷 https://www.weiyushuju.com/book/6rf763s/
 - 上个鬼班[无限] https://www.weiyushuju.com/book/6rf737i/
 - [足球]足坛人生模拟器 https://www.weiyushuju.com/book/6rf72l3/
 - 让暴君Alpha怀崽后 https://www.weiyushuju.com/book/6rf6t44/
@@ -84,7 +84,6 @@
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.weiyushuju.com/book/6rf5ral/
 - 如何正确哄睡暴君 https://www.weiyushuju.com/book/6rf5r6e/
 - [足球]我的游戏存档成真了？！ https://www.weiyushuju.com/book/6rf5r0a/
-- 摄政王家的咸鱼夫郎 https://www.weiyushuju.com/book/6rf5qlh/
 - 让你们无剧本可走（快穿） https://www.weiyushuju.com/book/6rf5o8p/
 - 死遁的亡夫们都回来了 https://www.weiyushuju.com/book/6rf5not/
 - 韩团绿卡不想忍了 https://www.weiyushuju.com/book/6rf5gdq/
@@ -95,6 +94,7 @@
 - 从童星开始杀穿港娱 https://www.weiyushuju.com/book/6rf585i/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.weiyushuju.com/book/6rf57la/
 - 死对头又在挑衅我 https://www.weiyushuju.com/book/6rf56rn/
+- 月亮上的大筒木 https://www.weiyushuju.com/book/6rf56ll/
 - 开局绑定郭奉孝，谋定三国风云 https://www.weiyushuju.com/book/6rf56fd/
 - 沈助理又在隐藏他的超能力 https://www.weiyushuju.com/book/6rf5605/
 - 路人攻了主角攻［快穿］ https://www.weiyushuju.com/book/6rf55rg/
@@ -112,6 +112,7 @@
 - 五条老师与他的封建妻子 https://www.weiyushuju.com/book/6rf4kh2/
 - 我187了，你敢见我吗？ https://www.weiyushuju.com/book/6rf4jkm/
 - 和姐姐的前女友欢愉后 https://www.weiyushuju.com/book/6rf4f7t/
+- 我只梦你一页 https://www.weiyushuju.com/book/6rf4b6e/
 - 等我吃腻了再倒闭可以吗 https://www.weiyushuju.com/book/6rf47jl/
 - 心动嫌疑人 https://www.weiyushuju.com/book/6rf479p/
 - 大唐守军家属 https://www.weiyushuju.com/book/6rf46sk/
@@ -138,7 +139,6 @@
 - 你让魔王组建勇者小队？ https://www.weiyushuju.com/book/6rf36oo/
 - [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.weiyushuju.com/book/6rf2agr/
 - 我有一座安全城 https://www.weiyushuju.com/book/6rf2af9/
-- 星际团宠小人鱼 https://www.weiyushuju.com/book/6rf2a5n/
 - 日化人生[科研] https://www.weiyushuju.com/book/6rf2a4d/
 - 原配夫人 https://www.weiyushuju.com/book/6rf2a1q/
 - 老公对不起 https://www.weiyushuju.com/book/6rf29vr/
@@ -158,7 +158,6 @@
 - 全民求生:从小木屋到魔法农场 https://www.weiyushuju.com/book/6rf27v1/
 - 五十年代港城日常 https://www.weiyushuju.com/book/6rf27te/
 - 我是唯一地上神国 https://www.weiyushuju.com/book/6rf27qj/
-- 寡妇美人模拟器 https://www.weiyushuju.com/book/6rf27oo/
 - 成为养成系练习生后 https://www.weiyushuju.com/book/6rf27nd/
 - 在民俗惊悚片被诸神庇护 https://www.weiyushuju.com/book/6rf27lj/
 - 十九世纪贵族厨房（美食） https://www.weiyushuju.com/book/6rf27h2/
