@@ -1,11 +1,49 @@
 
 # 威勇士开心读书网-最值得书友收藏的网络小说阅读平台
 
-更新时间：2026-09-08 03:43:07
+更新时间：2026-09-09 03:43:05
 
 威勇士开心读书网是广大书友最值得收藏的网络小说阅读网。网站收录了当前最火热的网络小说，平台上的所有文学作品均来源于热心用户的积极上传。分享小说，享受阅读乐趣！ https://www.weiyongshi.com
 
 ## 传奇小说 
+- [传奇 第1页](/site1414/category106/1.md)
+- [传奇 第2页](/site1414/category106/2.md)
+- [传奇 第3页](/site1414/category106/3.md)
+- [传奇 第4页](/site1414/category106/4.md)
+- [传奇 第5页](/site1414/category106/5.md)
+- [传奇 第6页](/site1414/category106/6.md)
+- [传奇 第7页](/site1414/category106/7.md)
+- [传奇 第8页](/site1414/category106/8.md)
+- [传奇 第9页](/site1414/category106/9.md)
+- [传奇 第10页](/site1414/category106/10.md)
+- [传奇 第11页](/site1414/category106/11.md)
+- [传奇 第12页](/site1414/category106/12.md)
+- [传奇 第13页](/site1414/category106/13.md)
+- [传奇 第14页](/site1414/category106/14.md)
+- [传奇 第15页](/site1414/category106/15.md)
+- [传奇 第16页](/site1414/category106/16.md)
+- [传奇 第17页](/site1414/category106/17.md)
+- [传奇 第18页](/site1414/category106/18.md)
+- [传奇 第19页](/site1414/category106/19.md)
+- [传奇 第20页](/site1414/category106/20.md)
+- [传奇 第21页](/site1414/category106/21.md)
+- [传奇 第22页](/site1414/category106/22.md)
+- [传奇 第23页](/site1414/category106/23.md)
+- [传奇 第24页](/site1414/category106/24.md)
+- [传奇 第25页](/site1414/category106/25.md)
+- [传奇 第26页](/site1414/category106/26.md)
+- [传奇 第27页](/site1414/category106/27.md)
+- [传奇 第28页](/site1414/category106/28.md)
+- [传奇 第29页](/site1414/category106/29.md)
+- [传奇 第30页](/site1414/category106/30.md)
+- [传奇 第31页](/site1414/category106/31.md)
+- [传奇 第32页](/site1414/category106/32.md)
+- [传奇 第33页](/site1414/category106/33.md)
+- [传奇 第34页](/site1414/category106/34.md)
+- [传奇 第35页](/site1414/category106/35.md)
+- [传奇 第36页](/site1414/category106/36.md)
+- [传奇 第37页](/site1414/category106/37.md)
+- [传奇 第38页](/site1414/category106/38.md)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1414/index.md)

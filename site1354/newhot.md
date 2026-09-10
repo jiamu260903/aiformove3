@@ -1,7 +1,7 @@
 
 # 阅读大文学 - 弘扬华夏文化的综合小说阅读平台
 
-更新时间：2026-09-08 03:48:14
+更新时间：2026-09-09 03:48:31
 
 阅读大文学致力于弘扬华夏文化，提供丰富的小说资源供免费阅读，涵盖但不限于古典文学、现代文学、当代文学及各类流行小说如言情、都市、玄幻等。 https://www.yuedu188.com
 
@@ -160,7 +160,6 @@
 - 巨龙宝藏是个小社恐 https://www.yuedu188.com/book/4kuqir/
 - 七零知青有空间 https://www.yuedu188.com/book/4kuqi8/
 - 渣攻试图洗白[快穿] https://www.yuedu188.com/book/4kuq60/
-- 被鬼怪宠爱的漂亮书生 https://www.yuedu188.com/book/4kupr0/
 - 苗疆蛊女模拟器 https://www.yuedu188.com/book/4kupdk/
 - 老公是松散生命体 https://www.yuedu188.com/book/4kup6g/
 - 普通人的乙女RPG[西幻] https://www.yuedu188.com/book/4kup3l/
@@ -168,7 +167,6 @@
 - 沉烟 https://www.yuedu188.com/book/4kuod4/
 - 纨绔渣A拒绝入赘长公主府 https://www.yuedu188.com/book/4kuocv/
 - 万人迷总被入侵角色觊觎[快穿] https://www.yuedu188.com/book/4kuo3k/
-- 沈助理又在隐藏他的超能力 https://www.yuedu188.com/book/4kuo0v/
 - 忍界有文学 https://www.yuedu188.com/book/4kuns6/
 - 绝色美人模拟器[快穿] https://www.yuedu188.com/book/4kung3/
 - 我在原始种田 https://www.yuedu188.com/book/4kung0/
@@ -237,7 +235,6 @@
 - 摆烂后我成了邪神学院大佬 https://www.yuedu188.com/book/4kudof/
 - 都说了我很娇纵了 https://www.yuedu188.com/book/4kudlp/
 - 亚当斯与韦恩的适配性 https://www.yuedu188.com/book/4kudfi/
-- 误入反派培养直播后 https://www.yuedu188.com/book/4kud6o/
 - 吃瓜也能整顿豪门？ https://www.yuedu188.com/book/4kud48/
 - 请别摘下超能力社恐的耳机 https://www.yuedu188.com/book/4kud0m/
 - [足球]职业模拟器但足坛 https://www.yuedu188.com/book/4kucsa/
@@ -274,7 +271,6 @@
 - 修仙回来后开了间民宿 https://www.yuedu188.com/book/4ku8ni/
 - 主角对你极度痴迷 https://www.yuedu188.com/book/4ku8lm/
 - 陌上炊烟（种田） https://www.yuedu188.com/book/4ku8ld/
-- 炮灰的我该如何上位？ https://www.yuedu188.com/book/4ku8l3/
 - 贵族学院的直男跟班 https://www.yuedu188.com/book/4ku8bc/
 - 好好做1 https://www.yuedu188.com/book/4ku8b8/
 - 被小蜘蛛听见心声后 https://www.yuedu188.com/book/4ku86f/
@@ -435,8 +431,8 @@
 - 我，剑圣，养生中，勿扰 https://www.yuedu188.com/book/4kt78v/
 - 和室友他爸恋爱后 https://www.yuedu188.com/book/4kt0bl/
 - 满级竹马从异世穿回来了 https://www.yuedu188.com/book/4ksrog/
-- 阴郁路人不想被喜欢 https://www.yuedu188.com/book/esfb8/
 - 京秋婚约 https://www.yuedu188.com/book/ese5c/
+- 魔物堆里的人类幼崽 https://www.yuedu188.com/book/ese22/
 - 直男咒术师的限制级游戏 https://www.yuedu188.com/book/ese05/
 ## 相关内容
 - [README](/README.md)

@@ -1,7 +1,7 @@
 
 # 阅读小说网-免费分享优质完结小说下载阅读平台
 
-更新时间：2026-09-08 03:48:29
+更新时间：2026-09-09 03:48:46
 
 阅读小说网为广大读者提供丰富多样的网络免费小说资源，包括但不限于完本小说、玄幻小说、言情小说、耽美小说以及各种经典名著。支持小说上传、下载和在线免费阅读服务。 https://www.yuedu687.com
 
@@ -33,7 +33,7 @@
 - 朕看上的少年是侠女 https://www.yuedu687.com/book/2bu5in3/
 - 高调装神，猥琐发育 https://www.yuedu687.com/book/2bu5imi/
 - 京秋婚约 https://www.yuedu687.com/book/2bu5img/
-- 阴郁路人不想被喜欢 https://www.yuedu687.com/book/2bu5iko/
+- 魔物堆里的人类幼崽 https://www.yuedu687.com/book/2bu5ilm/
 - 满级竹马从异世穿回来了 https://www.yuedu687.com/book/2bu5ij3/
 - 直男咒术师的限制级游戏 https://www.yuedu687.com/book/2bu5iis/
 - 求生游戏：当邪神成为生活玩家后 https://www.yuedu687.com/book/2bu5iha/
@@ -192,7 +192,6 @@
 - 直男大佬误闯生子文片场 https://www.yuedu687.com/book/7j2nkt/
 - 围观吃瓜却发现老公和别人在一起 https://www.yuedu687.com/book/7j2nia/
 - 我在原始种田 https://www.yuedu687.com/book/7j2nd8/
-- 沈助理又在隐藏他的超能力 https://www.yuedu687.com/book/7j2na0/
 - 天崩开局还能通关吗？ https://www.yuedu687.com/book/7j2n9c/
 - 老公是恐怖游戏男主 https://www.yuedu687.com/book/7j2ms7/
 - 旖旎新婚 https://www.yuedu687.com/book/7j2mqc/
@@ -410,7 +409,6 @@
 - 这谁的沙雕二次元心声！ https://www.yuedu687.com/book/7j1pb9/
 - 青空来信 https://www.yuedu687.com/book/7j1p49/
 - 我最讨厌打球了！ https://www.yuedu687.com/book/7j1inm/
-- 误入反派培养直播后 https://www.yuedu687.com/book/7j1fuf/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.yuedu687.com/book/7j1d8a/
 - [足球]罗蜜第一志愿 https://www.yuedu687.com/book/7j1bi8/
 - 哥你不能不要我 https://www.yuedu687.com/book/7j0o16/

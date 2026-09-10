@@ -1,7 +1,7 @@
 
 # 云南野人山野小说网 - 创意小说与文学作品分享平台
 
-更新时间：2026-09-08 03:47:57
+更新时间：2026-09-09 03:48:09
 
 欢迎来到云南野人山野小说网 - 专注于创意小说和文学作品分享的在线平台。探索精选的小说系列及文学佳作，加入我们，与众多才华横溢的作者交流心得，共同创造美好的阅读旅程。 https://www.ynyrsy.com
 
@@ -32,7 +32,6 @@
 - 我比反派先崩坏[快穿] https://www.ynyrsy.com/book/dfdv9v/
 - cos温迪后玩到真崩铁了 https://www.ynyrsy.com/book/dfdqth/
 - 娇气点怎么啦？［快穿］ https://www.ynyrsy.com/book/dfdqdf/
-- 阴郁路人不想被喜欢 https://www.ynyrsy.com/book/dfdq9q/
 - [崩铁]这丰饶孽物我当定了！ https://www.ynyrsy.com/book/dfdpm6/
 - 不义世界都是我马甲[综英美] https://www.ynyrsy.com/book/dfdpeh/
 - 我有嘉宾 https://www.ynyrsy.com/book/dfdohb/
@@ -99,7 +98,6 @@
 - 被剧透后，五条猫猫当然要提前享受青春呀！ https://www.ynyrsy.com/book/dfc5f1/
 - [综英美]怎么就蝙蝠崽文学了 https://www.ynyrsy.com/book/dfc54r/
 - 修罗场里的无能丈夫 https://www.ynyrsy.com/book/dfc4tp/
-- 被鬼怪宠爱的漂亮书生 https://www.ynyrsy.com/book/dfc4t5/
 - 七零年代闺蜜团的奋斗 https://www.ynyrsy.com/book/dfc4ke/
 - 万人迷绑定美强惨系统后 https://www.ynyrsy.com/book/dfc4e1/
 - 全世界都靠我吃瓜 https://www.ynyrsy.com/book/dfc457/
@@ -165,7 +163,6 @@
 - 苗疆蛊女模拟器 https://www.ynyrsy.com/book/dfbnsb/
 - 纨绔渣A拒绝入赘长公主府 https://www.ynyrsy.com/book/dfbnqs/
 - 咦？我爸爸复活啦 https://www.ynyrsy.com/book/dfbnjc/
-- 沈助理又在隐藏他的超能力 https://www.ynyrsy.com/book/dfbmng/
 - 渣攻试图洗白[快穿] https://www.ynyrsy.com/book/dfbmdp/
 - 万人迷总被入侵角色觊觎[快穿] https://www.ynyrsy.com/book/dfbm84/
 - 普通人的乙女RPG[西幻] https://www.ynyrsy.com/book/dfbm3h/
@@ -269,7 +266,6 @@
 - 野比春子穿越事件簿 https://www.ynyrsy.com/book/dfb7je/
 - 人在综漫，但崩铁马甲 https://www.ynyrsy.com/book/dfb7ho/
 - 当魔修反派穿成治愈系[穿书] https://www.ynyrsy.com/book/dfb761/
-- 炮灰的我该如何上位？ https://www.ynyrsy.com/book/dfb72s/
 - 与清冷O协议结婚后她失忆了 https://www.ynyrsy.com/book/dfb6un/
 - 揍敌客大小姐好难攻略 https://www.ynyrsy.com/book/dfb6u9/
 - 忍界修罗金屋藏娇了？ https://www.ynyrsy.com/book/dfb6o6/
@@ -420,6 +416,7 @@
 - 求生游戏：当邪神成为生活玩家后 https://www.ynyrsy.com/book/dfap01/
 - 幼崽假少爷选择回归寒门 https://www.ynyrsy.com/book/dfao2f/
 - 撕毁女配剧本的我被神之子读心了 https://www.ynyrsy.com/book/dfanrk/
+- 魔物堆里的人类幼崽 https://www.ynyrsy.com/book/dfan06/
 - [足球]小小鸟堂堂来袭 https://www.ynyrsy.com/book/dfamv4/
 - 好巧，你也是妹控？[综崩铁] https://www.ynyrsy.com/book/dfamur/
 - 青城玩家明明超强却过分谨慎 https://www.ynyrsy.com/book/dfamij/
@@ -439,7 +436,6 @@
 - 满级竹马从异世穿回来了 https://www.ynyrsy.com/book/df9sgc/
 - 暴君偏头痛 https://www.ynyrsy.com/book/df9s6m/
 - 你，后室管理员 https://www.ynyrsy.com/book/df8q1k/
-- 误入反派培养直播后 https://www.ynyrsy.com/book/df8p3e/
 - 被四皇错看成小动物后 https://www.ynyrsy.com/book/df8oq3/
 - 高调装神，猥琐发育 https://www.ynyrsy.com/book/df8olq/
 - [封神]圣人生欲 https://www.ynyrsy.com/book/df8oj6/

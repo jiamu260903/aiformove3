@@ -1,11 +1,12 @@
 
 # 文学小说668 - 全球最新最热的小说阅读平台
 
-更新时间：2026-09-08 03:43:56
+更新时间：2026-09-09 03:44:00
 
 文学小说668是全球最新、最热的小说阅读网站之一，汇集了包括言情小说、玄幻小说、穿越小说在内的各类优质小说资源，让读者能够尽情享受阅读的乐趣。 https://www.wenxue668.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.wenxue668.com/book/44ff1ho/
 - 我们小区穿末世 https://www.wenxue668.com/book/44ff1hl/
 - 乖乖女的杂货铺[八零] https://www.wenxue668.com/book/44ff1hj/
 - 欲加之罪 https://www.wenxue668.com/book/44ff1hg/
@@ -79,11 +80,11 @@
 - 在卷王和废物之间选择做吉祥物 https://www.wenxue668.com/book/44fduql/
 - 从维多利亚时代开始 https://www.wenxue668.com/book/44fdrid/
 - 昭暮 https://www.wenxue668.com/book/44fdpo2/
-- 星际团宠小人鱼 https://www.wenxue668.com/book/44fdmn7/
 - 原配夫人 https://www.wenxue668.com/book/44fdmi7/
 - 十九世纪贵族厨房（美食） https://www.wenxue668.com/book/44fdmfg/
 - 始乱终弃清冷首辅后 https://www.wenxue668.com/book/44fdmca/
 - 高调装神，猥琐发育 https://www.wenxue668.com/book/44fdfj3/
+- 我只梦你一页 https://www.wenxue668.com/book/44fdff0/
 - 完蛋！被恨孕男包围了！ https://www.wenxue668.com/book/44fdfem/
 - 食明 https://www.wenxue668.com/book/44fdcde/
 - 诡话第一boss https://www.wenxue668.com/book/44fd9ab/
@@ -91,7 +92,6 @@
 - 老实人妻，但顶级魅魔 https://www.wenxue668.com/book/44fd799/
 - [足球]我的游戏存档成真了？！ https://www.wenxue668.com/book/44fd1c5/
 - 让你们无剧本可走（快穿） https://www.wenxue668.com/book/44fct98/
-- 摄政王家的咸鱼夫郎 https://www.wenxue668.com/book/44fct2c/
 - 我与龙傲天寿命共享 https://www.wenxue668.com/book/44fcsv3/
 - 如何正确哄睡暴君 https://www.wenxue668.com/book/44fcreu/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.wenxue668.com/book/44fclnd/
@@ -104,6 +104,7 @@
 - 从童星开始杀穿港娱 https://www.wenxue668.com/book/44fc7p2/
 - 咦？我爸爸复活啦 https://www.wenxue668.com/book/44fc6g6/
 - 同时扮演贵族学院F4和平民校花 https://www.wenxue668.com/book/44fc6eg/
+- 月亮上的大筒木 https://www.wenxue668.com/book/44fc4ft/
 - 路人攻了主角攻［快穿］ https://www.wenxue668.com/book/44fc3bv/
 - 韩团绿卡不想忍了 https://www.wenxue668.com/book/44fc393/
 - 开局绑定郭奉孝，谋定三国风云 https://www.wenxue668.com/book/44fc34l/
@@ -142,7 +143,6 @@
 - 恶犬攻绑定上司的乖狗系统 https://www.wenxue668.com/book/44fame8/
 - 权宋一只统 https://www.wenxue668.com/book/44fah45/
 - 爱好和平但狂拆机甲 https://www.wenxue668.com/book/44fad2g/
-- 仙门透明人被迫万人迷 https://www.wenxue668.com/book/44f9gdo/
 - 95美国贵族高中模拟 https://www.wenxue668.com/book/44f9gdd/
 - 清澈女大的六零年代 https://www.wenxue668.com/book/44f9fi9/
 - 直男咒术师的限制级游戏 https://www.wenxue668.com/book/44f9fgm/
@@ -157,7 +157,6 @@
 - [娱乐圈]过分美丽的她 https://www.wenxue668.com/book/44f9ef1/
 - 全民求生:从小木屋到魔法农场 https://www.wenxue668.com/book/44f9ee3/
 - 成为养成系练习生后 https://www.wenxue668.com/book/44f9eb0/
-- 寡妇美人模拟器 https://www.wenxue668.com/book/44f9e2l/
 - 日化人生[科研] https://www.wenxue668.com/book/44f9dtc/
 - 天幕今天也在直播我搞基建 https://www.wenxue668.com/book/44f9dgh/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.wenxue668.com/book/44f9dcn/

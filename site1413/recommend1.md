@@ -1,11 +1,14 @@
 
 # 雷火小说网 - 最新最全的小说阅读平台
 
-更新时间：2026-09-08 03:48:13
+更新时间：2026-09-09 03:48:24
 
 雷火小说网提供海量正版小说资源，在线免费阅读最新热门小说，支持手机电脑多端同步阅读，是书友们值得收藏的优质小说阅读网站。 https://www.yskuq.com
 
 ## 最新小说
+- 月亮上的大筒木 https://www.yskuq.com/book/6nqq5g6/
+- 入梦修罗场，但我脸盲 https://www.yskuq.com/book/6nqq50p/
+- 我只梦你一页 https://www.yskuq.com/book/6nqp403/
 - 天幕今天也在直播我搞基建 https://www.yskuq.com/book/6nqnvta/
 - 我骗家里的钱养你啊 https://www.yskuq.com/book/6nqn655/
 - 阴阳师也可以打网球 https://www.yskuq.com/book/6nqn640/
@@ -42,7 +45,6 @@
 - [足球]足坛人生模拟器 https://www.yskuq.com/book/6nqn5eu/
 - 如何正确哄睡暴君 https://www.yskuq.com/book/6nqn5eq/
 - 万人嫌从末世回来了 https://www.yskuq.com/book/6nqn5em/
-- 摄政王家的咸鱼夫郎 https://www.yskuq.com/book/6nqn5eg/
 - 开局绑定郭奉孝，谋定三国风云 https://www.yskuq.com/book/6nqn5ea/
 - 恶毒男配只想躺平 https://www.yskuq.com/book/6nqn5dg/
 - 妻主风流（女尊） https://www.yskuq.com/book/6nqn5d6/
@@ -57,7 +59,6 @@
 - 恐游作精女配求生指南 https://www.yskuq.com/book/6nqn57v/
 - [足球]小小鸟堂堂来袭 https://www.yskuq.com/book/6nqn57m/
 - 上个鬼班[无限] https://www.yskuq.com/book/6nqn57f/
-- 寡妇美人模拟器 https://www.yskuq.com/book/6nqn55g/
 - 我是唯一地上神国 https://www.yskuq.com/book/6nqn54o/
 - 成为养成系练习生后 https://www.yskuq.com/book/6nqn54h/
 - [足球]雏鸟 https://www.yskuq.com/book/6nqn545/
@@ -100,7 +101,6 @@
 - 在年代文里跑运输 https://www.yskuq.com/book/6nqn45h/
 - 在魔法贵族学院当白月光 https://www.yskuq.com/book/6nqn44s/
 - 五十年代港城日常 https://www.yskuq.com/book/6nqn44n/
-- 仙门透明人被迫万人迷 https://www.yskuq.com/book/6nqn44h/
 - [娱乐圈]过分美丽的她 https://www.yskuq.com/book/6nqn43h/
 - 禁止继承限制级雌君 https://www.yskuq.com/book/6nqn417/
 - 炮灰的海外亲戚回国啦！ https://www.yskuq.com/book/6nqn412/
@@ -119,7 +119,6 @@
 - 从维多利亚时代开始 https://www.yskuq.com/book/6nqn3o9/
 - 在卷王和废物之间选择做吉祥物 https://www.yskuq.com/book/6nqn3n6/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.yskuq.com/book/6nqn3mm/
-- 星际团宠小人鱼 https://www.yskuq.com/book/6nqn3mh/
 - 在民俗惊悚片被诸神庇护 https://www.yskuq.com/book/6nqn3k1/
 - 从1951开始 https://www.yskuq.com/book/6nqn3ji/
 - 起初，我只是想找个冤大头 https://www.yskuq.com/book/6nqn3j5/

@@ -1,11 +1,12 @@
 
 # 武侠文学网 - 值得收藏的小说阅读平台
 
-更新时间：2026-09-08 03:45:31
+更新时间：2026-09-09 03:45:40
 
 武侠文学网为您提供丰富多样的小说资源，在这里您可以找到最新最热门的小说作品。无论是经典文学还是现代流行小说，都是您值得收藏的阅读选择。 https://www.wuxia988.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.wuxia988.com/book/1ms38pj/
 - 我们小区穿末世 https://www.wuxia988.com/book/1ms38pg/
 - 你让魔王组建勇者小队？ https://www.wuxia988.com/book/1ms38pc/
 - 漫画取材所引发的修罗场 https://www.wuxia988.com/book/1ms38pb/
@@ -79,10 +80,10 @@
 - 在卷王和废物之间选择做吉祥物 https://www.wuxia988.com/book/1ms25un/
 - 从维多利亚时代开始 https://www.wuxia988.com/book/1ms22s1/
 - 昭暮 https://www.wuxia988.com/book/1ms20mv/
-- 星际团宠小人鱼 https://www.wuxia988.com/book/1ms1sq3/
 - 始乱终弃清冷首辅后 https://www.wuxia988.com/book/1ms1sp0/
 - 原配夫人 https://www.wuxia988.com/book/1ms1soi/
 - 十九世纪贵族厨房（美食） https://www.wuxia988.com/book/1ms1soh/
+- 我只梦你一页 https://www.wuxia988.com/book/1ms1lr7/
 - 完蛋！被恨孕男包围了！ https://www.wuxia988.com/book/1ms1lok/
 - 高调装神，猥琐发育 https://www.wuxia988.com/book/1ms1lnv/
 - 食明 https://www.wuxia988.com/book/1ms1jqv/
@@ -91,7 +92,6 @@
 - 老实人妻，但顶级魅魔 https://www.wuxia988.com/book/1ms1eht/
 - [足球]我的游戏存档成真了？！ https://www.wuxia988.com/book/1ms183n/
 - 我与龙傲天寿命共享 https://www.wuxia988.com/book/1ms16bd/
-- 摄政王家的咸鱼夫郎 https://www.wuxia988.com/book/1ms15sm/
 - 让你们无剧本可走（快穿） https://www.wuxia988.com/book/1ms148q/
 - 如何正确哄睡暴君 https://www.wuxia988.com/book/1ms122q/
 - 死遁的亡夫们都回来了 https://www.wuxia988.com/book/1ms0tki/
@@ -105,6 +105,7 @@
 - 咦？我爸爸复活啦 https://www.wuxia988.com/book/1ms0fd3/
 - 从童星开始杀穿港娱 https://www.wuxia988.com/book/1ms0dr2/
 - 同时扮演贵族学院F4和平民校花 https://www.wuxia988.com/book/1ms0do0/
+- 月亮上的大筒木 https://www.wuxia988.com/book/1ms0cja/
 - 开局绑定郭奉孝，谋定三国风云 https://www.wuxia988.com/book/1ms0c7e/
 - 路人攻了主角攻［快穿］ https://www.wuxia988.com/book/1ms09ot/
 - 苏娘子汴京摆摊日常（美食） https://www.wuxia988.com/book/1ms08lk/
@@ -158,10 +159,8 @@
 - 我有一座安全城 https://www.wuxia988.com/book/1mrtm1v/
 - 天幕今天也在直播我搞基建 https://www.wuxia988.com/book/1mrtm17/
 - 直男咒术师的限制级游戏 https://www.wuxia988.com/book/1mrtltr/
-- 寡妇美人模拟器 https://www.wuxia988.com/book/1mrtlm9/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.wuxia988.com/book/1mrtl9e/
 - 海岛求生：生活玩家种田囤货 https://www.wuxia988.com/book/1mrtl5h/
-- 仙门透明人被迫万人迷 https://www.wuxia988.com/book/1mrtkq0/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1369/index.md)

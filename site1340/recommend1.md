@@ -1,11 +1,12 @@
 
 # 时光树园-热门小说大全-小说排行榜-好看的小说推荐-热门小说推荐
 
-更新时间：2026-09-08 03:33:46
+更新时间：2026-09-09 03:33:50
 
 时光树园是一个热门小说推荐网站，这里有热门全本小说大全、好看的小说推荐、小说排行榜等。您可以在这里无广告在线阅读优质的豪门总裁小说、现代言情小说、古代言情小说、都市小说、穿越小说、玄幻小说、武侠仙侠等各类热门小说。 https://www.kltbl.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.kltbl.com/book/5achctb/
 - 清穿女回来后[天幕] https://www.kltbl.com/book/5achct7/
 - ［综英美］蝙蝠崽？我不是啊！ https://www.kltbl.com/book/5achct6/
 - 强取师尊后 https://www.kltbl.com/book/5achct4/
@@ -75,10 +76,10 @@
 - 魔法种田，从退队经营农场开始 https://www.kltbl.com/book/5achco0/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.kltbl.com/book/5ach6hs/
 - 上个鬼班[无限] https://www.kltbl.com/book/5acgsj8/
-- 星际团宠小人鱼 https://www.kltbl.com/book/5acgrm2/
 - 始乱终弃清冷首辅后 https://www.kltbl.com/book/5acgrh7/
 - 原配夫人 https://www.kltbl.com/book/5acgrgt/
 - 让暴君Alpha怀崽后 https://www.kltbl.com/book/5acgq3s/
+- 我只梦你一页 https://www.kltbl.com/book/5acgoeo/
 - 九零重组小家庭 https://www.kltbl.com/book/5acgn2l/
 - [足球]足坛人生模拟器 https://www.kltbl.com/book/5acgkb6/
 - 趁她之危 https://www.kltbl.com/book/5acgee0/
@@ -93,12 +94,9 @@
 - 高调装神，猥琐发育 https://www.kltbl.com/book/5acffu7/
 - 起初，我只是想找个冤大头 https://www.kltbl.com/book/5acfeum/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.kltbl.com/book/5acfauv/
-- 仙门透明人被迫万人迷 https://www.kltbl.com/book/5acf9kk/
 - [足球]我的游戏存档成真了？！ https://www.kltbl.com/book/5acf8vp/
 - 让你们无剧本可走（快穿） https://www.kltbl.com/book/5acf8eq/
 - 直男咒术师的限制级游戏 https://www.kltbl.com/book/5acf8bv/
-- 寡妇美人模拟器 https://www.kltbl.com/book/5acf8ba/
-- 摄政王家的咸鱼夫郎 https://www.kltbl.com/book/5acf5mo/
 - 我与龙傲天寿命共享 https://www.kltbl.com/book/5acf4hc/
 - 如何正确哄睡暴君 https://www.kltbl.com/book/5acf18r/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.kltbl.com/book/5acepd4/
@@ -108,6 +106,7 @@
 - 在民俗惊悚片被诸神庇护 https://www.kltbl.com/book/5acefsu/
 - 从童星开始杀穿港娱 https://www.kltbl.com/book/5aceere/
 - 我有一座地下城 https://www.kltbl.com/book/5acec6g/
+- 月亮上的大筒木 https://www.kltbl.com/book/5aceblo/
 - 漂亮女配是万人迷［快穿］ https://www.kltbl.com/book/5acebla/
 - 开局绑定郭奉孝，谋定三国风云 https://www.kltbl.com/book/5ace8vj/
 - 我骗家里的钱养你啊 https://www.kltbl.com/book/5ace7sq/

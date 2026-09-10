@@ -1,11 +1,12 @@
 
 # 情感小说-精彩小说推荐网,涵盖言情都市历史科幻等多种类型
 
-更新时间：2026-09-08 03:38:05
+更新时间：2026-09-09 03:38:07
 
 情感小说致力于为广大书友推荐各种类型好看的小说，包括但不限于言情、都市、历史、科幻、灵异、军事、悬疑、玄幻、武侠、末世等。看小说，找小说就上书格格小说推荐网！ https://www.qinggan1687.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.qinggan1687.com/book/3qc5is7/
 - 魔咒请说普通话[西幻] https://www.qinggan1687.com/book/3qc5is4/
 - 在中世纪做奴隶 https://www.qinggan1687.com/book/3qc5is2/
 - 娘娘扶摇直上 https://www.qinggan1687.com/book/3qc5is0/
@@ -80,10 +81,10 @@
 - 从维多利亚时代开始 https://www.qinggan1687.com/book/3qc4cp5/
 - 昭暮 https://www.qinggan1687.com/book/3qc4ars/
 - 十九世纪贵族厨房（美食） https://www.qinggan1687.com/book/3qc4752/
-- 星际团宠小人鱼 https://www.qinggan1687.com/book/3qc474b/
 - 始乱终弃清冷首辅后 https://www.qinggan1687.com/book/3qc4716/
 - 原配夫人 https://www.qinggan1687.com/book/3qc46rr/
 - 高调装神，猥琐发育 https://www.qinggan1687.com/book/3qc401u/
+- 我只梦你一页 https://www.qinggan1687.com/book/3qc400m/
 - 完蛋！被恨孕男包围了！ https://www.qinggan1687.com/book/3qc400k/
 - 食明 https://www.qinggan1687.com/book/3qc3to0/
 - 诡话第一boss https://www.qinggan1687.com/book/3qc3qk4/
@@ -92,7 +93,6 @@
 - [足球]我的游戏存档成真了？！ https://www.qinggan1687.com/book/3qc3hmg/
 - 我与龙傲天寿命共享 https://www.qinggan1687.com/book/3qc3g2u/
 - 让你们无剧本可走（快穿） https://www.qinggan1687.com/book/3qc3fro/
-- 摄政王家的咸鱼夫郎 https://www.qinggan1687.com/book/3qc3f3k/
 - 如何正确哄睡暴君 https://www.qinggan1687.com/book/3qc3c9g/
 - 死遁的亡夫们都回来了 https://www.qinggan1687.com/book/3qc37c0/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.qinggan1687.com/book/3qc3663/
@@ -107,6 +107,7 @@
 - 咦？我爸爸复活啦 https://www.qinggan1687.com/book/3qc2mrj/
 - 路人攻了主角攻［快穿］ https://www.qinggan1687.com/book/3qc2lo4/
 - 开局绑定郭奉孝，谋定三国风云 https://www.qinggan1687.com/book/3qc2l0o/
+- 月亮上的大筒木 https://www.qinggan1687.com/book/3qc2jrp/
 - 苏娘子汴京摆摊日常（美食） https://www.qinggan1687.com/book/3qc2jnb/
 - 我有一座地下城 https://www.qinggan1687.com/book/3qc2iuv/
 - 漂亮女配是万人迷［快穿］ https://www.qinggan1687.com/book/3qc2hnu/
@@ -142,14 +143,12 @@
 - 恶犬攻绑定上司的乖狗系统 https://www.qinggan1687.com/book/3qc15ms/
 - 权宋一只统 https://www.qinggan1687.com/book/3qc13b7/
 - 爱好和平但狂拆机甲 https://www.qinggan1687.com/book/3qc0uq9/
-- 寡妇美人模拟器 https://www.qinggan1687.com/book/3qc01p9/
 - 清澈女大的六零年代 https://www.qinggan1687.com/book/3qc01g1/
 - 五十年代港城日常 https://www.qinggan1687.com/book/3qc018i/
 - 全民求生:从小木屋到魔法农场 https://www.qinggan1687.com/book/3qc00rh/
 - 日化人生[科研] https://www.qinggan1687.com/book/3qc00qd/
 - 成为养成系练习生后 https://www.qinggan1687.com/book/3qc00p8/
 - 95美国贵族高中模拟 https://www.qinggan1687.com/book/3qc00e3/
-- 仙门透明人被迫万人迷 https://www.qinggan1687.com/book/3qc00dd/
 - 直男咒术师的限制级游戏 https://www.qinggan1687.com/book/3qc007n/
 - 老公对不起 https://www.qinggan1687.com/book/3qc007d/
 - 天幕今天也在直播我搞基建 https://www.qinggan1687.com/book/3qbvvsr/

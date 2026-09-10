@@ -1,11 +1,12 @@
 
 # 笔趣阁啦 - 免费小说阅读网
 
-更新时间：2026-09-08 03:38:20
+更新时间：2026-09-09 03:38:22
 
 笔趣阁啦为您提供海量免费小说资源，在线畅读各类热门小说及最新章节更新，支持手机电脑等多种设备访问，让阅读更轻松便捷。 https://www.qingyuchun.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.qingyuchun.com/book/10578mm/
 - 禁止继承限制级雌君 https://www.qingyuchun.com/book/10578mi/
 - 万人嫌从末世回来了 https://www.qingyuchun.com/book/10578mh/
 - 好心的俄罗斯人 https://www.qingyuchun.com/book/10578mg/
@@ -80,9 +81,9 @@
 - 等我吃腻了再倒闭可以吗 https://www.qingyuchun.com/book/10578k9/
 - [封神]圣人生欲 https://www.qingyuchun.com/book/10578eh/
 - 始乱终弃清冷首辅后 https://www.qingyuchun.com/book/10578e6/
-- 星际团宠小人鱼 https://www.qingyuchun.com/book/10578e2/
 - 原配夫人 https://www.qingyuchun.com/book/10578do/
 - 十九世纪贵族厨房（美食） https://www.qingyuchun.com/book/10578ci/
+- 我只梦你一页 https://www.qingyuchun.com/book/10578cf/
 - 高调装神，猥琐发育 https://www.qingyuchun.com/book/10578ce/
 - 直男咒术师的限制级游戏 https://www.qingyuchun.com/book/105789t/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.qingyuchun.com/book/105787s/
@@ -101,7 +102,6 @@
 - 食明 https://www.qingyuchun.com/book/1054f21/
 - 诡话第一boss https://www.qingyuchun.com/book/1054bt2/
 - 让暴君Alpha怀崽后 https://www.qingyuchun.com/book/10546l1/
-- 仙门透明人被迫万人迷 https://www.qingyuchun.com/book/10546hf/
 - 专业女配的自我修养（快穿） https://www.qingyuchun.com/book/105455n/
 - 日化人生[科研] https://www.qingyuchun.com/book/10544m3/
 - 老实人妻，但顶级魅魔 https://www.qingyuchun.com/book/10544ia/
@@ -109,9 +109,7 @@
 - 让你们无剧本可走（快穿） https://www.qingyuchun.com/book/1053v2s/
 - [足球]我的游戏存档成真了？！ https://www.qingyuchun.com/book/1053tj1/
 - 趁她之危 https://www.qingyuchun.com/book/1053roj/
-- 寡妇美人模拟器 https://www.qingyuchun.com/book/1053qjr/
 - 起初，我只是想找个冤大头 https://www.qingyuchun.com/book/1053p7q/
-- 摄政王家的咸鱼夫郎 https://www.qingyuchun.com/book/1053koh/
 - 死遁的亡夫们都回来了 https://www.qingyuchun.com/book/36vpan/
 - 沈助理又在隐藏他的超能力 https://www.qingyuchun.com/book/36vlen/
 - 天幕今天也在直播我搞基建 https://www.qingyuchun.com/book/36vk7r/
@@ -162,6 +160,7 @@
 - 开局绑定郭奉孝，谋定三国风云 https://www.qingyuchun.com/book/a9aol/
 - [娱乐圈]过分美丽的她 https://www.qingyuchun.com/book/a9a60/
 - 95美国贵族高中模拟 https://www.qingyuchun.com/book/10u75/
+- 月亮上的大筒木 https://www.qingyuchun.com/book/39cu/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1291/index.md)

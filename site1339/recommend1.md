@@ -1,11 +1,12 @@
 
 # 三哥小说网 - 最热门的免费小说阅读平台
 
-更新时间：2026-09-08 03:44:27
+更新时间：2026-09-09 03:44:30
 
 三哥小说网致力于为读者提供一个无广告无弹窗的在线小说阅读环境，涵盖玄幻、网游、言情、穿越及都市等多种类型的小说资源，支持全本小说在线阅读与最新章节更新。 https://www.wkntmcb.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.wkntmcb.com/book/48j2f1l/
 - 国师 https://www.wkntmcb.com/book/48j2f1i/
 - 失忆后和死对头有了崽 https://www.wkntmcb.com/book/48j2f1h/
 - 谁都不爱的和亲公主 https://www.wkntmcb.com/book/48j2f1g/
@@ -75,10 +76,10 @@
 - 夫人每天都在伪装 https://www.wkntmcb.com/book/48j2esb/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.wkntmcb.com/book/48j28na/
 - 上个鬼班[无限] https://www.wkntmcb.com/book/48j1up0/
-- 星际团宠小人鱼 https://www.wkntmcb.com/book/48j1tq7/
 - 原配夫人 https://www.wkntmcb.com/book/48j1tnm/
 - 始乱终弃清冷首辅后 https://www.wkntmcb.com/book/48j1tn9/
 - 让暴君Alpha怀崽后 https://www.wkntmcb.com/book/48j1s7d/
+- 我只梦你一页 https://www.wkntmcb.com/book/48j1qkh/
 - 九零重组小家庭 https://www.wkntmcb.com/book/48j1p78/
 - [足球]足坛人生模拟器 https://www.wkntmcb.com/book/48j1mfe/
 - 趁她之危 https://www.wkntmcb.com/book/48j1gn6/
@@ -93,12 +94,9 @@
 - 高调装神，猥琐发育 https://www.wkntmcb.com/book/48j0ini/
 - 起初，我只是想找个冤大头 https://www.wkntmcb.com/book/48j0ga8/
 - [足球]我的游戏存档成真了？！ https://www.wkntmcb.com/book/48j0c82/
-- 寡妇美人模拟器 https://www.wkntmcb.com/book/48j0bua/
 - 让你们无剧本可走（快穿） https://www.wkntmcb.com/book/48j0bp1/
-- 仙门透明人被迫万人迷 https://www.wkntmcb.com/book/48j0b2i/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.wkntmcb.com/book/48j0aud/
 - 直男咒术师的限制级游戏 https://www.wkntmcb.com/book/48j0ar4/
-- 摄政王家的咸鱼夫郎 https://www.wkntmcb.com/book/48j084o/
 - 我与龙傲天寿命共享 https://www.wkntmcb.com/book/48j06vj/
 - 如何正确哄睡暴君 https://www.wkntmcb.com/book/48j036u/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.wkntmcb.com/book/48ivqiv/
@@ -108,6 +106,7 @@
 - 在民俗惊悚片被诸神庇护 https://www.wkntmcb.com/book/48ivipt/
 - 从童星开始杀穿港娱 https://www.wkntmcb.com/book/48ivg5i/
 - 漂亮女配是万人迷［快穿］ https://www.wkntmcb.com/book/48ivdvk/
+- 月亮上的大筒木 https://www.wkntmcb.com/book/48ivdir/
 - 我有一座地下城 https://www.wkntmcb.com/book/48ivd8r/
 - 开局绑定郭奉孝，谋定三国风云 https://www.wkntmcb.com/book/48ivc1r/
 - 同时扮演贵族学院F4和平民校花 https://www.wkntmcb.com/book/48iv9kt/

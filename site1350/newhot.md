@@ -1,7 +1,7 @@
 
 # 书城小说网 - 全站免费无弹窗小说阅读平台
 
-更新时间：2026-09-08 03:40:16
+更新时间：2026-09-09 03:40:15
 
 书城小说网为您提供全站免费的小说阅读服务，支持全本小说在线浏览，承诺全程无广告弹窗干扰，是您理想的网络文学阅读选择。 https://www.shucheng518.com
 
@@ -160,7 +160,6 @@
 - [综武侠]换装之江湖遍地是小号 https://www.shucheng518.com/book/39m14kf/
 - 绑定惊吓系统但对象狂涨好感有救吗 https://www.shucheng518.com/book/39m14k6/
 - 沉烟 https://www.shucheng518.com/book/39m13ro/
-- 沈助理又在隐藏他的超能力 https://www.shucheng518.com/book/39m13n1/
 - 渣攻试图洗白[快穿] https://www.shucheng518.com/book/39m13fo/
 - 忍界有文学 https://www.shucheng518.com/book/39m136t/
 - 普通人的乙女RPG[西幻] https://www.shucheng518.com/book/39m12fk/
@@ -169,7 +168,6 @@
 - 纨绔渣A拒绝入赘长公主府 https://www.shucheng518.com/book/39m121d/
 - 苗疆蛊女模拟器 https://www.shucheng518.com/book/39m120s/
 - 老公是松散生命体 https://www.shucheng518.com/book/39m11ta/
-- 被鬼怪宠爱的漂亮书生 https://www.shucheng518.com/book/39m11o9/
 - 老公是恐怖游戏男主 https://www.shucheng518.com/book/39m11g3/
 - 帝国唯一雄虫长官[虫族] https://www.shucheng518.com/book/39m11ce/
 - 转生星际有了签到系统可我是颗树啊 https://www.shucheng518.com/book/39m11cc/
@@ -234,7 +232,6 @@
 - 都说了我很娇纵了 https://www.shucheng518.com/book/39m0ob7/
 - 请别摘下超能力社恐的耳机 https://www.shucheng518.com/book/39m0o3k/
 - 父皇，我是gay https://www.shucheng518.com/book/39m0nno/
-- 误入反派培养直播后 https://www.shucheng518.com/book/39m0n4c/
 - 蜜蜂膝盖银子弹 https://www.shucheng518.com/book/39m0n46/
 - 掉马后成了奥特带恶人 https://www.shucheng518.com/book/39m0n38/
 - 和灵异片boss谈恋爱 https://www.shucheng518.com/book/39m0n28/
@@ -292,7 +289,6 @@
 - 限时心动 https://www.shucheng518.com/book/39m0hhv/
 - 战死的阿爹回来了[年代] https://www.shucheng518.com/book/39m0hg4/
 - 系统错绑后我成了顶级白富美 https://www.shucheng518.com/book/39m0he7/
-- 炮灰的我该如何上位？ https://www.shucheng518.com/book/39m0hc0/
 - [综武侠]万人迷小姐想要富贵荣华 https://www.shucheng518.com/book/39m0h80/
 - [西汉]我打工给全家改命 https://www.shucheng518.com/book/39m0h72/
 - 捡到一条许愿龙 https://www.shucheng518.com/book/39m0h6v/
@@ -436,8 +432,8 @@
 - 和室友他爸恋爱后 https://www.shucheng518.com/book/39lvb63/
 - 满级竹马从异世穿回来了 https://www.shucheng518.com/book/39lv4jh/
 - 京秋婚约 https://www.shucheng518.com/book/39lu5vm/
-- 阴郁路人不想被喜欢 https://www.shucheng518.com/book/39lu5c4/
 - 直男咒术师的限制级游戏 https://www.shucheng518.com/book/39lu4tl/
+- 魔物堆里的人类幼崽 https://www.shucheng518.com/book/39lu4lg/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1350/index.md)

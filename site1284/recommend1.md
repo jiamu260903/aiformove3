@@ -1,7 +1,7 @@
 
 # 爱你中文网-最热门的免费小说网|全本小说在线阅读
 
-更新时间：2026-09-08 03:35:14
+更新时间：2026-09-09 03:35:17
 
 爱你中文网致力于打造一个无广告无弹窗的在线小说阅读平台，提供包括但不限于玄幻、网游、言情、穿越及都市等多种类型的小说在线阅读服务。网站页面简洁，支持小说最新章节快速更新。 https://www.longjiangstone.com
 
@@ -108,7 +108,6 @@
 - 巨物致富：回乡开钓场 https://www.longjiangstone.com/book/347tjt/
 - 让你们无剧本可走（快穿） https://www.longjiangstone.com/book/347pvr/
 - [足球]我的游戏存档成真了？！ https://www.longjiangstone.com/book/347pjt/
-- 寡妇美人模拟器 https://www.longjiangstone.com/book/347ok3/
 - 趁她之危 https://www.longjiangstone.com/book/347n34/
 - 起初，我只是想找个冤大头 https://www.longjiangstone.com/book/347kjg/
 - 摄政王家的咸鱼夫郎 https://www.longjiangstone.com/book/347gcb/

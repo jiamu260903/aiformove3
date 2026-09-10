@@ -1,11 +1,12 @@
 
 # 阅读大文学 - 弘扬华夏文化的综合小说阅读平台
 
-更新时间：2026-09-08 03:48:14
+更新时间：2026-09-09 03:48:31
 
 阅读大文学致力于弘扬华夏文化，提供丰富的小说资源供免费阅读，涵盖但不限于古典文学、现代文学、当代文学及各类流行小说如言情、都市、玄幻等。 https://www.yuedu188.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.yuedu188.com/book/1egriea/
 - 人，今晚土拨鼠站岗 https://www.yuedu188.com/book/1egrie7/
 - 魔改剧本后我爆火了[娱乐圈] https://www.yuedu188.com/book/1egrie4/
 - 我只想上京赶考啊[聊斋] https://www.yuedu188.com/book/1egrie3/
@@ -81,17 +82,16 @@
 - 昭暮 https://www.yuedu188.com/book/1egqapn/
 - 始乱终弃清冷首辅后 https://www.yuedu188.com/book/1egq868/
 - 原配夫人 https://www.yuedu188.com/book/1egq82e/
-- 星际团宠小人鱼 https://www.yuedu188.com/book/1egq7tn/
 - 十九世纪贵族厨房（美食） https://www.yuedu188.com/book/1egq7re/
 - 高调装神，猥琐发育 https://www.yuedu188.com/book/1egq124/
 - 完蛋！被恨孕男包围了！ https://www.yuedu188.com/book/1egq0vg/
+- 我只梦你一页 https://www.yuedu188.com/book/1egq0rv/
 - 食明 https://www.yuedu188.com/book/1egptdc/
 - 诡话第一boss https://www.yuedu188.com/book/1egpq7v/
 - 专业女配的自我修养（快穿） https://www.yuedu188.com/book/1egpmp1/
 - 老实人妻，但顶级魅魔 https://www.yuedu188.com/book/1egpmj3/
 - [足球]我的游戏存档成真了？！ https://www.yuedu188.com/book/1egpir5/
 - 让你们无剧本可走（快穿） https://www.yuedu188.com/book/1egpg3s/
-- 摄政王家的咸鱼夫郎 https://www.yuedu188.com/book/1egpf06/
 - 我与龙傲天寿命共享 https://www.yuedu188.com/book/1egpdpe/
 - 如何正确哄睡暴君 https://www.yuedu188.com/book/1egpcjo/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.yuedu188.com/book/1egp60s/
@@ -104,6 +104,7 @@
 - 同时扮演贵族学院F4和平民校花 https://www.yuedu188.com/book/4kuk8b/
 - 咦？我爸爸复活啦 https://www.yuedu188.com/book/4kuhs5/
 - 从童星开始杀穿港娱 https://www.yuedu188.com/book/4kuhrd/
+- 月亮上的大筒木 https://www.yuedu188.com/book/4kuhb6/
 - 韩团绿卡不想忍了 https://www.yuedu188.com/book/4kugeu/
 - 路人攻了主角攻［快穿］ https://www.yuedu188.com/book/4kuge3/
 - 开局绑定郭奉孝，谋定三国风云 https://www.yuedu188.com/book/4kueuc/
@@ -156,10 +157,8 @@
 - 我是唯一地上神国 https://www.yuedu188.com/book/esdjm/
 - 成为养成系练习生后 https://www.yuedu188.com/book/esdh1/
 - 六零之成了卷王的妹妹 https://www.yuedu188.com/book/esdfv/
-- 寡妇美人模拟器 https://www.yuedu188.com/book/1flbk/
 - 巨物致富：回乡开钓场 https://www.yuedu188.com/book/1fkuf/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.yuedu188.com/book/1fkso/
-- 仙门透明人被迫万人迷 https://www.yuedu188.com/book/1fkrn/
 - 清澈女大的六零年代 https://www.yuedu188.com/book/1fkn3/
 - 老公对不起 https://www.yuedu188.com/book/4ofp/
 ## 相关内容

@@ -1,7 +1,7 @@
 
 # 笔下文学-无广告免费在线小说阅读网站
 
-更新时间：2026-09-08 03:29:10
+更新时间：2026-09-09 03:29:17
 
 笔下文学提供了一个完全免费的小说在线阅读与下载平台。我们承诺给用户一个无广告、无弹窗干扰的阅读环境，让每位读者都能享受纯净舒适的阅读体验。 https://www.fshxjd.com
 
@@ -110,7 +110,6 @@
 - 万人迷绑定美强惨系统后 https://www.fshxjd.com/book/74i1hhe/
 - 当抠搜总裁被人读心[穿书] https://www.fshxjd.com/book/74i1h51/
 - [综英美]怎么就蝙蝠崽文学了 https://www.fshxjd.com/book/74i1gvv/
-- 阴郁路人不想被喜欢 https://www.fshxjd.com/book/74i1gu9/
 - 我在异世当妖精 https://www.fshxjd.com/book/74i1gha/
 - 好巧，我爸也是狗血文男主 https://www.fshxjd.com/book/74i1g4m/
 - 乱世奶嗝受 https://www.fshxjd.com/book/74i1esi/
@@ -188,7 +187,6 @@
 - 人设抽卡中[快穿] https://www.fshxjd.com/book/74i0v7b/
 - 神经病又不影响我谈恋爱[快穿] https://www.fshxjd.com/book/74i0v73/
 - [综武侠]与剑有缘 https://www.fshxjd.com/book/74i0v4m/
-- 沈助理又在隐藏他的超能力 https://www.fshxjd.com/book/74i0uov/
 - 转生星际有了签到系统可我是颗树啊 https://www.fshxjd.com/book/74i0ukj/
 - 老公是恐怖游戏男主 https://www.fshxjd.com/book/74i0ujm/
 - 逃妾 https://www.fshxjd.com/book/74i0uht/
@@ -264,7 +262,6 @@
 - 当魔修反派穿成治愈系[穿书] https://www.fshxjd.com/book/74i0ik7/
 - 绝世美人靠脸躺赢[快穿] https://www.fshxjd.com/book/74i0ij9/
 - 退圈后，我靠职场综艺火爆全网 https://www.fshxjd.com/book/74i0ihk/
-- 误入反派培养直播后 https://www.fshxjd.com/book/74i0igm/
 - 在立海大玩网球模拟器 https://www.fshxjd.com/book/74i0ib4/
 - 小亲王他不是吉祥物 https://www.fshxjd.com/book/74i0iat/
 - 小傻子［无限］ https://www.fshxjd.com/book/74i0i0n/
@@ -305,7 +302,6 @@
 - 魔尊他邪得发正 https://www.fshxjd.com/book/74i0eq5/
 - 冷傲上司绑定娇妻系统后 https://www.fshxjd.com/book/74i0elu/
 - 娇婚惯养 https://www.fshxjd.com/book/74i0eiu/
-- 被鬼怪宠爱的漂亮书生 https://www.fshxjd.com/book/74i0eec/
 - 女帝起家前录 https://www.fshxjd.com/book/74i0ebn/
 - 摄政长公主穿成炮灰女配[七零] https://www.fshxjd.com/book/74i0e4s/
 - 书穿男主给反派卖萌苟命 https://www.fshxjd.com/book/74i0e4r/
@@ -343,7 +339,6 @@
 - 关于我想和太宰当一辈子的挚友可是他怎么居然想和我结婚这件事 https://www.fshxjd.com/book/74i0buu/
 - 龙傲天未婚妻不退婚了 https://www.fshxjd.com/book/74i0btd/
 - 软饭的正确吃法[快穿] https://www.fshxjd.com/book/74i0bsu/
-- 炮灰的我该如何上位？ https://www.fshxjd.com/book/74i0bs8/
 - 三岁崽崽带龙王爸爸上综艺爆红 https://www.fshxjd.com/book/74i0bpl/
 - 养个诡异当老婆 https://www.fshxjd.com/book/74i0blb/
 - 樋口干部不干了 https://www.fshxjd.com/book/74i0bjv/
@@ -424,6 +419,7 @@
 - 战死的阿爹回来了[年代] https://www.fshxjd.com/book/74hvqcp/
 - 刀子精手心的人偶崽崽 https://www.fshxjd.com/book/74hvptk/
 - [综英美]让我统治哥谭！！！ https://www.fshxjd.com/book/74hvlbg/
+- 魔物堆里的人类幼崽 https://www.fshxjd.com/book/74hvk0h/
 - 好巧，你也是妹控？[综崩铁] https://www.fshxjd.com/book/74hvjcq/
 - 欢迎来到重生点 https://www.fshxjd.com/book/74hvi20/
 - 好兄弟暴富后非要跟我结婚 https://www.fshxjd.com/book/74hvhfr/
