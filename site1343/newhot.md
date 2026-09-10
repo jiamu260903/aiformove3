@@ -1,7 +1,7 @@
 
 # 左叶小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-09-08 03:37:04
+更新时间：2026-09-09 03:37:06
 
 左叶小说网为读者提供了一个丰富多样的小说阅读体验，汇集了各类热门、经典以及新作小说资源，是书友们寻找好书的理想之地。 https://www.pusytgp.com
 
@@ -106,7 +106,6 @@
 - 好巧，我爸也是狗血文男主 https://www.pusytgp.com/book/7pbmq61/
 - 嗲精人设走偏啦［穿书］ https://www.pusytgp.com/book/7pbmq2s/
 - [综英美]怎么就蝙蝠崽文学了 https://www.pusytgp.com/book/7pbmpov/
-- 阴郁路人不想被喜欢 https://www.pusytgp.com/book/7pbmpbn/
 - 当抠搜总裁被人读心[穿书] https://www.pusytgp.com/book/7pbmp22/
 - 万人迷绑定美强惨系统后 https://www.pusytgp.com/book/7pbmonl/
 - 七零年代闺蜜团的奋斗 https://www.pusytgp.com/book/7pbmoe9/
@@ -176,7 +175,6 @@
 - 我在原始种田 https://www.pusytgp.com/book/7pbm97p/
 - 直男大佬误闯生子文片场 https://www.pusytgp.com/book/7pbm978/
 - 帝国唯一雄虫长官[虫族] https://www.pusytgp.com/book/7pbm976/
-- 沈助理又在隐藏他的超能力 https://www.pusytgp.com/book/7pbm95b/
 - 老公是恐怖游戏男主 https://www.pusytgp.com/book/7pbm8um/
 - 夏油弟弟在立海大 https://www.pusytgp.com/book/7pbm8re/
 - 逃妾 https://www.pusytgp.com/book/7pbm8qi/
@@ -267,7 +265,6 @@
 - 退圈后，我靠职场综艺火爆全网 https://www.pusytgp.com/book/7pblqqn/
 - 三代单传妈宝女[七零] https://www.pusytgp.com/book/7pblqq1/
 - 皇后守则[快穿] https://www.pusytgp.com/book/7pblqpk/
-- 误入反派培养直播后 https://www.pusytgp.com/book/7pblqoq/
 - [综英美]穿越后和小红鸟灵魂互换了 https://www.pusytgp.com/book/7pblqi8/
 - 奶奶蛋糕店[美食] https://www.pusytgp.com/book/7pblqdt/
 - 好好做1 https://www.pusytgp.com/book/7pblqd9/
@@ -308,7 +305,6 @@
 - 冷傲上司绑定娇妻系统后 https://www.pusytgp.com/book/7pbln5m/
 - 摄政长公主穿成炮灰女配[七零] https://www.pusytgp.com/book/7pbln0b/
 - 瓮中惊春 https://www.pusytgp.com/book/7pblmsf/
-- 被鬼怪宠爱的漂亮书生 https://www.pusytgp.com/book/7pblmrr/
 - 这死beta老说我们不可能 https://www.pusytgp.com/book/7pblmqe/
 - 书穿男主给反派卖萌苟命 https://www.pusytgp.com/book/7pblmpa/
 - [综武侠]有间民宿 https://www.pusytgp.com/book/7pblmok/
@@ -351,7 +347,6 @@
 - [崩铁]自恋值拉满穿越被水仙了 https://www.pusytgp.com/book/7pbljsm/
 - 运动番主角模拟器 https://www.pusytgp.com/book/7pbljsl/
 - 苦咒琉璃 https://www.pusytgp.com/book/7pbljr7/
-- 炮灰的我该如何上位？ https://www.pusytgp.com/book/7pbljpr/
 - 贵族学院F4中的第四人 https://www.pusytgp.com/book/7pbljnh/
 - 丧尸闻了闻你的恋爱脑 https://www.pusytgp.com/book/7pbljf3/
 - 穿进忍界后每天迫害黑绝 https://www.pusytgp.com/book/7pbljf0/
@@ -426,6 +421,7 @@
 - [综英美]让我统治哥谭！！！ https://www.pusytgp.com/book/7pbkumb/
 - 好巧，你也是妹控？[综崩铁] https://www.pusytgp.com/book/7pbksfn/
 - 欢迎来到重生点 https://www.pusytgp.com/book/7pbks23/
+- 魔物堆里的人类幼崽 https://www.pusytgp.com/book/7pbkrgf/
 - 求生游戏：当邪神成为生活玩家后 https://www.pusytgp.com/book/7pbkpma/
 - 关于我虚构了一个男友这件事 https://www.pusytgp.com/book/7pbkpie/
 - 好兄弟暴富后非要跟我结婚 https://www.pusytgp.com/book/7pbko4m/

@@ -1,11 +1,12 @@
 
 # 耽美小说网 - 最热门的耽美小说在线阅读
 
-更新时间：2026-09-08 03:36:33
+更新时间：2026-09-09 03:36:35
 
 耽美小说网是一个广大书友喜欢的小说网，免费为您提供热门耽美小说、女生小说、都市言情小说无弹窗在线阅读和txt下载。 https://www.nvwagen.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.nvwagen.com/book/8u4jgii/
 - 在年代文里跑运输 https://www.nvwagen.com/book/8u4j512/
 - 死遁APP https://www.nvwagen.com/book/8u4j511/
 - [全职高手]治疗什么的不干了！ https://www.nvwagen.com/book/8u4j50p/
@@ -67,7 +68,6 @@
 - ［西幻］RPG就不要谈恋爱了吧！ https://www.nvwagen.com/book/8u4j4s6/
 - 起初，我只是想找个冤大头 https://www.nvwagen.com/book/8u4j4n5/
 - 天幕今天也在直播我搞基建 https://www.nvwagen.com/book/8u4j4m6/
-- 仙门透明人被迫万人迷 https://www.nvwagen.com/book/8u4j0ak/
 - 上个鬼班[无限] https://www.nvwagen.com/book/8u4itdp/
 - [足球]足坛人生模拟器 https://www.nvwagen.com/book/8u4isto/
 - 让暴君Alpha怀崽后 https://www.nvwagen.com/book/8u4inir/
@@ -83,7 +83,6 @@
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.nvwagen.com/book/8u4hord/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.nvwagen.com/book/8u4hmvf/
 - [足球]我的游戏存档成真了？！ https://www.nvwagen.com/book/8u4hmbm/
-- 摄政王家的咸鱼夫郎 https://www.nvwagen.com/book/8u4hkqr/
 - 如何正确哄睡暴君 https://www.nvwagen.com/book/8u4hkd9/
 - 死遁的亡夫们都回来了 https://www.nvwagen.com/book/8u4hjjj/
 - 让你们无剧本可走（快穿） https://www.nvwagen.com/book/8u4hhfq/
@@ -97,6 +96,7 @@
 - 死对头又在挑衅我 https://www.nvwagen.com/book/8u4h1h4/
 - 沈助理又在隐藏他的超能力 https://www.nvwagen.com/book/8u4h1gk/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.nvwagen.com/book/8u4h12r/
+- 月亮上的大筒木 https://www.nvwagen.com/book/8u4h0ft/
 - 开局绑定郭奉孝，谋定三国风云 https://www.nvwagen.com/book/8u4gvqm/
 - 如何嫁给当朝首辅 https://www.nvwagen.com/book/8u4gr98/
 - 直男咒术师的限制级游戏 https://www.nvwagen.com/book/8u4goa3/
@@ -112,6 +112,7 @@
 - [足球]小小鸟堂堂来袭 https://www.nvwagen.com/book/8u4gedt/
 - 我187了，你敢见我吗？ https://www.nvwagen.com/book/8u4gdq3/
 - 和姐姐的前女友欢愉后 https://www.nvwagen.com/book/8u4gart/
+- 我只梦你一页 https://www.nvwagen.com/book/8u4g6dc/
 - 心动嫌疑人 https://www.nvwagen.com/book/8u4g266/
 - 等我吃腻了再倒闭可以吗 https://www.nvwagen.com/book/8u4g19s/
 - 大唐守军家属 https://www.nvwagen.com/book/8u4g0vv/
@@ -137,7 +138,6 @@
 - 爱好和平但狂拆机甲 https://www.nvwagen.com/book/8u4f46i/
 - 你让魔王组建勇者小队？ https://www.nvwagen.com/book/8u4f1on/
 - [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.nvwagen.com/book/8u4e4dp/
-- 寡妇美人模拟器 https://www.nvwagen.com/book/8u4e4bq/
 - 巨物致富：回乡开钓场 https://www.nvwagen.com/book/8u4e47u/
 - 十九世纪贵族厨房（美食） https://www.nvwagen.com/book/8u4e41v/
 - 卷王后妈，八零养娃 https://www.nvwagen.com/book/8u4e41l/
@@ -150,7 +150,6 @@
 - 日化人生[科研] https://www.nvwagen.com/book/8u4e35d/
 - 原配夫人 https://www.nvwagen.com/book/8u4e32a/
 - 清澈女大的六零年代 https://www.nvwagen.com/book/8u4e2uq/
-- 星际团宠小人鱼 https://www.nvwagen.com/book/8u4e2tj/
 - 高调装神，猥琐发育 https://www.nvwagen.com/book/8u4e2sf/
 - 95美国贵族高中模拟 https://www.nvwagen.com/book/8u4e2ia/
 - 全民求生:从小木屋到魔法农场 https://www.nvwagen.com/book/8u4e2f1/

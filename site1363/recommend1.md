@@ -1,11 +1,12 @@
 
 # 无瑕天涯在线书库 - 免费小说在线阅读
 
-更新时间：2026-09-08 03:45:17
+更新时间：2026-09-09 03:45:25
 
 无瑕天涯在线书库自2003年创立至今，致力于提供包括武侠、言情、科幻等多种类型的小说免费在线阅读服务。页面设计简洁，持续优化用户体验，旨在为读者带来更好的阅读享受。 https://www.wuxia688.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.wuxia688.com/book/2bjrga2/
 - 在中世纪做奴隶 https://www.wuxia688.com/book/2bjrg9s/
 - 好心的俄罗斯人 https://www.wuxia688.com/book/2bjrg9o/
 - 怨明月不独照 https://www.wuxia688.com/book/2bjrg9m/
@@ -82,15 +83,14 @@
 - 始乱终弃清冷首辅后 https://www.wuxia688.com/book/2bjq4gc/
 - 原配夫人 https://www.wuxia688.com/book/2bjq4du/
 - 十九世纪贵族厨房（美食） https://www.wuxia688.com/book/2bjq4d4/
-- 星际团宠小人鱼 https://www.wuxia688.com/book/2bjq4bv/
 - 高调装神，猥琐发育 https://www.wuxia688.com/book/2bjptcu/
 - 完蛋！被恨孕男包围了！ https://www.wuxia688.com/book/2bjpt9g/
+- 我只梦你一页 https://www.wuxia688.com/book/2bjpt72/
 - 食明 https://www.wuxia688.com/book/2bjprbk/
 - 诡话第一boss https://www.wuxia688.com/book/2bjpo20/
 - 专业女配的自我修养（快穿） https://www.wuxia688.com/book/2bjplch/
 - 老实人妻，但顶级魅魔 https://www.wuxia688.com/book/2bjpkp7/
 - [足球]我的游戏存档成真了？！ https://www.wuxia688.com/book/2bjpgqr/
-- 摄政王家的咸鱼夫郎 https://www.wuxia688.com/book/2bjpe6o/
 - 我与龙傲天寿命共享 https://www.wuxia688.com/book/2bjpdv5/
 - 让你们无剧本可走（快穿） https://www.wuxia688.com/book/2bjpbtq/
 - 如何正确哄睡暴君 https://www.wuxia688.com/book/2bjpaj1/
@@ -105,6 +105,7 @@
 - 咦？我爸爸复活啦 https://www.wuxia688.com/book/2bjomma/
 - 同时扮演贵族学院F4和平民校花 https://www.wuxia688.com/book/2bjolct/
 - 从童星开始杀穿港娱 https://www.wuxia688.com/book/2bjokfb/
+- 月亮上的大筒木 https://www.wuxia688.com/book/2bjojn1/
 - 开局绑定郭奉孝，谋定三国风云 https://www.wuxia688.com/book/2bjojeu/
 - 路人攻了主角攻［快穿］ https://www.wuxia688.com/book/2bjoj2t/
 - 苏娘子汴京摆摊日常（美食） https://www.wuxia688.com/book/2bjogg1/
@@ -143,11 +144,9 @@
 - 权宋一只统 https://www.wuxia688.com/book/2bjn1n1/
 - 爱好和平但狂拆机甲 https://www.wuxia688.com/book/2bjmr4n/
 - 我是唯一地上神国 https://www.wuxia688.com/book/2bjlv5n/
-- 仙门透明人被迫万人迷 https://www.wuxia688.com/book/2bjlulr/
 - 95美国贵族高中模拟 https://www.wuxia688.com/book/2bjluga/
 - [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.wuxia688.com/book/2bjlug3/
 - 六零之成了卷王的妹妹 https://www.wuxia688.com/book/2bjlufm/
-- 寡妇美人模拟器 https://www.wuxia688.com/book/2bjluai/
 - 天幕今天也在直播我搞基建 https://www.wuxia688.com/book/2bjlu8j/
 - 日化人生[科研] https://www.wuxia688.com/book/2bjlu7h/
 - 巨物致富：回乡开钓场 https://www.wuxia688.com/book/2bjlu62/

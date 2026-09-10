@@ -1,11 +1,12 @@
 
 # 酷匠小说网 - 专注手机阅读，免费小说在线阅读及下载
 
-更新时间：2026-09-08 03:49:03
+更新时间：2026-09-09 03:49:19
 
 酷匠小说网提供最新免费小说在线阅读及下载。包括都市小说，玄幻小说，言情小说等。精致排版，每天更新，打造极致阅读体验，让您静享“精品阅读时光”。 https://www.yumin66.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.yumin66.com/book/5q5nen/
 - 末世八年春，游戏降临 https://www.yumin66.com/book/5q5nej/
 - 暗恋的价格是三万块 https://www.yumin66.com/book/5q5nei/
 - 等我吃腻了再倒闭可以吗 https://www.yumin66.com/book/5q5neh/
@@ -80,10 +81,10 @@
 - 病美人重生日记 https://www.yumin66.com/book/5q5nca/
 - [封神]圣人生欲 https://www.yumin66.com/book/5q5n5t/
 - 原配夫人 https://www.yumin66.com/book/5q5n5b/
-- 星际团宠小人鱼 https://www.yumin66.com/book/5q5n58/
 - 十九世纪贵族厨房（美食） https://www.yumin66.com/book/5q5n54/
 - 始乱终弃清冷首辅后 https://www.yumin66.com/book/5q5n51/
 - 高调装神，猥琐发育 https://www.yumin66.com/book/5q5n4h/
+- 我只梦你一页 https://www.yumin66.com/book/5q5n4f/
 - 直男咒术师的限制级游戏 https://www.yumin66.com/book/5q5n44/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.yumin66.com/book/5q5n26/
 - 六零之成了卷王的妹妹 https://www.yumin66.com/book/5q5lni/
@@ -100,7 +101,6 @@
 - 如何嫁给当朝首辅 https://www.yumin66.com/book/5q2upr/
 - 食明 https://www.yumin66.com/book/5q2uee/
 - 诡话第一boss https://www.yumin66.com/book/5q2rb1/
-- 仙门透明人被迫万人迷 https://www.yumin66.com/book/5q2n47/
 - 让暴君Alpha怀崽后 https://www.yumin66.com/book/5q2lp4/
 - 日化人生[科研] https://www.yumin66.com/book/5q2j5g/
 - 专业女配的自我修养（快穿） https://www.yumin66.com/book/5q2isd/
@@ -109,8 +109,6 @@
 - [足球]我的游戏存档成真了？！ https://www.yumin66.com/book/5q2e4j/
 - 趁她之危 https://www.yumin66.com/book/5q2ati/
 - 让你们无剧本可走（快穿） https://www.yumin66.com/book/5q2a4r/
-- 寡妇美人模拟器 https://www.yumin66.com/book/5q29ji/
-- 摄政王家的咸鱼夫郎 https://www.yumin66.com/book/5q243a/
 - 起初，我只是想找个冤大头 https://www.yumin66.com/book/5q23g2/
 - 死遁的亡夫们都回来了 https://www.yumin66.com/book/im1gj/
 - 天幕今天也在直播我搞基建 https://www.yumin66.com/book/iltao/
@@ -162,6 +160,7 @@
 - 苏娘子汴京摆摊日常（美食） https://www.yumin66.com/book/1rhdk/
 - 清澈女大的六零年代 https://www.yumin66.com/book/5upa/
 - 完蛋！被恨孕男包围了！ https://www.yumin66.com/book/5up5/
+- 月亮上的大筒木 https://www.yumin66.com/book/5ukj/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1292/index.md)

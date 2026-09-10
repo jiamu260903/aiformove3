@@ -1,11 +1,12 @@
 
 # 科幻188文学网-最新章节全文小说免费阅读
 
-更新时间：2026-09-08 03:33:16
+更新时间：2026-09-09 03:33:19
 
 科幻188文学网给广大网友提供最好的小说阅读服务，全站小说均可免费阅读且无任何弹窗干扰。这里是你寻找最新最全小说内容的理想之地。 https://www.kehuan188.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.kehuan188.com/book/56q39i4/
 - 病美人重生日记 https://www.kehuan188.com/book/56q39hv/
 - 魔尊闭关十年连生十一子？！ https://www.kehuan188.com/book/56q39hu/
 - 好心的俄罗斯人 https://www.kehuan188.com/book/56q39hl/
@@ -79,18 +80,17 @@
 - 在卷王和废物之间选择做吉祥物 https://www.kehuan188.com/book/56q26rd/
 - 从维多利亚时代开始 https://www.kehuan188.com/book/56q23mu/
 - 昭暮 https://www.kehuan188.com/book/56q21j8/
-- 星际团宠小人鱼 https://www.kehuan188.com/book/56q1tri/
 - 十九世纪贵族厨房（美食） https://www.kehuan188.com/book/56q1tlu/
 - 始乱终弃清冷首辅后 https://www.kehuan188.com/book/56q1tin/
 - 原配夫人 https://www.kehuan188.com/book/56q1tij/
 - 完蛋！被恨孕男包围了！ https://www.kehuan188.com/book/56q1mmn/
+- 我只梦你一页 https://www.kehuan188.com/book/56q1mmc/
 - 高调装神，猥琐发育 https://www.kehuan188.com/book/56q1mkc/
 - 食明 https://www.kehuan188.com/book/56q1kg7/
 - 诡话第一boss https://www.kehuan188.com/book/56q1h7p/
 - 专业女配的自我修养（快穿） https://www.kehuan188.com/book/56q1f0h/
 - 老实人妻，但顶级魅魔 https://www.kehuan188.com/book/56q1e0v/
 - [足球]我的游戏存档成真了？！ https://www.kehuan188.com/book/56q1ab1/
-- 摄政王家的咸鱼夫郎 https://www.kehuan188.com/book/56q16nf/
 - 我与龙傲天寿命共享 https://www.kehuan188.com/book/56q16b7/
 - 让你们无剧本可走（快穿） https://www.kehuan188.com/book/56q15bo/
 - 如何正确哄睡暴君 https://www.kehuan188.com/book/56q133p/
@@ -105,6 +105,7 @@
 - 同时扮演贵族学院F4和平民校花 https://www.kehuan188.com/book/56q0f1c/
 - 咦？我爸爸复活啦 https://www.kehuan188.com/book/56q0eqd/
 - 从童星开始杀穿港娱 https://www.kehuan188.com/book/56q0e3o/
+- 月亮上的大筒木 https://www.kehuan188.com/book/56q0cm1/
 - 开局绑定郭奉孝，谋定三国风云 https://www.kehuan188.com/book/56q0c0m/
 - 路人攻了主角攻［快穿］ https://www.kehuan188.com/book/56q0b89/
 - 我有一座地下城 https://www.kehuan188.com/book/56q0a4f/
@@ -143,10 +144,8 @@
 - 权宋一只统 https://www.kehuan188.com/book/56puonb/
 - 爱好和平但狂拆机甲 https://www.kehuan188.com/book/56puk0m/
 - 清澈女大的六零年代 https://www.kehuan188.com/book/56pto5i/
-- 寡妇美人模拟器 https://www.kehuan188.com/book/56ptnv5/
 - 直男咒术师的限制级游戏 https://www.kehuan188.com/book/56ptnln/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.kehuan188.com/book/56ptnga/
-- 仙门透明人被迫万人迷 https://www.kehuan188.com/book/56ptn9j/
 - [娱乐圈]过分美丽的她 https://www.kehuan188.com/book/56ptn62/
 - 天幕今天也在直播我搞基建 https://www.kehuan188.com/book/56ptn47/
 - 我是唯一地上神国 https://www.kehuan188.com/book/56ptmvc/

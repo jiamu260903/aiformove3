@@ -1,7 +1,7 @@
 
 # 宁波慈绿农垦小说-全本小说最值得收藏的绿色无弹窗免费小说阅读网
 
-更新时间：2026-09-08 03:36:02
+更新时间：2026-09-09 03:36:04
 
 宁波慈绿农垦小说提供全本网文爱好者一个纯净、安全、高质量的免费小说阅读环境，支持最新章节在线阅读，所有内容均为绿色无弹窗且保证无错字。 https://www.nbcxnk.com
 
@@ -34,7 +34,6 @@
 - 娇气点怎么啦？［快穿］ https://www.nbcxnk.com/book/2ss0kt5/
 - [崩铁]这丰饶孽物我当定了！ https://www.nbcxnk.com/book/2ss0k4s/
 - 不义世界都是我马甲[综英美] https://www.nbcxnk.com/book/2ss0k0a/
-- 阴郁路人不想被喜欢 https://www.nbcxnk.com/book/2ss0iln/
 - 我有嘉宾 https://www.nbcxnk.com/book/2ss0ig7/
 - [综武侠]风流 https://www.nbcxnk.com/book/2ss0i95/
 - 孤独症崽崽穿越到狗血爽文里[穿书] https://www.nbcxnk.com/book/2ss0h6q/
@@ -74,7 +73,6 @@
 - 五美元在哥谭活一月 https://www.nbcxnk.com/book/2srv7t6/
 - 女装生崽，娃爹宇智波 https://www.nbcxnk.com/book/2srv7nb/
 - 作为甚尔亡妻的我变成触手了！ https://www.nbcxnk.com/book/2srv78r/
-- 被鬼怪宠爱的漂亮书生 https://www.nbcxnk.com/book/2srv6o4/
 - 我在虫族扮绿茶吃老虎 https://www.nbcxnk.com/book/2srv6nm/
 - bl世界的路人不想被掰弯 https://www.nbcxnk.com/book/2srv6j2/
 - 我有一座城 https://www.nbcxnk.com/book/2srv5vq/
@@ -173,7 +171,6 @@
 - 逃妾 https://www.nbcxnk.com/book/2srugvm/
 - 苗疆蛊女模拟器 https://www.nbcxnk.com/book/2srugmb/
 - 沉烟 https://www.nbcxnk.com/book/2srugip/
-- 沈助理又在隐藏他的超能力 https://www.nbcxnk.com/book/2srughg/
 - [全职高手]小船 https://www.nbcxnk.com/book/2srug6j/
 - 普通人的乙女RPG[西幻] https://www.nbcxnk.com/book/2srug4f/
 - 忍界有文学 https://www.nbcxnk.com/book/2srufv8/
@@ -276,7 +273,6 @@
 - 人在综漫，但崩铁马甲 https://www.nbcxnk.com/book/2sru1n5/
 - 三代单传妈宝女[七零] https://www.nbcxnk.com/book/2sru1iq/
 - 小傻子［无限］ https://www.nbcxnk.com/book/2sru1i9/
-- 炮灰的我该如何上位？ https://www.nbcxnk.com/book/2sru1hb/
 - 恶毒女配是绝色美人[快穿] https://www.nbcxnk.com/book/2sru19c/
 - 如何在玛丽苏包围圈中生存 https://www.nbcxnk.com/book/2sru174/
 - [综英美]穿越后和小红鸟灵魂互换了 https://www.nbcxnk.com/book/2sru172/
@@ -432,6 +428,7 @@
 - 欢迎来到重生点 https://www.nbcxnk.com/book/2srtibi/
 - 柯学剧本杀，但恋爱流打法 https://www.nbcxnk.com/book/2srthgr/
 - 人偶游戏 https://www.nbcxnk.com/book/2srthb5/
+- 魔物堆里的人类幼崽 https://www.nbcxnk.com/book/2srth23/
 - 和港城大小姐先婚后爱了 https://www.nbcxnk.com/book/2srtg3o/
 - 好巧，你也是妹控？[综崩铁] https://www.nbcxnk.com/book/2srtful/
 - 好兄弟暴富后非要跟我结婚 https://www.nbcxnk.com/book/2srtf6q/
@@ -445,7 +442,6 @@
 - 丧尸老婆喂养日记 https://www.nbcxnk.com/book/2srskeh/
 - 被四皇错看成小动物后 https://www.nbcxnk.com/book/2srrk7l/
 - 高调装神，猥琐发育 https://www.nbcxnk.com/book/2srrj6v/
-- 误入反派培养直播后 https://www.nbcxnk.com/book/2srrj4e/
 - 你，后室管理员 https://www.nbcxnk.com/book/2srrj1p/
 - [封神]圣人生欲 https://www.nbcxnk.com/book/2srri6c/
 - 朕看上的少年是侠女 https://www.nbcxnk.com/book/2srrhq3/

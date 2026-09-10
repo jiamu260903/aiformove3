@@ -1,7 +1,7 @@
 
 # 科幻读书-免费小说阅读|言情小说|小说排行榜|全本完本小说下载
 
-更新时间：2026-09-08 03:33:31
+更新时间：2026-09-09 03:33:34
 
 科幻读书提供海量完结全本小说在线阅读服务，涵盖言情、都市、耽美、穿越等多种类型，并定期更新连载章节及发布最新小说排行榜单。支持有声小说推荐与下载。 https://www.kehuan918.com
 
@@ -164,12 +164,10 @@
 - 沉烟 https://www.kehuan918.com/book/1d53t9a/
 - 苗疆蛊女模拟器 https://www.kehuan918.com/book/1d53t6u/
 - 渣攻试图洗白[快穿] https://www.kehuan918.com/book/1d53slr/
-- 沈助理又在隐藏他的超能力 https://www.kehuan918.com/book/1d53se7/
 - 普通人的乙女RPG[西幻] https://www.kehuan918.com/book/1d53sbs/
 - [全职高手]小船 https://www.kehuan918.com/book/1d53sb5/
 - 忍界有文学 https://www.kehuan918.com/book/1d53s7v/
 - 老公是松散生命体 https://www.kehuan918.com/book/1d53s5q/
-- 被鬼怪宠爱的漂亮书生 https://www.kehuan918.com/book/1d53rdl/
 - 微臣怜惜公主 https://www.kehuan918.com/book/1d53qtl/
 - 影后是个外星人[娱乐圈] https://www.kehuan918.com/book/1d53qte/
 - 夏油弟弟在立海大 https://www.kehuan918.com/book/1d53qqt/
@@ -236,7 +234,6 @@
 - 吃瓜也能整顿豪门？ https://www.kehuan918.com/book/1d53hih/
 - 父皇，我是gay https://www.kehuan918.com/book/1d53h9t/
 - 少女妄想症 https://www.kehuan918.com/book/1d53h9n/
-- 误入反派培养直播后 https://www.kehuan918.com/book/1d53h7j/
 - 反派的病弱白月光重生了 https://www.kehuan918.com/book/1d53gtj/
 - 荒谬神父是个渣 https://www.kehuan918.com/book/1d53go1/
 - 强爱清冷O后她上瘾了[快穿] https://www.kehuan918.com/book/1d53gke/
@@ -296,7 +293,6 @@
 - 侦探小说的大忌[福尔摩斯] https://www.kehuan918.com/book/1d53aq2/
 - [西汉]我打工给全家改命 https://www.kehuan918.com/book/1d53anv/
 - 如何在玛丽苏包围圈中生存 https://www.kehuan918.com/book/1d53an4/
-- 炮灰的我该如何上位？ https://www.kehuan918.com/book/1d53akt/
 - 被四皇错看成小动物后 https://www.kehuan918.com/book/1d53acd/
 - 捡到一条许愿龙 https://www.kehuan918.com/book/1d53a3e/
 - 主角对你极度痴迷 https://www.kehuan918.com/book/1d53a1u/
@@ -436,7 +432,7 @@
 - 和室友他爸恋爱后 https://www.kehuan918.com/book/1d524p8/
 - 满级竹马从异世穿回来了 https://www.kehuan918.com/book/1d5204b/
 - 直男咒术师的限制级游戏 https://www.kehuan918.com/book/1d50vp0/
-- 阴郁路人不想被喜欢 https://www.kehuan918.com/book/1d50u95/
+- 魔物堆里的人类幼崽 https://www.kehuan918.com/book/1d50vj2/
 - 京秋婚约 https://www.kehuan918.com/book/1d50u58/
 ## 相关内容
 - [README](/README.md)

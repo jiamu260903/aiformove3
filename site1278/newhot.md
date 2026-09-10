@@ -1,7 +1,7 @@
 
 # 紫玉海小说 - 好看的言情小说推荐,热门小说在线阅读
 
-更新时间：2026-09-08 03:49:56
+更新时间：2026-09-09 03:50:16
 
 紫玉海小说网提供好看的言情小说推荐，热门小说推荐，包括都市言情、霸道总裁、古代言情、穿越重生等优质资源在线阅读，好小说尽在自由屋推书网。 https://www.ziyuhai.com
 
@@ -32,7 +32,7 @@
 - 朕看上的少年是侠女 https://www.ziyuhai.com/book/84rn522/
 - 被四皇错看成小动物后 https://www.ziyuhai.com/book/84rn521/
 - 高调装神，猥琐发育 https://www.ziyuhai.com/book/84rn50f/
-- 阴郁路人不想被喜欢 https://www.ziyuhai.com/book/84rn4vq/
+- 魔物堆里的人类幼崽 https://www.ziyuhai.com/book/84rn4v9/
 - 满级竹马从异世穿回来了 https://www.ziyuhai.com/book/84rn4sc/
 - 直男咒术师的限制级游戏 https://www.ziyuhai.com/book/84rn4s3/
 - 京秋婚约 https://www.ziyuhai.com/book/84rn4rh/
@@ -195,7 +195,6 @@
 - 全星际捧我当神明 https://www.ziyuhai.com/book/q2qs7s/
 - 帝国唯一雄虫长官[虫族] https://www.ziyuhai.com/book/q2qrv9/
 - 全小区宠物都是卧底 https://www.ziyuhai.com/book/q2qrtg/
-- 沈助理又在隐藏他的超能力 https://www.ziyuhai.com/book/q2qrpa/
 - 沉烟 https://www.ziyuhai.com/book/q2qrp2/
 - 夏油弟弟在立海大 https://www.ziyuhai.com/book/q2qrnd/
 - 我在原始种田 https://www.ziyuhai.com/book/q2qrlt/
@@ -410,7 +409,6 @@
 - 这谁的沙雕二次元心声！ https://www.ziyuhai.com/book/q2ptab/
 - 老公是松散生命体 https://www.ziyuhai.com/book/q2pt2v/
 - 我最讨厌打球了！ https://www.ziyuhai.com/book/q2poph/
-- 误入反派培养直播后 https://www.ziyuhai.com/book/q2pm7h/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.ziyuhai.com/book/q2pj08/
 - [足球]罗蜜第一志愿 https://www.ziyuhai.com/book/q2pfeg/
 - 哥你不能不要我 https://www.ziyuhai.com/book/q2os1a/

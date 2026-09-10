@@ -1,7 +1,7 @@
 
 # 笔趣阁啦 - 免费小说阅读网
 
-更新时间：2026-09-08 03:38:20
+更新时间：2026-09-09 03:38:22
 
 笔趣阁啦为您提供海量免费小说资源，在线畅读各类热门小说及最新章节更新，支持手机电脑等多种设备访问，让阅读更轻松便捷。 https://www.qingyuchun.com
 
@@ -35,7 +35,7 @@
 - 满级竹马从异世穿回来了 https://www.qingyuchun.com/book/10578bs/
 - 京秋婚约 https://www.qingyuchun.com/book/10578ab/
 - 直男咒术师的限制级游戏 https://www.qingyuchun.com/book/105789t/
-- 阴郁路人不想被喜欢 https://www.qingyuchun.com/book/105788l/
+- 魔物堆里的人类幼崽 https://www.qingyuchun.com/book/105787b/
 - 求生游戏：当邪神成为生活玩家后 https://www.qingyuchun.com/book/1057876/
 - 昭暮 https://www.qingyuchun.com/book/1056tbq/
 - 修仙界都为我神魂颠倒 https://www.qingyuchun.com/book/1056sli/
@@ -198,7 +198,6 @@
 - 帝国唯一雄虫长官[虫族] https://www.qingyuchun.com/book/36vlq5/
 - 暗堕本丸，在线直播 https://www.qingyuchun.com/book/36vllv/
 - [综英美]和小杰鸟青梅竹马的日子 https://www.qingyuchun.com/book/36vlhf/
-- 沈助理又在隐藏他的超能力 https://www.qingyuchun.com/book/36vlen/
 - 如何投入虚情假意 https://www.qingyuchun.com/book/36vlc5/
 - [综武侠]与剑有缘 https://www.qingyuchun.com/book/36vkrg/
 - 天崩开局还能通关吗？ https://www.qingyuchun.com/book/36vkig/
@@ -410,7 +409,6 @@
 - 老公是松散生命体 https://www.qingyuchun.com/book/36umob/
 - 青空来信 https://www.qingyuchun.com/book/36umbi/
 - 我最讨厌打球了！ https://www.qingyuchun.com/book/36uih1/
-- 误入反派培养直播后 https://www.qingyuchun.com/book/36ufnk/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.qingyuchun.com/book/36uate/
 - [足球]罗蜜第一志愿 https://www.qingyuchun.com/book/36u8i7/
 - 哥你不能不要我 https://www.qingyuchun.com/book/36tlq2/

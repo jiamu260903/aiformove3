@@ -1,7 +1,7 @@
 
 # 七步阁-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-09-08 03:38:39
+更新时间：2026-09-09 03:38:40
 
 七步阁提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏七步阁，享受便捷的小说阅读体验。 https://www.revwarny.com
 
@@ -32,8 +32,8 @@
 - 你，后室管理员 https://www.revwarny.com/book/3sgl7j5/
 - 被四皇错看成小动物后 https://www.revwarny.com/book/3sgl7ij/
 - 高调装神，猥琐发育 https://www.revwarny.com/book/3sgl7ih/
+- 魔物堆里的人类幼崽 https://www.revwarny.com/book/3sgl7hu/
 - 直男咒术师的限制级游戏 https://www.revwarny.com/book/3sgl7hr/
-- 阴郁路人不想被喜欢 https://www.revwarny.com/book/3sgl7hg/
 - 满级竹马从异世穿回来了 https://www.revwarny.com/book/3sgl7fv/
 - 京秋婚约 https://www.revwarny.com/book/3sgl7eg/
 - 求生游戏：当邪神成为生活玩家后 https://www.revwarny.com/book/3sgl7d8/
@@ -204,7 +204,6 @@
 - 全星际捧我当神明 https://www.revwarny.com/book/ceh1lv/
 - 如何投入虚情假意 https://www.revwarny.com/book/ceh0uq/
 - 开局一间小卖部[经营] https://www.revwarny.com/book/ceh0m0/
-- 沈助理又在隐藏他的超能力 https://www.revwarny.com/book/ceh0li/
 - 围观吃瓜却发现老公和别人在一起 https://www.revwarny.com/book/ceh0jt/
 - 在猫猫星当珍稀动物 https://www.revwarny.com/book/ceh0dn/
 - 女配她肆意妄为[快穿] https://www.revwarny.com/book/ceh0c7/
@@ -410,7 +409,6 @@
 - 青空来信 https://www.revwarny.com/book/ceg43v/
 - 这谁的沙雕二次元心声！ https://www.revwarny.com/book/ceg3rf/
 - 我最讨厌打球了！ https://www.revwarny.com/book/ceft9u/
-- 误入反派培养直播后 https://www.revwarny.com/book/cefqg3/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.revwarny.com/book/cefq58/
 - [足球]罗蜜第一志愿 https://www.revwarny.com/book/cefn53/
 - 哥你不能不要我 https://www.revwarny.com/book/cef4gk/

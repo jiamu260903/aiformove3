@@ -1,7 +1,7 @@
 
 # 佚名奇书小说 - 免费更新的小说阅读网站
 
-更新时间：2026-09-08 03:47:43
+更新时间：2026-09-09 03:47:54
 
 佚名奇书小说提供全网各类热门小说在线阅读服务，支持免费观看。这里汇集了丰富的小说资源，包括但不限于都市、玄幻、武侠等多种类型，并且保证章节更新及时，页面设计清爽无广告干扰，是广大书友不可多得的好去处。 https://www.yimingeduai.com
 
@@ -56,7 +56,6 @@
 - 限时心动 https://www.yimingeduai.com/book/6admang/
 - 青空来信 https://www.yimingeduai.com/book/6admaea/
 - 穿进忍界后每天迫害黑绝 https://www.yimingeduai.com/book/6adma10/
-- 炮灰的我该如何上位？ https://www.yimingeduai.com/book/6adm9s9/
 - 败类 https://www.yimingeduai.com/book/6adm9q2/
 - 我在原始种田 https://www.yimingeduai.com/book/6adm9lc/
 - 我的爸爸不可能叛变 https://www.yimingeduai.com/book/6adm904/
@@ -194,7 +193,6 @@
 - 侯府打工人 https://www.yimingeduai.com/book/6adlbp2/
 - 西幻抽卡装NPC https://www.yimingeduai.com/book/6adlbgj/
 - 逑丽色难得 https://www.yimingeduai.com/book/6adlbe5/
-- 被鬼怪宠爱的漂亮书生 https://www.yimingeduai.com/book/6adlb72/
 - 养了一个废太子 https://www.yimingeduai.com/book/6adlave/
 - 我骗家里的钱养你啊 https://www.yimingeduai.com/book/6adlasa/
 - 漂亮作精绑定换装系统后［快穿］ https://www.yimingeduai.com/book/6adlaqi/
@@ -238,8 +236,8 @@
 - 经纪人砸钱整顿内娱爆火了 https://www.yimingeduai.com/book/6adl1a0/
 - 老公是松散生命体 https://www.yimingeduai.com/book/6adl00m/
 - 修罗场里的无能丈夫 https://www.yimingeduai.com/book/6adkvrt/
+- 魔物堆里的人类幼崽 https://www.yimingeduai.com/book/6adkvq1/
 - [足球]这只后锋小熊是你家俱乐部掉的吗？ https://www.yimingeduai.com/book/6adkuq9/
-- 沈助理又在隐藏他的超能力 https://www.yimingeduai.com/book/6adkul2/
 - 备胎的我重生成万人迷 https://www.yimingeduai.com/book/6adkuik/
 - 坏女人绑定攻略系统后 https://www.yimingeduai.com/book/6adkua1/
 - 顶流他姐有神豪系统 https://www.yimingeduai.com/book/6adku6v/
@@ -429,7 +427,6 @@
 - [足球]罗蜜第一志愿 https://www.yimingeduai.com/book/6adjf8l/
 - 请问夫君你哪位 https://www.yimingeduai.com/book/6adjf3m/
 - 七零知青有空间 https://www.yimingeduai.com/book/6adjeu5/
-- 阴郁路人不想被喜欢 https://www.yimingeduai.com/book/6adjer7/
 - 荒谬神父是个渣 https://www.yimingeduai.com/book/6adjepl/
 - 亚当斯与韦恩的适配性 https://www.yimingeduai.com/book/6adjek2/
 - 恐惧玫瑰 https://www.yimingeduai.com/book/6adjegi/
@@ -448,7 +445,6 @@
 - 被四皇错看成小动物后 https://www.yimingeduai.com/book/6adi6s3/
 - [封神]圣人生欲 https://www.yimingeduai.com/book/6adi68f/
 - 朕看上的少年是侠女 https://www.yimingeduai.com/book/6adi677/
-- 误入反派培养直播后 https://www.yimingeduai.com/book/6adi5rr/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1399/index.md)

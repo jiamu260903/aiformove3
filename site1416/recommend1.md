@@ -1,7 +1,7 @@
 
 # 求小说网-手机免费阅读最新热门小说|VIP章节免费看
 
-更新时间：2026-09-08 03:25:03
+更新时间：2026-09-09 03:25:12
 
 求小说网专注于收集并提供最新的热门小说更新内容，包括手打全文字TXT版本，支持手机端免费阅读和下载，享受VIP章节免费看服务，请记得收藏我们！ https://www.54dianshang.com
 
@@ -123,7 +123,6 @@
 - 完蛋！被恨孕男包围了！ https://www.54dianshang.com/book/4iquti5/
 - 国运求生：我的金手指是生命树 https://www.54dianshang.com/book/4iquths/
 - [足球]我的游戏存档成真了？！ https://www.54dianshang.com/book/4iqutgl/
-- 寡妇美人模拟器 https://www.54dianshang.com/book/4iqutfc/
 - 被糟蹋的老实人决定反击 https://www.54dianshang.com/book/4iqutf6/
 - 沈助理又在隐藏他的超能力 https://www.54dianshang.com/book/4iquteu/
 - 巨物致富：回乡开钓场 https://www.54dianshang.com/book/4iqutes/

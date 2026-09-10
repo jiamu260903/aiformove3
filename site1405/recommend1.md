@@ -1,11 +1,12 @@
 
 # 耽美小说 - 最新全本免费手机小说阅读推荐
 
-更新时间：2026-09-08 03:39:46
+更新时间：2026-09-09 03:39:45
 
 耽美小说为您提供最新最全的小说阅读体验，涵盖古言、现言、原创、玄幻、都市、言情、娱乐、种田、科幻、悬疑、穿越、重生等多种类型。支持手机在线阅读，全本免费小说尽在耽美小说！ https://www.shgifts8.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.shgifts8.com/book/32uiji6/
 - 爱情的肯定句 https://www.shgifts8.com/book/32ui7ui/
 - 欲加之罪 https://www.shgifts8.com/book/32ui7ug/
 - 前妻她肯定会后悔 https://www.shgifts8.com/book/32ui7uf/
@@ -67,7 +68,6 @@
 - 烈火焚身[巴黎圣母院] https://www.shgifts8.com/book/32ui7po/
 - 天幕今天也在直播我搞基建 https://www.shgifts8.com/book/32ui7kb/
 - 起初，我只是想找个冤大头 https://www.shgifts8.com/book/32ui7k1/
-- 仙门透明人被迫万人迷 https://www.shgifts8.com/book/32ui37d/
 - 上个鬼班[无限] https://www.shgifts8.com/book/32ui0bj/
 - [足球]足坛人生模拟器 https://www.shgifts8.com/book/32uhvpi/
 - 让暴君Alpha怀崽后 https://www.shgifts8.com/book/32uhqgt/
@@ -84,7 +84,6 @@
 - [足球]我的游戏存档成真了？！ https://www.shgifts8.com/book/32ugq1v/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.shgifts8.com/book/32ugq1n/
 - 如何正确哄睡暴君 https://www.shgifts8.com/book/32ugptj/
-- 摄政王家的咸鱼夫郎 https://www.shgifts8.com/book/32ugnd2/
 - 让你们无剧本可走（快穿） https://www.shgifts8.com/book/32uglu6/
 - 死遁的亡夫们都回来了 https://www.shgifts8.com/book/32uglmj/
 - 韩团绿卡不想忍了 https://www.shgifts8.com/book/32ugd83/
@@ -92,6 +91,7 @@
 - 同时扮演贵族学院F4和平民校花 https://www.shgifts8.com/book/32ug81q/
 - 被天使之王骗婚后[诡秘之主] https://www.shgifts8.com/book/32ug7nc/
 - 苏娘子汴京摆摊日常（美食） https://www.shgifts8.com/book/32ug6n0/
+- 月亮上的大筒木 https://www.shgifts8.com/book/32ug5hc/
 - 死对头又在挑衅我 https://www.shgifts8.com/book/32ug5cu/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.shgifts8.com/book/32ug4lt/
 - 沈助理又在隐藏他的超能力 https://www.shgifts8.com/book/32ug4go/
@@ -112,6 +112,7 @@
 - 五条老师与他的封建妻子 https://www.shgifts8.com/book/32ufhl1/
 - 我187了，你敢见我吗？ https://www.shgifts8.com/book/32uff9t/
 - 和姐姐的前女友欢愉后 https://www.shgifts8.com/book/32ufbqk/
+- 我只梦你一页 https://www.shgifts8.com/book/32uf8pm/
 - 朕也要被强制吗？ https://www.shgifts8.com/book/32uf54f/
 - 大唐守军家属 https://www.shgifts8.com/book/32uf4bi/
 - 等我吃腻了再倒闭可以吗 https://www.shgifts8.com/book/32uf3ug/
@@ -149,7 +150,6 @@
 - 完蛋！被恨孕男包围了！ https://www.shgifts8.com/book/32ud60n/
 - 老公对不起 https://www.shgifts8.com/book/32ud5v8/
 - 我是唯一地上神国 https://www.shgifts8.com/book/32ud5um/
-- 寡妇美人模拟器 https://www.shgifts8.com/book/32ud5ui/
 - [封神]圣人生欲 https://www.shgifts8.com/book/32ud5t4/
 - 五十年代港城日常 https://www.shgifts8.com/book/32ud5i9/
 - [娱乐圈]过分美丽的她 https://www.shgifts8.com/book/32ud5i5/
@@ -161,7 +161,6 @@
 - 巨物致富：回乡开钓场 https://www.shgifts8.com/book/32ud52d/
 - 在民俗惊悚片被诸神庇护 https://www.shgifts8.com/book/32ud4qa/
 - 六零之成了卷王的妹妹 https://www.shgifts8.com/book/32ud4pb/
-- 星际团宠小人鱼 https://www.shgifts8.com/book/32ud4io/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1405/index.md)

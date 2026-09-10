@@ -1,11 +1,12 @@
 
 # 探秘书院-全本小说最值得收藏的绿色无弹窗免费小说阅读网
 
-更新时间：2026-09-08 03:42:19
+更新时间：2026-09-09 03:42:18
 
 探秘书院提供全本网文爱好者一个纯净、安全、高质量的免费小说阅读环境，支持最新章节在线阅读，所有内容均为绿色无弹窗且保证无错字。 https://www.tanmi918.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.tanmi918.com/book/80r4ss2/
 - 禁止继承限制级雌君 https://www.tanmi918.com/book/80r4sru/
 - 魔咒请说普通话[西幻] https://www.tanmi918.com/book/80r4srs/
 - 怨明月不独照 https://www.tanmi918.com/book/80r4sri/
@@ -79,12 +80,12 @@
 - 在卷王和废物之间选择做吉祥物 https://www.tanmi918.com/book/80r3q7k/
 - 从维多利亚时代开始 https://www.tanmi918.com/book/80r3mpu/
 - 昭暮 https://www.tanmi918.com/book/80r3knt/
-- 星际团宠小人鱼 https://www.tanmi918.com/book/80r3h49/
 - 十九世纪贵族厨房（美食） https://www.tanmi918.com/book/80r3gv2/
 - 始乱终弃清冷首辅后 https://www.tanmi918.com/book/80r3gte/
 - 原配夫人 https://www.tanmi918.com/book/80r3gqk/
 - 高调装神，猥琐发育 https://www.tanmi918.com/book/80r3a1i/
 - 完蛋！被恨孕男包围了！ https://www.tanmi918.com/book/80r3a04/
+- 我只梦你一页 https://www.tanmi918.com/book/80r39s5/
 - 食明 https://www.tanmi918.com/book/80r37r9/
 - 诡话第一boss https://www.tanmi918.com/book/80r34ja/
 - 专业女配的自我修养（快穿） https://www.tanmi918.com/book/80r33bt/
@@ -92,7 +93,6 @@
 - [足球]我的游戏存档成真了？！ https://www.tanmi918.com/book/80r2s7a/
 - 我与龙傲天寿命共享 https://www.tanmi918.com/book/80r2r3f/
 - 让你们无剧本可走（快穿） https://www.tanmi918.com/book/80r2qlg/
-- 摄政王家的咸鱼夫郎 https://www.tanmi918.com/book/80r2ppk/
 - 如何正确哄睡暴君 https://www.tanmi918.com/book/80r2n9v/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.tanmi918.com/book/80r2h66/
 - 我骗家里的钱养你啊 https://www.tanmi918.com/book/80r2frt/
@@ -106,6 +106,7 @@
 - 从童星开始杀穿港娱 https://www.tanmi918.com/book/80r227k/
 - 同时扮演贵族学院F4和平民校花 https://www.tanmi918.com/book/80r222d/
 - 路人攻了主角攻［快穿］ https://www.tanmi918.com/book/80r20cn/
+- 月亮上的大筒木 https://www.tanmi918.com/book/80r1ule/
 - 开局绑定郭奉孝，谋定三国风云 https://www.tanmi918.com/book/80r1u7o/
 - 我有一座地下城 https://www.tanmi918.com/book/80r1tp2/
 - 苏娘子汴京摆摊日常（美食） https://www.tanmi918.com/book/80r1sba/
@@ -153,7 +154,6 @@
 - 六零之成了卷王的妹妹 https://www.tanmi918.com/book/80qv9n7/
 - 大瑛弟国 https://www.tanmi918.com/book/80qv9e7/
 - 95美国贵族高中模拟 https://www.tanmi918.com/book/80qv98c/
-- 仙门透明人被迫万人迷 https://www.tanmi918.com/book/80qv97q/
 - 我有一座安全城 https://www.tanmi918.com/book/80qv94d/
 - 清澈女大的六零年代 https://www.tanmi918.com/book/80qv947/
 - 天幕今天也在直播我搞基建 https://www.tanmi918.com/book/80qv92h/
@@ -161,7 +161,6 @@
 - [娱乐圈]过分美丽的她 https://www.tanmi918.com/book/80qv8tp/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.tanmi918.com/book/80qv8tf/
 - 海岛求生：生活玩家种田囤货 https://www.tanmi918.com/book/80qv8pq/
-- 寡妇美人模拟器 https://www.tanmi918.com/book/80qv8js/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1368/index.md)

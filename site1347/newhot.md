@@ -1,7 +1,7 @@
 
 # 故事来书吧-免费阅读全网最新最热小说
 
-更新时间：2026-09-08 03:30:46
+更新时间：2026-09-09 03:30:50
 
 故事来书吧提供海量免费无弹窗小说在线阅读服务，涵盖言情、都市、玄幻、武侠等多种类型，让你随时随地享受阅读的乐趣。 https://www.gushi688.com
 
@@ -168,8 +168,6 @@
 - 普通人的乙女RPG[西幻] https://www.gushi688.com/book/511unle/
 - 渣攻试图洗白[快穿] https://www.gushi688.com/book/511unjn/
 - 万人迷总被入侵角色觊觎[快穿] https://www.gushi688.com/book/511un6d/
-- 沈助理又在隐藏他的超能力 https://www.gushi688.com/book/511un2e/
-- 被鬼怪宠爱的漂亮书生 https://www.gushi688.com/book/511un1i/
 - 旖旎新婚 https://www.gushi688.com/book/511umce/
 - 穿到废土末世三十年后 https://www.gushi688.com/book/511um6k/
 - 绝色美人模拟器[快穿] https://www.gushi688.com/book/511ulok/
@@ -238,7 +236,6 @@
 - 荒谬神父是个渣 https://www.gushi688.com/book/511ubso/
 - 吃瓜也能整顿豪门？ https://www.gushi688.com/book/511ubru/
 - 父皇，我是gay https://www.gushi688.com/book/511ubol/
-- 误入反派培养直播后 https://www.gushi688.com/book/511ubj8/
 - 蜜蜂膝盖银子弹 https://www.gushi688.com/book/511ubfj/
 - 亚当斯与韦恩的适配性 https://www.gushi688.com/book/511ubfe/
 - 一见倾心[快穿] https://www.gushi688.com/book/511ubej/
@@ -301,7 +298,6 @@
 - [综英美]让我统治哥谭！！！ https://www.gushi688.com/book/511u5k1/
 - 拯救美强惨女主进行时[快穿] https://www.gushi688.com/book/511u5ho/
 - 大美人怀了enigma上司的崽 https://www.gushi688.com/book/511u5ge/
-- 炮灰的我该如何上位？ https://www.gushi688.com/book/511u5gb/
 - 乙骨同学很好欺负 https://www.gushi688.com/book/511u56r/
 - 哥你不能不要我 https://www.gushi688.com/book/511u55s/
 - 当烫男人走错了片场 https://www.gushi688.com/book/511u52e/
@@ -435,9 +431,9 @@
 - 关于我虚构了一个男友这件事 https://www.gushi688.com/book/511t755/
 - 和室友他爸恋爱后 https://www.gushi688.com/book/511t10i/
 - 满级竹马从异世穿回来了 https://www.gushi688.com/book/511spm8/
+- 魔物堆里的人类幼崽 https://www.gushi688.com/book/511rqan/
 - 京秋婚约 https://www.gushi688.com/book/511rq92/
 - 直男咒术师的限制级游戏 https://www.gushi688.com/book/511rq5e/
-- 阴郁路人不想被喜欢 https://www.gushi688.com/book/511rphc/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1347/index.md)

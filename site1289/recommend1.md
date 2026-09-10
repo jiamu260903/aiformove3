@@ -1,11 +1,12 @@
 
 # 三三言情小说 - 全本网文免费阅读, 最新最热言情故事
 
-更新时间：2026-09-08 03:49:22
+更新时间：2026-09-09 03:49:43
 
 三三言情小说为您提供海量全本完结的言情小说资源，在这里您可以免费在线阅读最新、最受欢迎的爱情故事。无论您是喜欢经典还是追求潮流的新作，我们都有丰富的选择等待着您来探索。 https://www.zhaoxingangjiegou.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.zhaoxingangjiegou.com/book/1duot4p/
 - 八零法医，带全家致富 https://www.zhaoxingangjiegou.com/book/1duot4l/
 - 星露谷，但日本战国 https://www.zhaoxingangjiegou.com/book/1duot4k/
 - 欲和离？夫君他目不识丁 https://www.zhaoxingangjiegou.com/book/1duot4j/
@@ -79,10 +80,10 @@
 - 在年代文里跑运输 https://www.zhaoxingangjiegou.com/book/1duot2d/
 - 末世八年春，游戏降临 https://www.zhaoxingangjiegou.com/book/1duot2c/
 - 十九世纪贵族厨房（美食） https://www.zhaoxingangjiegou.com/book/1duossb/
-- 星际团宠小人鱼 https://www.zhaoxingangjiegou.com/book/1duoss5/
 - 始乱终弃清冷首辅后 https://www.zhaoxingangjiegou.com/book/1duoss3/
 - 原配夫人 https://www.zhaoxingangjiegou.com/book/1duosrl/
 - [封神]圣人生欲 https://www.zhaoxingangjiegou.com/book/1duosql/
+- 我只梦你一页 https://www.zhaoxingangjiegou.com/book/1duosqk/
 - 高调装神，猥琐发育 https://www.zhaoxingangjiegou.com/book/1duosqh/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.zhaoxingangjiegou.com/book/1duosp4/
 - 直男咒术师的限制级游戏 https://www.zhaoxingangjiegou.com/book/1duoso6/
@@ -100,17 +101,14 @@
 - 如何嫁给当朝首辅 https://www.zhaoxingangjiegou.com/book/1dum27d/
 - 食明 https://www.zhaoxingangjiegou.com/book/1dum1e3/
 - 诡话第一boss https://www.zhaoxingangjiegou.com/book/1dulu6m/
-- 仙门透明人被迫万人迷 https://www.zhaoxingangjiegou.com/book/1dulspu/
 - 让暴君Alpha怀崽后 https://www.zhaoxingangjiegou.com/book/1dulppj/
 - 专业女配的自我修养（快穿） https://www.zhaoxingangjiegou.com/book/1dulof7/
 - 日化人生[科研] https://www.zhaoxingangjiegou.com/book/1dulnoj/
 - 老实人妻，但顶级魅魔 https://www.zhaoxingangjiegou.com/book/1dulmvv/
 - 巨物致富：回乡开钓场 https://www.zhaoxingangjiegou.com/book/1dullsg/
 - [足球]我的游戏存档成真了？！ https://www.zhaoxingangjiegou.com/book/1dulje6/
-- 寡妇美人模拟器 https://www.zhaoxingangjiegou.com/book/1dulgjf/
 - 趁她之危 https://www.zhaoxingangjiegou.com/book/1dulfo4/
 - 让你们无剧本可走（快穿） https://www.zhaoxingangjiegou.com/book/1dulf2v/
-- 摄政王家的咸鱼夫郎 https://www.zhaoxingangjiegou.com/book/1dulbmq/
 - 起初，我只是想找个冤大头 https://www.zhaoxingangjiegou.com/book/1dulbat/
 - 死遁的亡夫们都回来了 https://www.zhaoxingangjiegou.com/book/4j4nj7/
 - 沈助理又在隐藏他的超能力 https://www.zhaoxingangjiegou.com/book/4j4m3p/
@@ -153,6 +151,7 @@
 - 大瑛弟国 https://www.zhaoxingangjiegou.com/book/emlhd/
 - 我有一座安全城 https://www.zhaoxingangjiegou.com/book/emldl/
 - 苏娘子汴京摆摊日常（美食） https://www.zhaoxingangjiegou.com/book/eml3d/
+- 月亮上的大筒木 https://www.zhaoxingangjiegou.com/book/eml28/
 - [娱乐圈]过分美丽的她 https://www.zhaoxingangjiegou.com/book/eml1p/
 - 五十年代港城日常 https://www.zhaoxingangjiegou.com/book/eml03/
 - 全民求生:从小木屋到魔法农场 https://www.zhaoxingangjiegou.com/book/emkq4/

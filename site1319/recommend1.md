@@ -1,11 +1,12 @@
 
 # 看书小说网 - 全本完结小说免费阅读, 最新章节更新最快, 网络小说排行榜
 
-更新时间：2026-09-08 03:32:58
+更新时间：2026-09-09 03:33:01
 
 看书小说网提供全本完结小说免费阅读服务，包括但不限于言情小说等类型。网站内所有小说均可免费阅读且无任何弹窗广告干扰。这里汇集了最好看的网络小说，同时保证了最新章节的快速更新。 https://www.kanshu666.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.kanshu666.com/book/8jv7igp/
 - 烈火焚身[巴黎圣母院] https://www.kanshu666.com/book/8jv7igl/
 - 咦？我爸爸复活啦 https://www.kanshu666.com/book/8jv7igk/
 - 星露谷，但日本战国 https://www.kanshu666.com/book/8jv7igj/
@@ -81,8 +82,8 @@
 - 十九世纪贵族厨房（美食） https://www.kanshu666.com/book/8jv7i8q/
 - [封神]圣人生欲 https://www.kanshu666.com/book/8jv7i8c/
 - 原配夫人 https://www.kanshu666.com/book/8jv7i80/
-- 星际团宠小人鱼 https://www.kanshu666.com/book/8jv7i7j/
 - 始乱终弃清冷首辅后 https://www.kanshu666.com/book/8jv7i71/
+- 我只梦你一页 https://www.kanshu666.com/book/8jv7i6j/
 - 高调装神，猥琐发育 https://www.kanshu666.com/book/8jv7i6h/
 - 直男咒术师的限制级游戏 https://www.kanshu666.com/book/8jv7i2n/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.kanshu666.com/book/8jv7i1j/
@@ -100,7 +101,6 @@
 - 如何嫁给当朝首辅 https://www.kanshu666.com/book/8jv4pfn/
 - 食明 https://www.kanshu666.com/book/8jv4p15/
 - 诡话第一boss https://www.kanshu666.com/book/8jv4lit/
-- 仙门透明人被迫万人迷 https://www.kanshu666.com/book/8jv4hi0/
 - 让暴君Alpha怀崽后 https://www.kanshu666.com/book/8jv4han/
 - 老实人妻，但顶级魅魔 https://www.kanshu666.com/book/8jv4edf/
 - 日化人生[科研] https://www.kanshu666.com/book/8jv4cp6/
@@ -108,10 +108,8 @@
 - 巨物致富：回乡开钓场 https://www.kanshu666.com/book/8jv4bqq/
 - [足球]我的游戏存档成真了？！ https://www.kanshu666.com/book/8jv48j8/
 - 让你们无剧本可走（快穿） https://www.kanshu666.com/book/8jv48da/
-- 寡妇美人模拟器 https://www.kanshu666.com/book/8jv46ku/
 - 趁她之危 https://www.kanshu666.com/book/8jv465f/
 - 起初，我只是想找个冤大头 https://www.kanshu666.com/book/8jv40jk/
-- 摄政王家的咸鱼夫郎 https://www.kanshu666.com/book/8jv3u0j/
 - 死遁的亡夫们都回来了 https://www.kanshu666.com/book/rj6613/
 - 沈助理又在隐藏他的超能力 https://www.kanshu666.com/book/rj63r4/
 - 天幕今天也在直播我搞基建 https://www.kanshu666.com/book/rj62k2/
@@ -158,6 +156,7 @@
 - 五十年代港城日常 https://www.kanshu666.com/book/2o9v0t/
 - 苏娘子汴京摆摊日常（美食） https://www.kanshu666.com/book/2o9urv/
 - 海岛求生：生活玩家种田囤货 https://www.kanshu666.com/book/8qjmi/
+- 月亮上的大筒木 https://www.kanshu666.com/book/8qjm5/
 - 我是唯一地上神国 https://www.kanshu666.com/book/8qji6/
 - 清澈女大的六零年代 https://www.kanshu666.com/book/8qjhe/
 - 全民求生:从小木屋到魔法农场 https://www.kanshu666.com/book/8qjbt/
