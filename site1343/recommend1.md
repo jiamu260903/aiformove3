@@ -1,11 +1,12 @@
 
 # 左叶小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-09-08 03:37:04
+更新时间：2026-09-09 03:37:06
 
 左叶小说网为读者提供了一个丰富多样的小说阅读体验，汇集了各类热门、经典以及新作小说资源，是书友们寻找好书的理想之地。 https://www.pusytgp.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.pusytgp.com/book/7pbovhl/
 - 双生子反派的端水抑郁妈[九零] https://www.pusytgp.com/book/7pbovhh/
 - 前妻她肯定会后悔 https://www.pusytgp.com/book/7pbovhe/
 - [足球]小小鸟堂堂来袭 https://www.pusytgp.com/book/7pbovh6/
@@ -75,10 +76,10 @@
 - 强取师尊后 https://www.pusytgp.com/book/7pbovcd/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.pusytgp.com/book/7pbop6n/
 - 上个鬼班[无限] https://www.pusytgp.com/book/7pbof9c/
-- 星际团宠小人鱼 https://www.pusytgp.com/book/7pboe9n/
 - 原配夫人 https://www.pusytgp.com/book/7pboe8b/
 - 始乱终弃清冷首辅后 https://www.pusytgp.com/book/7pboe61/
 - 让暴君Alpha怀崽后 https://www.pusytgp.com/book/7pbocoo/
+- 我只梦你一页 https://www.pusytgp.com/book/7pbob67/
 - 九零重组小家庭 https://www.pusytgp.com/book/7pbo9nv/
 - [足球]足坛人生模拟器 https://www.pusytgp.com/book/7pbo705/
 - 趁她之危 https://www.pusytgp.com/book/7pbo14b/
@@ -93,12 +94,9 @@
 - 高调装神，猥琐发育 https://www.pusytgp.com/book/7pbn366/
 - 起初，我只是想找个冤大头 https://www.pusytgp.com/book/7pbn1or/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.pusytgp.com/book/7pbmskn/
-- 仙门透明人被迫万人迷 https://www.pusytgp.com/book/7pbmrtr/
-- 寡妇美人模拟器 https://www.pusytgp.com/book/7pbmrms/
 - [足球]我的游戏存档成真了？！ https://www.pusytgp.com/book/7pbmr77/
 - 让你们无剧本可走（快穿） https://www.pusytgp.com/book/7pbmr62/
 - 直男咒术师的限制级游戏 https://www.pusytgp.com/book/7pbmr4e/
-- 摄政王家的咸鱼夫郎 https://www.pusytgp.com/book/7pbmq4p/
 - 我与龙傲天寿命共享 https://www.pusytgp.com/book/7pbmnka/
 - 如何正确哄睡暴君 https://www.pusytgp.com/book/7pbmkpg/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.pusytgp.com/book/7pbmb49/
@@ -109,6 +107,7 @@
 - 在民俗惊悚片被诸神庇护 https://www.pusytgp.com/book/7pbm0km/
 - 漂亮女配是万人迷［快穿］ https://www.pusytgp.com/book/7pbm0ee/
 - 我有一座地下城 https://www.pusytgp.com/book/7pblv66/
+- 月亮上的大筒木 https://www.pusytgp.com/book/7pbltu6/
 - 开局绑定郭奉孝，谋定三国风云 https://www.pusytgp.com/book/7pbltcn/
 - 我骗家里的钱养你啊 https://www.pusytgp.com/book/7pblpkn/
 - 同时扮演贵族学院F4和平民校花 https://www.pusytgp.com/book/7pblpar/

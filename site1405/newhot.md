@@ -1,11 +1,12 @@
 
 # 耽美小说 - 最新全本免费手机小说阅读推荐
 
-更新时间：2026-09-08 03:39:46
+更新时间：2026-09-09 03:39:45
 
 耽美小说为您提供最新最全的小说阅读体验，涵盖古言、现言、原创、玄幻、都市、言情、娱乐、种田、科幻、悬疑、穿越、重生等多种类型。支持手机在线阅读，全本免费小说尽在耽美小说！ https://www.shgifts8.com
 
 ## 最新小说
+- 网球带给齐木的灾难 https://www.shgifts8.com/book/32uiiki/
 - 当甚尔转生成继国 https://www.shgifts8.com/book/32uignp/
 - 节能型社恐靠交友存活打排球 https://www.shgifts8.com/book/32uig05/
 - 渣攻他疯了［快穿］ https://www.shgifts8.com/book/32uifc9/
@@ -28,7 +29,6 @@
 - 孤独症崽崽穿越到狗血爽文里[穿书] https://www.shgifts8.com/book/32ui3tl/
 - 我有嘉宾 https://www.shgifts8.com/book/32ui3s1/
 - 我，始皇闺女，未来皇帝，打钱 https://www.shgifts8.com/book/32ui3e8/
-- 阴郁路人不想被喜欢 https://www.shgifts8.com/book/32ui2rc/
 - 开局给李世民盘点安史之乱 https://www.shgifts8.com/book/32ui2k9/
 - 怪谈小镇游玩指南[无限] https://www.shgifts8.com/book/32ui1mn/
 - 离开那个混蛋后 https://www.shgifts8.com/book/32ui0tl/
@@ -43,7 +43,6 @@
 - 侦探立于百万生命之上 https://www.shgifts8.com/book/32uhiic/
 - 特殊魅力值，已到账 https://www.shgifts8.com/book/32uhi2d/
 - 昭暮 https://www.shgifts8.com/book/32uhe5t/
-- 被鬼怪宠爱的漂亮书生 https://www.shgifts8.com/book/32ugvsc/
 - 我在无限游戏里假扮NPC[无限流] https://www.shgifts8.com/book/32ugvrj/
 - 我骗家里的钱养你啊 https://www.shgifts8.com/book/32ugvlu/
 - 求求你们别吃了 https://www.shgifts8.com/book/32ugurn/
@@ -161,7 +160,6 @@
 - 战死的阿爹回来了[年代] https://www.shgifts8.com/book/32ug4v5/
 - 普通人的乙女RPG[西幻] https://www.shgifts8.com/book/32ug4tr/
 - 万人迷总被入侵角色觊觎[快穿] https://www.shgifts8.com/book/32ug4r7/
-- 沈助理又在隐藏他的超能力 https://www.shgifts8.com/book/32ug4go/
 - [综英美]让我统治哥谭！！！ https://www.shgifts8.com/book/32ug4g8/
 - 和室友他爸恋爱后 https://www.shgifts8.com/book/32ug3sn/
 - [全职高手]小船 https://www.shgifts8.com/book/32ug3hg/
@@ -254,7 +252,6 @@
 - 娇气包在无限游戏被坏男人骗 https://www.shgifts8.com/book/32ufmpr/
 - 野比春子穿越事件簿 https://www.shgifts8.com/book/32ufmn0/
 - [综英美]小玉有话说 https://www.shgifts8.com/book/32ufmlq/
-- 炮灰的我该如何上位？ https://www.shgifts8.com/book/32ufmd1/
 - 豪门养子怀了大哥的崽 https://www.shgifts8.com/book/32ufm8b/
 - 当魔修反派穿成治愈系[穿书] https://www.shgifts8.com/book/32ufm81/
 - 侯府打工人 https://www.shgifts8.com/book/32ufm5j/
@@ -428,9 +425,11 @@
 - 好巧，你也是妹控？[综崩铁] https://www.shgifts8.com/book/32uf67n/
 - 李玉灯 https://www.shgifts8.com/book/32uf626/
 - 我，剑圣，养生中，勿扰 https://www.shgifts8.com/book/32uf5t3/
+- 魔物堆里的人类幼崽 https://www.shgifts8.com/book/32uf5ko/
 - [综英美]和亲友群穿哥谭以后 https://www.shgifts8.com/book/32uf22h/
 - [崩铁]请给玩家一个准确的血条！ https://www.shgifts8.com/book/32uf0vn/
 - 自大狂 https://www.shgifts8.com/book/32ueos9/
+- 为她守节第十年 https://www.shgifts8.com/book/32uem26/
 - 书呆子扮演渣攻翻车【快穿】 https://www.shgifts8.com/book/32ueitq/
 - 满级竹马从异世穿回来了 https://www.shgifts8.com/book/32ueg60/
 - 丧尸老婆喂养日记 https://www.shgifts8.com/book/32ue67h/
@@ -439,7 +438,6 @@
 - [封神]圣人生欲 https://www.shgifts8.com/book/32ud5t4/
 - 高调装神，猥琐发育 https://www.shgifts8.com/book/32ud5eo/
 - 你，后室管理员 https://www.shgifts8.com/book/32ud5d7/
-- 误入反派培养直播后 https://www.shgifts8.com/book/32ud4t1/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1405/index.md)

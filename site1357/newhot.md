@@ -1,7 +1,7 @@
 
 # 书香小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-08 03:41:19
+更新时间：2026-09-09 03:41:18
 
 书香小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。 https://www.shuxiang368.com
 
@@ -166,8 +166,6 @@
 - 万人迷总被入侵角色觊觎[快穿] https://www.shuxiang368.com/book/3qkljph/
 - 苗疆蛊女模拟器 https://www.shuxiang368.com/book/3qkljme/
 - 普通人的乙女RPG[西幻] https://www.shuxiang368.com/book/3qkljl1/
-- 被鬼怪宠爱的漂亮书生 https://www.shuxiang368.com/book/3qklj3n/
-- 沈助理又在隐藏他的超能力 https://www.shuxiang368.com/book/3qklitk/
 - 老公是松散生命体 https://www.shuxiang368.com/book/3qklhtf/
 - 沉烟 https://www.shuxiang368.com/book/3qklhr1/
 - 想换个老公怎么这么难 https://www.shuxiang368.com/book/3qklhf3/
@@ -240,7 +238,6 @@
 - 请别摘下超能力社恐的耳机 https://www.shuxiang368.com/book/3qkl6qp/
 - 掉马后成了奥特带恶人 https://www.shuxiang368.com/book/3qkl6nn/
 - 变成龙傲天的心上猫后 https://www.shuxiang368.com/book/3qkl6kk/
-- 误入反派培养直播后 https://www.shuxiang368.com/book/3qkl6fc/
 - 摆烂后我成了邪神学院大佬 https://www.shuxiang368.com/book/3qkl69h/
 - 一见倾心[快穿] https://www.shuxiang368.com/book/3qkl685/
 - 父皇，我是gay https://www.shuxiang368.com/book/3qkl64q/
@@ -274,7 +271,6 @@
 - 佐久早才不是洁癖！ https://www.shuxiang368.com/book/3qkl2v4/
 - [综英美]让我统治哥谭！！！ https://www.shuxiang368.com/book/3qkl2uc/
 - 乙骨同学很好欺负 https://www.shuxiang368.com/book/3qkl2p6/
-- 炮灰的我该如何上位？ https://www.shuxiang368.com/book/3qkl2m4/
 - 限时心动 https://www.shuxiang368.com/book/3qkl2cg/
 - 异种大食堂[无限] https://www.shuxiang368.com/book/3qkl2a3/
 - 奶奶蛋糕店[美食] https://www.shuxiang368.com/book/3qkl29k/
@@ -435,7 +431,7 @@
 - 暴君偏头痛 https://www.shuxiang368.com/book/3qkjtn6/
 - 和室友他爸恋爱后 https://www.shuxiang368.com/book/3qkjqap/
 - 满级竹马从异世穿回来了 https://www.shuxiang368.com/book/3qkjlq2/
-- 阴郁路人不想被喜欢 https://www.shuxiang368.com/book/3qkimqb/
+- 魔物堆里的人类幼崽 https://www.shuxiang368.com/book/3qkimm3/
 - 京秋婚约 https://www.shuxiang368.com/book/3qkima0/
 - 直男咒术师的限制级游戏 https://www.shuxiang368.com/book/3qkilev/
 ## 相关内容

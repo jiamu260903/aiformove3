@@ -1,7 +1,7 @@
 
 # 书包网 - 免费小说阅读网_网络小说排行榜_最新小说推荐
 
-更新时间：2026-09-08 03:27:17
+更新时间：2026-09-09 03:27:27
 
 书包网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。 https://www.cialisgs.com
 
@@ -107,7 +107,6 @@
 - 专业女配的自我修养（快穿） https://www.cialisgs.com/book/89rqt3s/
 - 巨物致富：回乡开钓场 https://www.cialisgs.com/book/89rqr6m/
 - [足球]我的游戏存档成真了？！ https://www.cialisgs.com/book/89rqp4a/
-- 寡妇美人模拟器 https://www.cialisgs.com/book/89rqp0s/
 - 趁她之危 https://www.cialisgs.com/book/89rqor6/
 - 让你们无剧本可走（快穿） https://www.cialisgs.com/book/89rqo5n/
 - 起初，我只是想找个冤大头 https://www.cialisgs.com/book/89rqj2r/

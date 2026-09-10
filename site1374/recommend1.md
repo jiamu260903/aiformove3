@@ -1,11 +1,12 @@
 
 # 看居中文网_免费小说在线阅读|无弹窗广告值得收藏
 
-更新时间：2026-09-08 03:32:27
+更新时间：2026-09-09 03:32:30
 
 看居中文网是最热门的免费小说网站，提供包括但不限于玄幻、都市、言情等多种类型的小说在线阅读服务。本站实时更新小说最新章节列表，拥有全面的小说排行榜，致力于为读者提供一个干净舒适的阅读环境，无弹窗广告干扰，是您寻找好书的理想之地。 https://www.kanju688.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.kanju688.com/book/pb0bc7/
 - 失忆后和死对头有了崽 https://www.kanju688.com/book/pb0bc2/
 - 穿为龙傲天发妻后 https://www.kanju688.com/book/pb0bc1/
 - 恐游里的邻居们[万人迷] https://www.kanju688.com/book/pb0bbt/
@@ -82,8 +83,8 @@
 - 始乱终弃清冷首辅后 https://www.kanju688.com/book/pauvgg/
 - 原配夫人 https://www.kanju688.com/book/pauvea/
 - 十九世纪贵族厨房（美食） https://www.kanju688.com/book/pauvds/
-- 星际团宠小人鱼 https://www.kanju688.com/book/pauvdd/
 - 完蛋！被恨孕男包围了！ https://www.kanju688.com/book/pauofb/
+- 我只梦你一页 https://www.kanju688.com/book/pauoet/
 - 高调装神，猥琐发育 https://www.kanju688.com/book/pauoa8/
 - 食明 https://www.kanju688.com/book/paumbm/
 - 诡话第一boss https://www.kanju688.com/book/pauj1g/
@@ -92,7 +93,6 @@
 - [足球]我的游戏存档成真了？！ https://www.kanju688.com/book/pauacn/
 - 我与龙傲天寿命共享 https://www.kanju688.com/book/pau9gj/
 - 让你们无剧本可走（快穿） https://www.kanju688.com/book/pau7s3/
-- 摄政王家的咸鱼夫郎 https://www.kanju688.com/book/pau73l/
 - 如何正确哄睡暴君 https://www.kanju688.com/book/pau5rb/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.kanju688.com/book/pau07f/
 - 死遁的亡夫们都回来了 https://www.kanju688.com/book/pau01q/
@@ -106,6 +106,7 @@
 - 同时扮演贵族学院F4和平民校花 https://www.kanju688.com/book/patglo/
 - 从童星开始杀穿港娱 https://www.kanju688.com/book/patfmv/
 - 开局绑定郭奉孝，谋定三国风云 https://www.kanju688.com/book/patf1b/
+- 月亮上的大筒木 https://www.kanju688.com/book/patedh/
 - 路人攻了主角攻［快穿］ https://www.kanju688.com/book/patd2b/
 - 苏娘子汴京摆摊日常（美食） https://www.kanju688.com/book/patbtc/
 - 漂亮女配是万人迷［快穿］ https://www.kanju688.com/book/patbsh/
@@ -142,7 +143,6 @@
 - 恶犬攻绑定上司的乖狗系统 https://www.kanju688.com/book/parvve/
 - 权宋一只统 https://www.kanju688.com/book/parqum/
 - 爱好和平但狂拆机甲 https://www.kanju688.com/book/parn9n/
-- 仙门透明人被迫万人迷 https://www.kanju688.com/book/paqppe/
 - [娱乐圈]过分美丽的她 https://www.kanju688.com/book/paqppb/
 - 五十年代港城日常 https://www.kanju688.com/book/paqpot/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.kanju688.com/book/paqpmm/
@@ -151,7 +151,6 @@
 - 我有一座安全城 https://www.kanju688.com/book/paqpgg/
 - 日化人生[科研] https://www.kanju688.com/book/paqpe1/
 - 直男咒术师的限制级游戏 https://www.kanju688.com/book/paqpcv/
-- 寡妇美人模拟器 https://www.kanju688.com/book/paqot3/
 - 成为养成系练习生后 https://www.kanju688.com/book/paqor8/
 - 老公对不起 https://www.kanju688.com/book/paqopr/
 - 海岛求生：生活玩家种田囤货 https://www.kanju688.com/book/paqomg/

@@ -1,7 +1,7 @@
 
 # 爱阅读-最新优质免费无弹窗小说在线阅读
 
-更新时间：2026-09-08 03:48:48
+更新时间：2026-09-09 03:49:03
 
 爱阅读提供清爽干净、页面整洁没弹窗的网络小说阅读体验。这里有大量的免费小说、完本小说供您选择，包括热门言情小说、玄幻小说、仙侠小说等多种类型。是广大书友必备的纯绿色小说阅读网站。 https://www.yuedu788.com
 
@@ -159,14 +159,12 @@
 - 攻五是来拆散这个家的［穿书］ https://www.yuedu788.com/book/1on4ovv/
 - 若清晨所见之蓝 https://www.yuedu788.com/book/1on4on4/
 - 巨龙宝藏是个小社恐 https://www.yuedu788.com/book/1on4oea/
-- 被鬼怪宠爱的漂亮书生 https://www.yuedu788.com/book/1on4o8o/
 - 沉烟 https://www.yuedu788.com/book/1on4o41/
 - 万人迷总被入侵角色觊觎[快穿] https://www.yuedu788.com/book/1on4o3l/
 - 普通人的乙女RPG[西幻] https://www.yuedu788.com/book/1on4o0a/
 - 渣攻试图洗白[快穿] https://www.yuedu788.com/book/1on4nsf/
 - [全职高手]小船 https://www.yuedu788.com/book/1on4nck/
 - 纨绔渣A拒绝入赘长公主府 https://www.yuedu788.com/book/1on4nar/
-- 沈助理又在隐藏他的超能力 https://www.yuedu788.com/book/1on4n90/
 - 忍界有文学 https://www.yuedu788.com/book/1on4mkd/
 - 老公是松散生命体 https://www.yuedu788.com/book/1on4luj/
 - 苗疆蛊女模拟器 https://www.yuedu788.com/book/1on4lst/
@@ -232,7 +230,6 @@
 - 一见倾心[快穿] https://www.yuedu788.com/book/1on4c68/
 - 变成龙傲天的心上猫后 https://www.yuedu788.com/book/1on4c46/
 - 亚当斯与韦恩的适配性 https://www.yuedu788.com/book/1on4bk0/
-- 误入反派培养直播后 https://www.yuedu788.com/book/1on4ba6/
 - 人外收集录［快穿］ https://www.yuedu788.com/book/1on4b1q/
 - 强爱清冷O后她上瘾了[快穿] https://www.yuedu788.com/book/1on4b0n/
 - 吃瓜也能整顿豪门？ https://www.yuedu788.com/book/1on4b0e/
@@ -275,7 +272,6 @@
 - 漫画路人绑定系统后 https://www.yuedu788.com/book/1on46hb/
 - 被小蜘蛛听见心声后 https://www.yuedu788.com/book/1on46df/
 - [综英美]如何获得地球户口 https://www.yuedu788.com/book/1on46cm/
-- 炮灰的我该如何上位？ https://www.yuedu788.com/book/1on46a2/
 - 一觉醒来老公变男大了 https://www.yuedu788.com/book/1on4650/
 - 被四皇错看成小动物后 https://www.yuedu788.com/book/1on464m/
 - 限时心动 https://www.yuedu788.com/book/1on4628/
@@ -435,7 +431,7 @@
 - 暴君偏头痛 https://www.yuedu788.com/book/1on310t/
 - 和室友他爸恋爱后 https://www.yuedu788.com/book/1on2vhn/
 - 满级竹马从异世穿回来了 https://www.yuedu788.com/book/1on2p7b/
-- 阴郁路人不想被喜欢 https://www.yuedu788.com/book/1on1qbm/
+- 魔物堆里的人类幼崽 https://www.yuedu788.com/book/1on1qdf/
 - 京秋婚约 https://www.yuedu788.com/book/1on1pl1/
 - 直男咒术师的限制级游戏 https://www.yuedu788.com/book/1on1no0/
 ## 相关内容

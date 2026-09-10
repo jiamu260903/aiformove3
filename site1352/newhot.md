@@ -1,7 +1,7 @@
 
 # 读者电子书-全本TXT小说免费下载,最新全集小说阅读
 
-更新时间：2026-09-08 03:28:21
+更新时间：2026-09-09 03:28:29
 
 读者电子书提供全本TXT小说下载及完整版电子书下载服务，涵盖各类最新最全的小说资源，支持手机等多终端阅读。每日更新，满足您的阅读需求。 https://www.duzhe368.com
 
@@ -163,11 +163,9 @@
 - 纨绔渣A拒绝入赘长公主府 https://www.duzhe368.com/book/3hfsnqb/
 - 忍界有文学 https://www.duzhe368.com/book/3hfsn4f/
 - 万人迷总被入侵角色觊觎[快穿] https://www.duzhe368.com/book/3hfsml9/
-- 被鬼怪宠爱的漂亮书生 https://www.duzhe368.com/book/3hfsmj5/
 - 苗疆蛊女模拟器 https://www.duzhe368.com/book/3hfsmfh/
 - 渣攻试图洗白[快穿] https://www.duzhe368.com/book/3hfsm80/
 - 老公是松散生命体 https://www.duzhe368.com/book/3hfsm47/
-- 沈助理又在隐藏他的超能力 https://www.duzhe368.com/book/3hfslur/
 - [全职高手]小船 https://www.duzhe368.com/book/3hfslm3/
 - 沉烟 https://www.duzhe368.com/book/3hfslii/
 - [足球]那个德国队新皇 https://www.duzhe368.com/book/3hfskmv/
@@ -238,7 +236,6 @@
 - 父皇，我是gay https://www.duzhe368.com/book/3hfsb3p/
 - 反派的病弱白月光重生了 https://www.duzhe368.com/book/3hfsb3f/
 - 荒谬神父是个渣 https://www.duzhe368.com/book/3hfsau4/
-- 误入反派培养直播后 https://www.duzhe368.com/book/3hfsasl/
 - 请别摘下超能力社恐的耳机 https://www.duzhe368.com/book/3hfsaoq/
 - 少女妄想症 https://www.duzhe368.com/book/3hfsahr/
 - 变成龙傲天的心上猫后 https://www.duzhe368.com/book/3hfsadb/
@@ -290,7 +287,6 @@
 - 侦探小说的大忌[福尔摩斯] https://www.duzhe368.com/book/3hfs4mo/
 - 异种大食堂[无限] https://www.duzhe368.com/book/3hfs4ls/
 - [综英美]如何获得地球户口 https://www.duzhe368.com/book/3hfs4fj/
-- 炮灰的我该如何上位？ https://www.duzhe368.com/book/3hfs4e4/
 - 佐久早才不是洁癖！ https://www.duzhe368.com/book/3hfs480/
 - [封神]圣人生欲 https://www.duzhe368.com/book/3hfs47l/
 - 修仙回来后开了间民宿 https://www.duzhe368.com/book/3hfs457/
@@ -436,7 +432,7 @@
 - 和室友他爸恋爱后 https://www.duzhe368.com/book/3hfqv5s/
 - 满级竹马从异世穿回来了 https://www.duzhe368.com/book/3hfqp5r/
 - 京秋婚约 https://www.duzhe368.com/book/3hfpov6/
-- 阴郁路人不想被喜欢 https://www.duzhe368.com/book/3hfpooo/
+- 魔物堆里的人类幼崽 https://www.duzhe368.com/book/3hfpops/
 - 直男咒术师的限制级游戏 https://www.duzhe368.com/book/3hfpmre/
 ## 相关内容
 - [README](/README.md)

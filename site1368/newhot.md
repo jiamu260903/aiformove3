@@ -1,7 +1,7 @@
 
 # 探秘书院-全本小说最值得收藏的绿色无弹窗免费小说阅读网
 
-更新时间：2026-09-08 03:42:19
+更新时间：2026-09-09 03:42:18
 
 探秘书院提供全本网文爱好者一个纯净、安全、高质量的免费小说阅读环境，支持最新章节在线阅读，所有内容均为绿色无弹窗且保证无错字。 https://www.tanmi918.com
 
@@ -160,8 +160,6 @@
 - 七零知青有空间 https://www.tanmi918.com/book/80r29lb/
 - [综武侠]换装之江湖遍地是小号 https://www.tanmi918.com/book/80r29ju/
 - 沉烟 https://www.tanmi918.com/book/80r291q/
-- 沈助理又在隐藏他的超能力 https://www.tanmi918.com/book/80r28co/
-- 被鬼怪宠爱的漂亮书生 https://www.tanmi918.com/book/80r28be/
 - [全职高手]小船 https://www.tanmi918.com/book/80r289q/
 - 苗疆蛊女模拟器 https://www.tanmi918.com/book/80r287a/
 - 老公是松散生命体 https://www.tanmi918.com/book/80r27r9/
@@ -233,7 +231,6 @@
 - [足球]职业模拟器但足坛 https://www.tanmi918.com/book/80r1t2f/
 - 荒谬神父是个渣 https://www.tanmi918.com/book/80r1t1r/
 - 一见倾心[快穿] https://www.tanmi918.com/book/80r1sua/
-- 误入反派培养直播后 https://www.tanmi918.com/book/80r1sso/
 - 吃瓜也能整顿豪门？ https://www.tanmi918.com/book/80r1sor/
 - 摆烂后我成了邪神学院大佬 https://www.tanmi918.com/book/80r1soc/
 - 父皇，我是gay https://www.tanmi918.com/book/80r1sn7/
@@ -302,7 +299,6 @@
 - 金发室友有肌肤饥渴症 https://www.tanmi918.com/book/80r1la6/
 - 被四皇错看成小动物后 https://www.tanmi918.com/book/80r1l9m/
 - 侦探小说的大忌[福尔摩斯] https://www.tanmi918.com/book/80r1l8l/
-- 炮灰的我该如何上位？ https://www.tanmi918.com/book/80r1l78/
 - [封神]圣人生欲 https://www.tanmi918.com/book/80r1l4q/
 - 瓮中惊春 https://www.tanmi918.com/book/80r1ktl/
 - 作家与读者 https://www.tanmi918.com/book/80r1kme/
@@ -435,9 +431,9 @@
 - 暴君偏头痛 https://www.tanmi918.com/book/80r0ht4/
 - 和室友他爸恋爱后 https://www.tanmi918.com/book/80r0g7g/
 - 满级竹马从异世穿回来了 https://www.tanmi918.com/book/80r0b9u/
-- 阴郁路人不想被喜欢 https://www.tanmi918.com/book/80qv9pr/
 - 京秋婚约 https://www.tanmi918.com/book/80qv90f/
 - 直男咒术师的限制级游戏 https://www.tanmi918.com/book/80qv8ut/
+- 魔物堆里的人类幼崽 https://www.tanmi918.com/book/80qv8jd/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1368/index.md)

@@ -1,7 +1,7 @@
 
 # 炫书网-免费全本小说在线阅读分享平台
 
-更新时间：2026-09-08 03:46:51
+更新时间：2026-09-09 03:47:04
 
 炫书网提供免费全本小说在线阅读服务，是国内领先的全集全本完结TXT电子书免费下载分享平台。用户可以上传或下载各种类型的优秀电子书籍。 https://www.xqwz8bk.com
 
@@ -33,8 +33,8 @@
 - [封神]圣人生欲 https://www.xqwz8bk.com/book/1igm2t8/
 - 高调装神，猥琐发育 https://www.xqwz8bk.com/book/1igm2sj/
 - 满级竹马从异世穿回来了 https://www.xqwz8bk.com/book/1igm2r9/
-- 阴郁路人不想被喜欢 https://www.xqwz8bk.com/book/1igm2r3/
 - 京秋婚约 https://www.xqwz8bk.com/book/1igm2qv/
+- 魔物堆里的人类幼崽 https://www.xqwz8bk.com/book/1igm2o1/
 - 直男咒术师的限制级游戏 https://www.xqwz8bk.com/book/1igm2nn/
 - 求生游戏：当邪神成为生活玩家后 https://www.xqwz8bk.com/book/1igm2na/
 - 修仙界都为我神魂颠倒 https://www.xqwz8bk.com/book/1iglnru/
@@ -200,7 +200,6 @@
 - 沉烟 https://www.xqwz8bk.com/book/51ni3n/
 - [综武侠]与剑有缘 https://www.xqwz8bk.com/book/51ni26/
 - 全星际捧我当神明 https://www.xqwz8bk.com/book/51nhf2/
-- 沈助理又在隐藏他的超能力 https://www.xqwz8bk.com/book/51nhdc/
 - 夏油弟弟在立海大 https://www.xqwz8bk.com/book/51nh5m/
 - 如何投入虚情假意 https://www.xqwz8bk.com/book/51ngqp/
 - 骄纵漂亮万人嫌被觊觎后［快穿］ https://www.xqwz8bk.com/book/51nglg/
@@ -410,7 +409,6 @@
 - 青空来信 https://www.xqwz8bk.com/book/51mkdd/
 - 老公是松散生命体 https://www.xqwz8bk.com/book/51mj0i/
 - 我最讨厌打球了！ https://www.xqwz8bk.com/book/51mfm4/
-- 误入反派培养直播后 https://www.xqwz8bk.com/book/51ma0q/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.xqwz8bk.com/book/51m8ed/
 - [足球]罗蜜第一志愿 https://www.xqwz8bk.com/book/51m4qf/
 - 哥你不能不要我 https://www.xqwz8bk.com/book/51lih5/

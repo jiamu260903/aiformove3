@@ -1,11 +1,12 @@
 
 # 都来读小说网 - 免费电子书阅读平台
 
-更新时间：2026-09-08 03:41:49
+更新时间：2026-09-09 03:41:48
 
 都来读小说网提供快速更新的海量免费小说资源，主要以TXT格式为主，致力于为读者带来优质的阅读体验。 https://www.swazs.com
 
 ## 最新小说
+- 网球带给齐木的灾难 https://www.swazs.com/book/1u7ktkl/
 - 当甚尔转生成继国 https://www.swazs.com/book/1u7krnm/
 - 节能型社恐靠交友存活打排球 https://www.swazs.com/book/1u7kr08/
 - 渣攻他疯了［快穿］ https://www.swazs.com/book/1u7kqfe/
@@ -28,7 +29,6 @@
 - 我有嘉宾 https://www.swazs.com/book/1u7kf01/
 - 孤独症崽崽穿越到狗血爽文里[穿书] https://www.swazs.com/book/1u7kevs/
 - 我，始皇闺女，未来皇帝，打钱 https://www.swazs.com/book/1u7keh7/
-- 阴郁路人不想被喜欢 https://www.swazs.com/book/1u7ke07/
 - 开局给李世民盘点安史之乱 https://www.swazs.com/book/1u7kdo8/
 - 怪谈小镇游玩指南[无限] https://www.swazs.com/book/1u7kcoj/
 - 离开那个混蛋后 https://www.swazs.com/book/1u7kbtp/
@@ -53,7 +53,6 @@
 - 伪装路人后成了反派首领 https://www.swazs.com/book/1u7j8r9/
 - 乱步他哥，但武力值max https://www.swazs.com/book/1u7j8p6/
 - 求求你们别吃了 https://www.swazs.com/book/1u7j8o1/
-- 被鬼怪宠爱的漂亮书生 https://www.swazs.com/book/1u7j8mc/
 - [足球]葡萄牙世界杯if线 https://www.swazs.com/book/1u7j8ar/
 - 我在无限游戏里假扮NPC[无限流] https://www.swazs.com/book/1u7j88c/
 - 女装生崽，娃爹宇智波 https://www.swazs.com/book/1u7j7nk/
@@ -157,7 +156,6 @@
 - 攻五是来拆散这个家的［穿书］ https://www.swazs.com/book/1u7igmg/
 - 普通人的乙女RPG[西幻] https://www.swazs.com/book/1u7igih/
 - 苗疆蛊女模拟器 https://www.swazs.com/book/1u7ig82/
-- 沈助理又在隐藏他的超能力 https://www.swazs.com/book/1u7ig3g/
 - 渣攻试图洗白[快穿] https://www.swazs.com/book/1u7ifv7/
 - 纨绔渣A拒绝入赘长公主府 https://www.swazs.com/book/1u7ifs1/
 - 和室友他爸恋爱后 https://www.swazs.com/book/1u7ifr5/
@@ -254,7 +252,6 @@
 - 豪门养子怀了大哥的崽 https://www.swazs.com/book/1u7i1bl/
 - 退圈后，我靠职场综艺火爆全网 https://www.swazs.com/book/1u7i16o/
 - 忍界修罗金屋藏娇了？ https://www.swazs.com/book/1u7i12k/
-- 炮灰的我该如何上位？ https://www.swazs.com/book/1u7i12f/
 - 野比春子穿越事件簿 https://www.swazs.com/book/1u7i126/
 - 人在综漫，但崩铁马甲 https://www.swazs.com/book/1u7i11t/
 - 三代单传妈宝女[七零] https://www.swazs.com/book/1u7i0ft/
@@ -426,18 +423,19 @@
 - 柯学剧本杀，但恋爱流打法 https://www.swazs.com/book/1u7hiue/
 - 好巧，你也是妹控？[综崩铁] https://www.swazs.com/book/1u7hih2/
 - 我，剑圣，养生中，勿扰 https://www.swazs.com/book/1u7hi0l/
+- 魔物堆里的人类幼崽 https://www.swazs.com/book/1u7hhqv/
 - 欢迎来到重生点 https://www.swazs.com/book/1u7hgth/
 - 李玉灯 https://www.swazs.com/book/1u7hgsv/
 - [综英美]和亲友群穿哥谭以后 https://www.swazs.com/book/1u7hcuo/
 - [崩铁]请给玩家一个准确的血条！ https://www.swazs.com/book/1u7hc1v/
 - 自大狂 https://www.swazs.com/book/1u7h1ru/
+- 为她守节第十年 https://www.swazs.com/book/1u7gv3s/
 - 书呆子扮演渣攻翻车【快穿】 https://www.swazs.com/book/1u7gsnb/
 - 满级竹马从异世穿回来了 https://www.swazs.com/book/1u7gq7c/
 - 丧尸老婆喂养日记 https://www.swazs.com/book/1u7ghe1/
 - 朕看上的少年是侠女 https://www.swazs.com/book/1u7fior/
 - 被四皇错看成小动物后 https://www.swazs.com/book/1u7fi8k/
 - 你，后室管理员 https://www.swazs.com/book/1u7fgu9/
-- 误入反派培养直播后 https://www.swazs.com/book/1u7fgog/
 - [封神]圣人生欲 https://www.swazs.com/book/1u7fg6j/
 - 高调装神，猥琐发育 https://www.swazs.com/book/1u7fft4/
 ## 相关内容

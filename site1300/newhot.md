@@ -1,7 +1,7 @@
 
 # 棉花糖小说网-最好的免费小说阅读网站
 
-更新时间：2026-09-08 03:34:56
+更新时间：2026-09-09 03:34:59
 
 棉花糖小说网提供当前最火热的小说资源，支持免费在线阅读及TXT格式下载，致力于为读者带来优质的阅读体验。 https://www.littlemissribbon.com
 
@@ -32,9 +32,9 @@
 - 朕看上的少年是侠女 https://www.littlemissribbon.com/book/5asiirs/
 - 你，后室管理员 https://www.littlemissribbon.com/book/5asiir2/
 - 高调装神，猥琐发育 https://www.littlemissribbon.com/book/5asiiqh/
+- 魔物堆里的人类幼崽 https://www.littlemissribbon.com/book/5asiipu/
 - 满级竹马从异世穿回来了 https://www.littlemissribbon.com/book/5asiipp/
 - 京秋婚约 https://www.littlemissribbon.com/book/5asiipn/
-- 阴郁路人不想被喜欢 https://www.littlemissribbon.com/book/5asiinm/
 - 直男咒术师的限制级游戏 https://www.littlemissribbon.com/book/5asiilt/
 - 求生游戏：当邪神成为生活玩家后 https://www.littlemissribbon.com/book/5asiil8/
 - 昭暮 https://www.littlemissribbon.com/book/5asi7qf/
@@ -201,7 +201,6 @@
 - 开局一间小卖部[经营] https://www.littlemissribbon.com/book/h2til5/
 - 如何投入虚情假意 https://www.littlemissribbon.com/book/h2tida/
 - [综英美]和小杰鸟青梅竹马的日子 https://www.littlemissribbon.com/book/h2ticc/
-- 沈助理又在隐藏他的超能力 https://www.littlemissribbon.com/book/h2ti9r/
 - [足球]那个德国队新皇 https://www.littlemissribbon.com/book/h2ti51/
 - 绝色美人模拟器[快穿] https://www.littlemissribbon.com/book/h2ti35/
 - 全星际捧我当神明 https://www.littlemissribbon.com/book/h2ti0v/
@@ -410,7 +409,6 @@
 - 青空来信 https://www.littlemissribbon.com/book/h2sl7l/
 - 这谁的沙雕二次元心声！ https://www.littlemissribbon.com/book/h2skud/
 - 我最讨厌打球了！ https://www.littlemissribbon.com/book/h2sgid/
-- 误入反派培养直播后 https://www.littlemissribbon.com/book/h2sbo8/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.littlemissribbon.com/book/h2s9nn/
 - [足球]罗蜜第一志愿 https://www.littlemissribbon.com/book/h2s77r/
 - 哥你不能不要我 https://www.littlemissribbon.com/book/h2rkj7/

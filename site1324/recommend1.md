@@ -1,11 +1,12 @@
 
 # 笔趣阁小说网 - 免费在线阅读百万小说
 
-更新时间：2026-09-08 03:46:18
+更新时间：2026-09-09 03:46:31
 
 笔趣阁小说网提供免费的小说在线阅读服务，包括但不限于各类热门小说、经典文学等。网站支持书架同步功能，确保用户阅读进度永不丢失。快来加入我们，享受无障碍、无广告的纯净阅读体验吧！ https://www.xiaoshuo139.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.xiaoshuo139.com/book/2ch7u8k/
 - 谁说踢球就不能成为名侦探[足球] https://www.xiaoshuo139.com/book/2ch7u8g/
 - [足球]雏鸟 https://www.xiaoshuo139.com/book/2ch7u8f/
 - 穿为龙傲天发妻后 https://www.xiaoshuo139.com/book/2ch7u8e/
@@ -82,7 +83,7 @@
 - 原配夫人 https://www.xiaoshuo139.com/book/2ch7tvu/
 - [封神]圣人生欲 https://www.xiaoshuo139.com/book/2ch7tus/
 - 始乱终弃清冷首辅后 https://www.xiaoshuo139.com/book/2ch7tuh/
-- 星际团宠小人鱼 https://www.xiaoshuo139.com/book/2ch7tug/
+- 我只梦你一页 https://www.xiaoshuo139.com/book/2ch7tud/
 - 高调装神，猥琐发育 https://www.xiaoshuo139.com/book/2ch7tuc/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.xiaoshuo139.com/book/2ch7tqb/
 - 直男咒术师的限制级游戏 https://www.xiaoshuo139.com/book/2ch7tqa/
@@ -101,17 +102,14 @@
 - 食明 https://www.xiaoshuo139.com/book/2ch551p/
 - 诡话第一boss https://www.xiaoshuo139.com/book/2ch51sd/
 - 让暴君Alpha怀崽后 https://www.xiaoshuo139.com/book/2ch4t6a/
-- 仙门透明人被迫万人迷 https://www.xiaoshuo139.com/book/2ch4t4e/
 - 专业女配的自我修养（快穿） https://www.xiaoshuo139.com/book/2ch4qgl/
 - 日化人生[科研] https://www.xiaoshuo139.com/book/2ch4p15/
 - 老实人妻，但顶级魅魔 https://www.xiaoshuo139.com/book/2ch4oep/
 - 巨物致富：回乡开钓场 https://www.xiaoshuo139.com/book/2ch4nku/
 - [足球]我的游戏存档成真了？！ https://www.xiaoshuo139.com/book/2ch4jg4/
 - 让你们无剧本可走（快穿） https://www.xiaoshuo139.com/book/2ch4j2i/
-- 寡妇美人模拟器 https://www.xiaoshuo139.com/book/2ch4g2a/
 - 趁她之危 https://www.xiaoshuo139.com/book/2ch4fmg/
 - 起初，我只是想找个冤大头 https://www.xiaoshuo139.com/book/2ch4du6/
-- 摄政王家的咸鱼夫郎 https://www.xiaoshuo139.com/book/2ch49o6/
 - 死遁的亡夫们都回来了 https://www.xiaoshuo139.com/book/7kvqpl/
 - 天幕今天也在直播我搞基建 https://www.xiaoshuo139.com/book/7kvp0c/
 - 沈助理又在隐藏他的超能力 https://www.xiaoshuo139.com/book/7kvohr/
@@ -153,6 +151,7 @@
 - 海岛求生：生活玩家种田囤货 https://www.xiaoshuo139.com/book/ofocq/
 - 我是唯一地上神国 https://www.xiaoshuo139.com/book/ofoc8/
 - 开局绑定郭奉孝，谋定三国风云 https://www.xiaoshuo139.com/book/ofoa1/
+- 月亮上的大筒木 https://www.xiaoshuo139.com/book/ofo6o/
 - 我有一座安全城 https://www.xiaoshuo139.com/book/ofnp9/
 - [娱乐圈]过分美丽的她 https://www.xiaoshuo139.com/book/ofnfb/
 - 95美国贵族高中模拟 https://www.xiaoshuo139.com/book/ofnbq/

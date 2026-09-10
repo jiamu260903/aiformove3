@@ -1,7 +1,7 @@
 
 # 精英文学 - 书友最值得收藏的小说免费阅读网
 
-更新时间：2026-09-08 03:45:48
+更新时间：2026-09-09 03:46:02
 
 精英文学为您提供一个干净舒适的阅读环境，作为书友最值得收藏的小说免费阅读网之一，我们致力于打造无广告干扰的最佳在线阅读体验。 https://www.xcposji.com
 
@@ -32,7 +32,6 @@
 - 我比反派先崩坏[快穿] https://www.xcposji.com/book/jnmlfn/
 - cos温迪后玩到真崩铁了 https://www.xcposji.com/book/jnmh2i/
 - 娇气点怎么啦？［快穿］ https://www.xcposji.com/book/jnmghk/
-- 阴郁路人不想被喜欢 https://www.xcposji.com/book/jnmgdu/
 - [崩铁]这丰饶孽物我当定了！ https://www.xcposji.com/book/jnmfq3/
 - 不义世界都是我马甲[综英美] https://www.xcposji.com/book/jnmfjc/
 - 我有嘉宾 https://www.xcposji.com/book/jnmeoo/
@@ -94,7 +93,6 @@
 - 反派真少爷搞了个抱错综艺后[穿书] https://www.xcposji.com/book/jnktaj/
 - [综英美]怎么就蝙蝠崽文学了 https://www.xcposji.com/book/jnkslf/
 - 嗲精人设走偏啦［穿书］ https://www.xcposji.com/book/jnksdm/
-- 被鬼怪宠爱的漂亮书生 https://www.xcposji.com/book/jnks95/
 - 疯子装什么乖 https://www.xcposji.com/book/jnks8d/
 - 万人迷绑定美强惨系统后 https://www.xcposji.com/book/jnkrsn/
 - 好巧，我爸也是狗血文男主 https://www.xcposji.com/book/jnkrhm/
@@ -166,7 +164,6 @@
 - 忍界有文学 https://www.xcposji.com/book/jnkdk5/
 - 咦？我爸爸复活啦 https://www.xcposji.com/book/jnkd7d/
 - 万人迷总被入侵角色觊觎[快穿] https://www.xcposji.com/book/jnkd3j/
-- 沈助理又在隐藏他的超能力 https://www.xcposji.com/book/jnkcq6/
 - 逃妾 https://www.xcposji.com/book/jnkcgk/
 - 普通人的乙女RPG[西幻] https://www.xcposji.com/book/jnkc22/
 - 沉烟 https://www.xcposji.com/book/jnkbsf/
@@ -265,7 +262,6 @@
 - 假如樱是砂忍 https://www.xcposji.com/book/jnju0b/
 - 退圈后，我靠职场综艺火爆全网 https://www.xcposji.com/book/jnjtui/
 - 挚友和我穿越后分了阵营 https://www.xcposji.com/book/jnjtu1/
-- 炮灰的我该如何上位？ https://www.xcposji.com/book/jnjthn/
 - 如何登顶反派第一 https://www.xcposji.com/book/jnjteu/
 - 我被厉鬼盯上了 https://www.xcposji.com/book/jnjtep/
 - 野比春子穿越事件簿 https://www.xcposji.com/book/jnjt8e/
@@ -419,6 +415,7 @@
 - 幼崽假少爷选择回归寒门 https://www.xcposji.com/book/jnjgr6/
 - 刀子精手心的人偶崽崽 https://www.xcposji.com/book/jnjghl/
 - 求生游戏：当邪神成为生活玩家后 https://www.xcposji.com/book/jnjgeq/
+- 魔物堆里的人类幼崽 https://www.xcposji.com/book/jnjdnq/
 - [足球]小小鸟堂堂来袭 https://www.xcposji.com/book/jnjdmg/
 - 好巧，你也是妹控？[综崩铁] https://www.xcposji.com/book/jnjdi5/
 - 撕毁女配剧本的我被神之子读心了 https://www.xcposji.com/book/jnjcll/
@@ -443,7 +440,6 @@
 - 被四皇错看成小动物后 https://www.xcposji.com/book/jnhekj/
 - 高调装神，猥琐发育 https://www.xcposji.com/book/jnheam/
 - 你，后室管理员 https://www.xcposji.com/book/jnheaf/
-- 误入反派培养直播后 https://www.xcposji.com/book/jnhdri/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1375/index.md)

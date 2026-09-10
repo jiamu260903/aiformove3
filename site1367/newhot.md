@@ -1,7 +1,7 @@
 
 # 奇幻笔趣屋 - 书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-08 03:37:50
+更新时间：2026-09-09 03:37:51
 
 奇幻笔趣屋收录整理最新最全的热门网络小说，提供所有小说首发最新章节免费阅读服务，是书友们最值得收藏的小说阅读网站。 https://www.qihuan958.com
 
@@ -164,11 +164,9 @@
 - [全职高手]小船 https://www.qihuan958.com/book/4rard01/
 - 纨绔渣A拒绝入赘长公主府 https://www.qihuan958.com/book/4rarcq4/
 - 苗疆蛊女模拟器 https://www.qihuan958.com/book/4rarcjt/
-- 被鬼怪宠爱的漂亮书生 https://www.qihuan958.com/book/4rarbs6/
 - 忍界有文学 https://www.qihuan958.com/book/4rarbis/
 - 老公是松散生命体 https://www.qihuan958.com/book/4rarb8o/
 - 沉烟 https://www.qihuan958.com/book/4rarb0n/
-- 沈助理又在隐藏他的超能力 https://www.qihuan958.com/book/4rarat8/
 - 普通人的乙女RPG[西幻] https://www.qihuan958.com/book/4rarasa/
 - 想换个老公怎么这么难 https://www.qihuan958.com/book/4rarai7/
 - 夏油弟弟在立海大 https://www.qihuan958.com/book/4rarafq/
@@ -228,7 +226,6 @@
 - 我的餐馆通历史诸朝 https://www.qihuan958.com/book/4rar2m7/
 - 清穿纯妃养娃日常 https://www.qihuan958.com/book/4rar26j/
 - 和灵异片boss谈恋爱 https://www.qihuan958.com/book/4rar1mb/
-- 误入反派培养直播后 https://www.qihuan958.com/book/4rar1j0/
 - 反派的病弱白月光重生了 https://www.qihuan958.com/book/4rar1it/
 - 摆烂后我成了邪神学院大佬 https://www.qihuan958.com/book/4rar1ec/
 - 蜜蜂膝盖银子弹 https://www.qihuan958.com/book/4rar1e8/
@@ -274,7 +271,6 @@
 - [西汉]我打工给全家改命 https://www.qihuan958.com/book/4raqrqp/
 - 主角对你极度痴迷 https://www.qihuan958.com/book/4raqrl5/
 - 漫画路人绑定系统后 https://www.qihuan958.com/book/4raqrk5/
-- 炮灰的我该如何上位？ https://www.qihuan958.com/book/4raqree/
 - 限时心动 https://www.qihuan958.com/book/4raqrdj/
 - 修仙回来后开了间民宿 https://www.qihuan958.com/book/4raqrbd/
 - 一觉醒来老公变男大了 https://www.qihuan958.com/book/4raqr9u/
@@ -436,7 +432,7 @@
 - 和室友他爸恋爱后 https://www.qihuan958.com/book/4raplr7/
 - 满级竹马从异世穿回来了 https://www.qihuan958.com/book/4rape62/
 - 直男咒术师的限制级游戏 https://www.qihuan958.com/book/4raof4l/
-- 阴郁路人不想被喜欢 https://www.qihuan958.com/book/4raoedu/
+- 魔物堆里的人类幼崽 https://www.qihuan958.com/book/4raod8n/
 - 京秋婚约 https://www.qihuan958.com/book/4raoct7/
 ## 相关内容
 - [README](/README.md)

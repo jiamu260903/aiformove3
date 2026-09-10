@@ -1,7 +1,7 @@
 
 # 科幻188文学网-最新章节全文小说免费阅读
 
-更新时间：2026-09-08 03:33:16
+更新时间：2026-09-09 03:33:19
 
 科幻188文学网给广大网友提供最好的小说阅读服务，全站小说均可免费阅读且无任何弹窗干扰。这里是你寻找最新最全小说内容的理想之地。 https://www.kehuan188.com
 
@@ -166,10 +166,8 @@
 - 万人迷总被入侵角色觊觎[快穿] https://www.kehuan188.com/book/56q0keb/
 - 普通人的乙女RPG[西幻] https://www.kehuan188.com/book/56q0ke8/
 - 老公是松散生命体 https://www.kehuan188.com/book/56q0ka3/
-- 沈助理又在隐藏他的超能力 https://www.kehuan188.com/book/56q0k6r/
 - 忍界有文学 https://www.kehuan188.com/book/56q0k5j/
 - 沉烟 https://www.kehuan188.com/book/56q0k4t/
-- 被鬼怪宠爱的漂亮书生 https://www.kehuan188.com/book/56q0jqb/
 - 不要小看娇妻啊！ https://www.kehuan188.com/book/56q0j0l/
 - 我在原始种田 https://www.kehuan188.com/book/56q0j05/
 - 万人迷误入炮灰片场 https://www.kehuan188.com/book/56q0is0/
@@ -243,7 +241,6 @@
 - 掉马后成了奥特带恶人 https://www.kehuan188.com/book/56q08f3/
 - 人外收集录［快穿］ https://www.kehuan188.com/book/56q08d5/
 - 亚当斯与韦恩的适配性 https://www.kehuan188.com/book/56q087f/
-- 误入反派培养直播后 https://www.kehuan188.com/book/56q07tc/
 - 荒谬神父是个渣 https://www.kehuan188.com/book/56q07sd/
 - 重回被拐那一天[千禧年代] https://www.kehuan188.com/book/56q07bt/
 - 野比春子穿越事件簿 https://www.kehuan188.com/book/56q07ar/
@@ -286,7 +283,6 @@
 - 废土猫猫求生指南 https://www.kehuan188.com/book/56q03p2/
 - 哥你不能不要我 https://www.kehuan188.com/book/56q03jc/
 - 异种大食堂[无限] https://www.kehuan188.com/book/56q03jb/
-- 炮灰的我该如何上位？ https://www.kehuan188.com/book/56q03ea/
 - 主角对你极度痴迷 https://www.kehuan188.com/book/56q034o/
 - 限时心动 https://www.kehuan188.com/book/56q032f/
 - 被小蜘蛛听见心声后 https://www.kehuan188.com/book/56q02se/
@@ -435,8 +431,8 @@
 - 暴君偏头痛 https://www.kehuan188.com/book/56puurj/
 - 和室友他爸恋爱后 https://www.kehuan188.com/book/56pusje/
 - 满级竹马从异世穿回来了 https://www.kehuan188.com/book/56puo0j/
+- 魔物堆里的人类幼崽 https://www.kehuan188.com/book/56ptoa0/
 - 直男咒术师的限制级游戏 https://www.kehuan188.com/book/56ptnln/
-- 阴郁路人不想被喜欢 https://www.kehuan188.com/book/56ptles/
 - 京秋婚约 https://www.kehuan188.com/book/56ptle5/
 ## 相关内容
 - [README](/README.md)

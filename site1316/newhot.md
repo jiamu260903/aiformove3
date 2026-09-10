@@ -1,7 +1,7 @@
 
 # 创意小说网 - 最热门的小说在线阅读
 
-更新时间：2026-09-08 03:26:59
+更新时间：2026-09-09 03:27:09
 
 创意小说网是一个广大书友喜欢的小说网，免费为您提供热门小说无弹窗在线阅读和txt下载。 https://www.chuangyi1687.com
 
@@ -34,7 +34,7 @@
 - 高调装神，猥琐发育 https://www.chuangyi1687.com/book/1hvgooe/
 - 满级竹马从异世穿回来了 https://www.chuangyi1687.com/book/1hvgomm/
 - 京秋婚约 https://www.chuangyi1687.com/book/1hvgomi/
-- 阴郁路人不想被喜欢 https://www.chuangyi1687.com/book/1hvgoju/
+- 魔物堆里的人类幼崽 https://www.chuangyi1687.com/book/1hvgojs/
 - 直男咒术师的限制级游戏 https://www.chuangyi1687.com/book/1hvgojn/
 - 求生游戏：当邪神成为生活玩家后 https://www.chuangyi1687.com/book/1hvgoj6/
 - 昭暮 https://www.chuangyi1687.com/book/1hvgdml/
@@ -200,7 +200,6 @@
 - 绝色美人模拟器[快穿] https://www.chuangyi1687.com/book/500j8s/
 - 全星际捧我当神明 https://www.chuangyi1687.com/book/500j3t/
 - [综武侠]与剑有缘 https://www.chuangyi1687.com/book/500j37/
-- 沈助理又在隐藏他的超能力 https://www.chuangyi1687.com/book/500j2q/
 - 旖旎新婚 https://www.chuangyi1687.com/book/500iss/
 - 围观吃瓜却发现老公和别人在一起 https://www.chuangyi1687.com/book/500ilr/
 - [综英美]和小杰鸟青梅竹马的日子 https://www.chuangyi1687.com/book/500ig5/
@@ -410,7 +409,6 @@
 - 老公是松散生命体 https://www.chuangyi1687.com/book/4vvljq/
 - 青空来信 https://www.chuangyi1687.com/book/4vvlbc/
 - 我最讨厌打球了！ https://www.chuangyi1687.com/book/4vvhap/
-- 误入反派培养直播后 https://www.chuangyi1687.com/book/4vvef4/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.chuangyi1687.com/book/4vvavq/
 - [足球]罗蜜第一志愿 https://www.chuangyi1687.com/book/4vv7ka/
 - 哥你不能不要我 https://www.chuangyi1687.com/book/4vumbd/

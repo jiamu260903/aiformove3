@@ -1,7 +1,7 @@
 
 # 笔下文学-无广告免费在线小说阅读网站
 
-更新时间：2026-09-08 03:29:10
+更新时间：2026-09-09 03:29:17
 
 笔下文学提供了一个完全免费的小说在线阅读与下载平台。我们承诺给用户一个无广告、无弹窗干扰的阅读环境，让每位读者都能享受纯净舒适的阅读体验。 https://www.fshxjd.com
 
@@ -93,7 +93,6 @@
 - 高调装神，猥琐发育 https://www.fshxjd.com/book/74i1qt1/
 - 起初，我只是想找个冤大头 https://www.fshxjd.com/book/74i1qp7/
 - 直男咒术师的限制级游戏 https://www.fshxjd.com/book/74i1j0m/
-- 寡妇美人模拟器 https://www.fshxjd.com/book/74i1j0a/
 - [足球]我的游戏存档成真了？！ https://www.fshxjd.com/book/74i1ils/
 - 仙门透明人被迫万人迷 https://www.fshxjd.com/book/74i1ika/
 - 让你们无剧本可走（快穿） https://www.fshxjd.com/book/74i1iit/
