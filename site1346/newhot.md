@@ -1,7 +1,7 @@
 
 # 奇幻凤影台小说-都市玄幻言情仙侠免费小说在线阅读
 
-更新时间：2026-09-08 03:37:35
+更新时间：2026-09-09 03:37:36
 
 奇幻凤影台小说提供都市玄幻、言情仙侠等类型的小说在线免费阅读服务。让您的通勤路上不再无聊，无论是日常出行还是夜晚静谧时刻，总有一本好书陪伴您度过美好时光。 https://www.qihuan868.com
 
@@ -164,10 +164,8 @@
 - 渣攻试图洗白[快穿] https://www.qihuan868.com/book/42ib8m3/
 - 忍界有文学 https://www.qihuan868.com/book/42ib8ju/
 - 纨绔渣A拒绝入赘长公主府 https://www.qihuan868.com/book/42ib8h7/
-- 被鬼怪宠爱的漂亮书生 https://www.qihuan868.com/book/42ib895/
 - 苗疆蛊女模拟器 https://www.qihuan868.com/book/42ib866/
 - 沉烟 https://www.qihuan868.com/book/42ib82l/
-- 沈助理又在隐藏他的超能力 https://www.qihuan868.com/book/42ib7t2/
 - 普通人的乙女RPG[西幻] https://www.qihuan868.com/book/42ib7lj/
 - [全职高手]小船 https://www.qihuan868.com/book/42ib7hu/
 - 旖旎新婚 https://www.qihuan868.com/book/42ib77e/
@@ -244,7 +242,6 @@
 - 请别摘下超能力社恐的耳机 https://www.qihuan868.com/book/42iasfj/
 - 一见倾心[快穿] https://www.qihuan868.com/book/42iase6/
 - 荒谬神父是个渣 https://www.qihuan868.com/book/42ias17/
-- 误入反派培养直播后 https://www.qihuan868.com/book/42ias02/
 - 娇气包在无限游戏被坏男人骗 https://www.qihuan868.com/book/42iarh9/
 - 重回被拐那一天[千禧年代] https://www.qihuan868.com/book/42iarh6/
 - 皇后守则[快穿] https://www.qihuan868.com/book/42iardo/
@@ -277,7 +274,6 @@
 - 大美人怀了enigma上司的崽 https://www.qihuan868.com/book/42ianug/
 - 贵族学院的直男跟班 https://www.qihuan868.com/book/42ianku/
 - [综英美]让我统治哥谭！！！ https://www.qihuan868.com/book/42ianjm/
-- 炮灰的我该如何上位？ https://www.qihuan868.com/book/42ianjh/
 - 哥你不能不要我 https://www.qihuan868.com/book/42ianj1/
 - [综英美]如何获得地球户口 https://www.qihuan868.com/book/42iani4/
 - 限时心动 https://www.qihuan868.com/book/42iangj/
@@ -435,8 +431,8 @@
 - 关于我虚构了一个男友这件事 https://www.qihuan868.com/book/42i9nho/
 - 和室友他爸恋爱后 https://www.qihuan868.com/book/42i9hen/
 - 满级竹马从异世穿回来了 https://www.qihuan868.com/book/42i9bqm/
-- 阴郁路人不想被喜欢 https://www.qihuan868.com/book/42i8cb8/
 - 京秋婚约 https://www.qihuan868.com/book/42i8b2h/
+- 魔物堆里的人类幼崽 https://www.qihuan868.com/book/42i8ap4/
 - 直男咒术师的限制级游戏 https://www.qihuan868.com/book/42i8anr/
 ## 相关内容
 - [README](/README.md)

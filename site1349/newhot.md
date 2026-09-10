@@ -1,7 +1,7 @@
 
 # 文学小说668 - 全球最新最热的小说阅读平台
 
-更新时间：2026-09-08 03:43:56
+更新时间：2026-09-09 03:44:00
 
 文学小说668是全球最新、最热的小说阅读网站之一，汇集了包括言情小说、玄幻小说、穿越小说在内的各类优质小说资源，让读者能够尽情享受阅读的乐趣。 https://www.wenxue668.com
 
@@ -166,8 +166,6 @@
 - 渣攻试图洗白[快穿] https://www.wenxue668.com/book/44fcd0f/
 - 万人迷总被入侵角色觊觎[快穿] https://www.wenxue668.com/book/44fccsi/
 - 普通人的乙女RPG[西幻] https://www.wenxue668.com/book/44fccls/
-- 被鬼怪宠爱的漂亮书生 https://www.wenxue668.com/book/44fcce2/
-- 沈助理又在隐藏他的超能力 https://www.wenxue668.com/book/44fcbnr/
 - [全职高手]小船 https://www.wenxue668.com/book/44fcbhp/
 - 纨绔渣A拒绝入赘长公主府 https://www.wenxue668.com/book/44fcbah/
 - 转生星际有了签到系统可我是颗树啊 https://www.wenxue668.com/book/44fcb9e/
@@ -243,7 +241,6 @@
 - 反派的病弱白月光重生了 https://www.wenxue668.com/book/44fc038/
 - 蜜蜂膝盖银子弹 https://www.wenxue668.com/book/44fbvss/
 - 亚当斯与韦恩的适配性 https://www.wenxue668.com/book/44fbvme/
-- 误入反派培养直播后 https://www.wenxue668.com/book/44fbvlr/
 - 和灵异片boss谈恋爱 https://www.wenxue668.com/book/44fbvll/
 - 小傻子［无限］ https://www.wenxue668.com/book/44fbvib/
 - 小亲王他不是吉祥物 https://www.wenxue668.com/book/44fbvhd/
@@ -295,7 +292,6 @@
 - 拯救美强惨女主进行时[快穿] https://www.wenxue668.com/book/44fbqli/
 - 金发室友有肌肤饥渴症 https://www.wenxue668.com/book/44fbqar/
 - 主角对你极度痴迷 https://www.wenxue668.com/book/44fbq9f/
-- 炮灰的我该如何上位？ https://www.wenxue668.com/book/44fbq71/
 - 与前妻上了同档综艺 https://www.wenxue668.com/book/44fbq60/
 - [综英美]穿越后和小红鸟灵魂互换了 https://www.wenxue668.com/book/44fbq5s/
 - 乙骨同学很好欺负 https://www.wenxue668.com/book/44fbq33/
@@ -437,7 +433,7 @@
 - 满级竹马从异世穿回来了 https://www.wenxue668.com/book/44faekv/
 - 直男咒术师的限制级游戏 https://www.wenxue668.com/book/44f9fgm/
 - 京秋婚约 https://www.wenxue668.com/book/44f9f3p/
-- 阴郁路人不想被喜欢 https://www.wenxue668.com/book/44f9ee6/
+- 魔物堆里的人类幼崽 https://www.wenxue668.com/book/44f9f2l/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1349/index.md)

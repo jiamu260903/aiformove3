@@ -1,7 +1,7 @@
 
 # 探秘笔神阁小说-好看小说快速更新,页面清新流畅的免费小说网
 
-更新时间：2026-09-08 03:42:04
+更新时间：2026-09-09 03:42:03
 
 探秘笔神阁小说收录了大量受欢迎的小说作品，以极快的速度进行更新，并且保证用户在阅读时能够享受到清新流畅的页面体验。作为一个完全免费的小说网站，它深受广大网友的喜爱。 https://www.tanmi818.com
 
@@ -159,11 +159,9 @@
 - 若清晨所见之蓝 https://www.tanmi818.com/book/977cuqo/
 - 穿书后，导师成了师尊 https://www.tanmi818.com/book/977cude/
 - 带着刀剑穿越伟大航路后，你当上了五皇 https://www.tanmi818.com/book/977cu9f/
-- 被鬼怪宠爱的漂亮书生 https://www.tanmi818.com/book/977ctoe/
 - 苗疆蛊女模拟器 https://www.tanmi818.com/book/977ctj0/
 - 普通人的乙女RPG[西幻] https://www.tanmi818.com/book/977ctc6/
 - 万人迷总被入侵角色觊觎[快穿] https://www.tanmi818.com/book/977ct43/
-- 沈助理又在隐藏他的超能力 https://www.tanmi818.com/book/977ct1c/
 - 纨绔渣A拒绝入赘长公主府 https://www.tanmi818.com/book/977csun/
 - 忍界有文学 https://www.tanmi818.com/book/977cs1t/
 - [全职高手]小船 https://www.tanmi818.com/book/977crvq/
@@ -237,7 +235,6 @@
 - [足球]职业模拟器但足坛 https://www.tanmi818.com/book/977cgrv/
 - 吃瓜也能整顿豪门？ https://www.tanmi818.com/book/977cgo5/
 - 蜜蜂膝盖银子弹 https://www.tanmi818.com/book/977cga8/
-- 误入反派培养直播后 https://www.tanmi818.com/book/977cg2d/
 - 一见倾心[快穿] https://www.tanmi818.com/book/977cft5/
 - 请别摘下超能力社恐的耳机 https://www.tanmi818.com/book/977cfoc/
 - 反派的病弱白月光重生了 https://www.tanmi818.com/book/977cfo6/
@@ -273,7 +270,6 @@
 - 哥你不能不要我 https://www.tanmi818.com/book/977cc31/
 - 主角对你极度痴迷 https://www.tanmi818.com/book/977cbu6/
 - 穿进民国后宅从杂役做起 https://www.tanmi818.com/book/977cbqr/
-- 炮灰的我该如何上位？ https://www.tanmi818.com/book/977cbpd/
 - 与前妻上了同档综艺 https://www.tanmi818.com/book/977cbme/
 - 乙骨同学很好欺负 https://www.tanmi818.com/book/977cbm9/
 - 异种大食堂[无限] https://www.tanmi818.com/book/977cbk2/
@@ -435,9 +431,9 @@
 - 我，剑圣，养生中，勿扰 https://www.tanmi818.com/book/977b9qj/
 - 和室友他爸恋爱后 https://www.tanmi818.com/book/977b64k/
 - 满级竹马从异世穿回来了 https://www.tanmi818.com/book/977atm0/
-- 阴郁路人不想被喜欢 https://www.tanmi818.com/book/9779v88/
 - 京秋婚约 https://www.tanmi818.com/book/9779v81/
 - 直男咒术师的限制级游戏 https://www.tanmi818.com/book/9779u7v/
+- 魔物堆里的人类幼崽 https://www.tanmi818.com/book/9779u1q/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1345/index.md)

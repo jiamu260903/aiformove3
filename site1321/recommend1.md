@@ -1,7 +1,7 @@
 
 # 读者香书小说-免费高质量网络小说阅读网
 
-更新时间：2026-09-08 03:28:37
+更新时间：2026-09-09 03:28:44
 
 读者香书小说提供最新的、最热门的网络小说在线阅读服务，支持无弹窗模式，是广大书友和小说读者理想的阅读平台。 https://www.duzhe888.com
 
@@ -108,7 +108,6 @@
 - [足球]我的游戏存档成真了？！ https://www.duzhe888.com/book/2kobh00/
 - 巨物致富：回乡开钓场 https://www.duzhe888.com/book/2kobf0u/
 - 趁她之危 https://www.duzhe888.com/book/2kobe39/
-- 寡妇美人模拟器 https://www.duzhe888.com/book/2kobdo3/
 - 让你们无剧本可走（快穿） https://www.duzhe888.com/book/2kobcvu/
 - 摄政王家的咸鱼夫郎 https://www.duzhe888.com/book/2kob7dg/
 - 起初，我只是想找个冤大头 https://www.duzhe888.com/book/2kob6mg/

@@ -1,11 +1,12 @@
 
 # 梦翔橙子小说网-全本小说最值得收藏的在线阅读平台
 
-更新时间：2026-09-08 03:35:47
+更新时间：2026-09-09 03:35:49
 
 梦翔橙子小说网为您提供最新、最热门的小说资源，拥有全网最全面的小说库。无论是全本还是连载中，都能在这里找到。是解决书荒问题的理想选择，让您的阅读体验更加流畅愉快。 https://www.mengxiang668.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.mengxiang668.com/book/2nrq7g0/
 - 国师 https://www.mengxiang668.com/book/2nrq7ft/
 - ［西幻］RPG就不要谈恋爱了吧！ https://www.mengxiang668.com/book/2nrq7fr/
 - [洪荒]成为太清妹妹后 https://www.mengxiang668.com/book/2nrq7fk/
@@ -79,18 +80,17 @@
 - 在卷王和废物之间选择做吉祥物 https://www.mengxiang668.com/book/2nrp4k4/
 - 从维多利亚时代开始 https://www.mengxiang668.com/book/2nrp1jp/
 - 昭暮 https://www.mengxiang668.com/book/2nrovib/
-- 星际团宠小人鱼 https://www.mengxiang668.com/book/2nrorla/
 - 始乱终弃清冷首辅后 https://www.mengxiang668.com/book/2nrorl2/
 - 十九世纪贵族厨房（美食） https://www.mengxiang668.com/book/2nroriu/
 - 原配夫人 https://www.mengxiang668.com/book/2nrori4/
 - 完蛋！被恨孕男包围了！ https://www.mengxiang668.com/book/2nrokl3/
 - 高调装神，猥琐发育 https://www.mengxiang668.com/book/2nrokhd/
+- 我只梦你一页 https://www.mengxiang668.com/book/2nrokdq/
 - 食明 https://www.mengxiang668.com/book/2nroicg/
 - 诡话第一boss https://www.mengxiang668.com/book/2nrof94/
 - 专业女配的自我修养（快穿） https://www.mengxiang668.com/book/2nrodn6/
 - 老实人妻，但顶级魅魔 https://www.mengxiang668.com/book/2nrod37/
 - [足球]我的游戏存档成真了？！ https://www.mengxiang668.com/book/2nro610/
-- 摄政王家的咸鱼夫郎 https://www.mengxiang668.com/book/2nro57b/
 - 我与龙傲天寿命共享 https://www.mengxiang668.com/book/2nro4fq/
 - 让你们无剧本可走（快穿） https://www.mengxiang668.com/book/2nro34v/
 - 如何正确哄睡暴君 https://www.mengxiang668.com/book/2nro015/
@@ -106,6 +106,7 @@
 - 从童星开始杀穿港娱 https://www.mengxiang668.com/book/2nrncbm/
 - 咦？我爸爸复活啦 https://www.mengxiang668.com/book/2nrnbrr/
 - 开局绑定郭奉孝，谋定三国风云 https://www.mengxiang668.com/book/2nrnajm/
+- 月亮上的大筒木 https://www.mengxiang668.com/book/2nrnac7/
 - 路人攻了主角攻［快穿］ https://www.mengxiang668.com/book/2nrna42/
 - 我有一座地下城 https://www.mengxiang668.com/book/2nrn8bm/
 - 苏娘子汴京摆摊日常（美食） https://www.mengxiang668.com/book/2nrn80c/
@@ -151,8 +152,6 @@
 - [娱乐圈]过分美丽的她 https://www.mengxiang668.com/book/2nrkl3p/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.mengxiang668.com/book/2nrkkie/
 - 大瑛弟国 https://www.mengxiang668.com/book/2nrkkg5/
-- 寡妇美人模拟器 https://www.mengxiang668.com/book/2nrkkcr/
-- 仙门透明人被迫万人迷 https://www.mengxiang668.com/book/2nrkkch/
 - [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.mengxiang668.com/book/2nrkkc9/
 - 我有一座安全城 https://www.mengxiang668.com/book/2nrkk9q/
 - 全民求生:从小木屋到魔法农场 https://www.mengxiang668.com/book/2nrkk5p/

@@ -1,7 +1,7 @@
 
 # 笔趣屋-最热门的免费小说网 | 玄幻,网游,言情,穿越,都市小说全本在线阅读
 
-更新时间：2026-09-08 03:34:02
+更新时间：2026-09-09 03:34:05
 
 笔趣屋提供多种类型的好看小说在线阅读服务，包括但不限于玄幻、网游、言情、穿越及都市等热门分类。网站承诺无广告无弹窗干扰，页面简洁，方便用户享受纯净的阅读体验。 https://www.kmjike.com
 
@@ -32,9 +32,9 @@
 - 朕看上的少年是侠女 https://www.kmjike.com/book/4mlvleq/
 - 你，后室管理员 https://www.kmjike.com/book/4mlvlep/
 - 高调装神，猥琐发育 https://www.kmjike.com/book/4mlvlef/
+- 魔物堆里的人类幼崽 https://www.kmjike.com/book/4mlvldg/
 - 直男咒术师的限制级游戏 https://www.kmjike.com/book/4mlvld8/
 - 京秋婚约 https://www.kmjike.com/book/4mlvlci/
-- 阴郁路人不想被喜欢 https://www.kmjike.com/book/4mlvlaj/
 - 满级竹马从异世穿回来了 https://www.kmjike.com/book/4mlvl9c/
 - 求生游戏：当邪神成为生活玩家后 https://www.kmjike.com/book/4mlvl94/
 - 昭暮 https://www.kmjike.com/book/4mlvacs/
@@ -189,7 +189,6 @@
 - 苗疆蛊女模拟器 https://www.kmjike.com/book/f28in0/
 - 不要小看娇妻啊！ https://www.kmjike.com/book/f28ii8/
 - 天崩开局还能通关吗？ https://www.kmjike.com/book/f28i1g/
-- 沈助理又在隐藏他的超能力 https://www.kmjike.com/book/f28hep/
 - 沉烟 https://www.kmjike.com/book/f28heg/
 - 开局一间小卖部[经营] https://www.kmjike.com/book/f28h3v/
 - 绝色美人模拟器[快穿] https://www.kmjike.com/book/f28gnl/
@@ -410,7 +409,6 @@
 - 这谁的沙雕二次元心声！ https://www.kmjike.com/book/f27hnd/
 - 老公是松散生命体 https://www.kmjike.com/book/f27hkv/
 - 我最讨厌打球了！ https://www.kmjike.com/book/f27dpj/
-- 误入反派培养直播后 https://www.kmjike.com/book/f278ku/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.kmjike.com/book/f275tl/
 - [足球]罗蜜第一志愿 https://www.kmjike.com/book/f274bp/
 - 哥你不能不要我 https://www.kmjike.com/book/f26ig6/

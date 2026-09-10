@@ -1,11 +1,12 @@
 
 # 紫竹原始小说 - 最新最全的小说文学网站
 
-更新时间：2026-09-08 03:27:35
+更新时间：2026-09-09 03:27:44
 
 紫竹原始小说是一个专注于分享最新、最全的小说文学作品的网站。我们致力于为读者带来全新的阅读体验，欢迎访问我们的网站，尽情享受文学的魅力。 https://www.cnysxc.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.cnysxc.com/book/8ee0tdr/
 - 占有欲Daddy是我老公？ https://www.cnysxc.com/book/8ee0is8/
 - 好心的俄罗斯人 https://www.cnysxc.com/book/8ee0is4/
 - 全民求生，但剑三 https://www.cnysxc.com/book/8ee0is1/
@@ -70,7 +71,6 @@
 - 天幕今天也在直播我搞基建 https://www.cnysxc.com/book/8ee0e6h/
 - 起初，我只是想找个冤大头 https://www.cnysxc.com/book/8ee0e65/
 - 上个鬼班[无限] https://www.cnysxc.com/book/8ee0bum/
-- 仙门透明人被迫万人迷 https://www.cnysxc.com/book/8ee09te/
 - [足球]足坛人生模拟器 https://www.cnysxc.com/book/8ee04ld/
 - 九零重组小家庭 https://www.cnysxc.com/book/8ee02lt/
 - 让暴君Alpha怀崽后 https://www.cnysxc.com/book/8ee001u/
@@ -82,7 +82,6 @@
 - 诡话第一boss https://www.cnysxc.com/book/8edv583/
 - 老实人妻，但顶级魅魔 https://www.cnysxc.com/book/8edv3lv/
 - 我骗家里的钱养你啊 https://www.cnysxc.com/book/8eduusj/
-- 摄政王家的咸鱼夫郎 https://www.cnysxc.com/book/8eduugq/
 - 我与龙傲天寿命共享 https://www.cnysxc.com/book/8edutsq/
 - [足球]我的游戏存档成真了？！ https://www.cnysxc.com/book/8eduruk/
 - 死遁的亡夫们都回来了 https://www.cnysxc.com/book/8edur1d/
@@ -101,6 +100,7 @@
 - 从童星开始杀穿港娱 https://www.cnysxc.com/book/8edu75q/
 - 开局绑定郭奉孝，谋定三国风云 https://www.cnysxc.com/book/8edu63m/
 - 苏娘子汴京摆摊日常（美食） https://www.cnysxc.com/book/8edu5ql/
+- 月亮上的大筒木 https://www.cnysxc.com/book/8edu57r/
 - 路人攻了主角攻［快穿］ https://www.cnysxc.com/book/8edu536/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.cnysxc.com/book/8edu4fg/
 - 直男咒术师的限制级游戏 https://www.cnysxc.com/book/8edtvt9/
@@ -111,6 +111,7 @@
 - 阴阳师也可以打网球 https://www.cnysxc.com/book/8edtrfa/
 - 和治君只是饭搭子的关系 https://www.cnysxc.com/book/8edtr11/
 - 五条老师与他的封建妻子 https://www.cnysxc.com/book/8edtogu/
+- 我只梦你一页 https://www.cnysxc.com/book/8edtoet/
 - 和贵志君是世界第一的好朋友 https://www.cnysxc.com/book/8edtngo/
 - 在魔法贵族学院当白月光 https://www.cnysxc.com/book/8edtn4n/
 - 我187了，你敢见我吗？ https://www.cnysxc.com/book/8edtlg5/
@@ -138,7 +139,6 @@
 - 爱好和平但狂拆机甲 https://www.cnysxc.com/book/8eds9rh/
 - 你让魔王组建勇者小队？ https://www.cnysxc.com/book/8eds87j/
 - 始乱终弃清冷首辅后 https://www.cnysxc.com/book/8edrcas/
-- 寡妇美人模拟器 https://www.cnysxc.com/book/8edrc5m/
 - 在民俗惊悚片被诸神庇护 https://www.cnysxc.com/book/8edrc25/
 - 清澈女大的六零年代 https://www.cnysxc.com/book/8edrbl0/
 - 原配夫人 https://www.cnysxc.com/book/8edrbe8/
@@ -156,7 +156,6 @@
 - 我有一座安全城 https://www.cnysxc.com/book/8edrac5/
 - 老公对不起 https://www.cnysxc.com/book/8edraba/
 - 十九世纪贵族厨房（美食） https://www.cnysxc.com/book/8edra5q/
-- 星际团宠小人鱼 https://www.cnysxc.com/book/8edr9sk/
 - 六零之成了卷王的妹妹 https://www.cnysxc.com/book/8edr9k4/
 - 五十年代港城日常 https://www.cnysxc.com/book/8edr9g5/
 - 趁她之危 https://www.cnysxc.com/book/8edr9ce/

@@ -1,7 +1,7 @@
 
 # 笔趣阁小说网 - 免费在线阅读百万小说
 
-更新时间：2026-09-08 03:46:18
+更新时间：2026-09-09 03:46:31
 
 笔趣阁小说网提供免费的小说在线阅读服务，包括但不限于各类热门小说、经典文学等。网站支持书架同步功能，确保用户阅读进度永不丢失。快来加入我们，享受无障碍、无广告的纯净阅读体验吧！ https://www.xiaoshuo139.com
 
@@ -34,8 +34,8 @@
 - 高调装神，猥琐发育 https://www.xiaoshuo139.com/book/2ch7tuc/
 - 满级竹马从异世穿回来了 https://www.xiaoshuo139.com/book/2ch7ttr/
 - 京秋婚约 https://www.xiaoshuo139.com/book/2ch7tst/
+- 魔物堆里的人类幼崽 https://www.xiaoshuo139.com/book/2ch7tr1/
 - 直男咒术师的限制级游戏 https://www.xiaoshuo139.com/book/2ch7tqa/
-- 阴郁路人不想被喜欢 https://www.xiaoshuo139.com/book/2ch7tpe/
 - 求生游戏：当邪神成为生活玩家后 https://www.xiaoshuo139.com/book/2ch7tp5/
 - 昭暮 https://www.xiaoshuo139.com/book/2ch7its/
 - 修仙界都为我神魂颠倒 https://www.xiaoshuo139.com/book/2ch7iii/
@@ -189,7 +189,6 @@
 - 如何投入虚情假意 https://www.xiaoshuo139.com/book/7kvpfj/
 - 天崩开局还能通关吗？ https://www.xiaoshuo139.com/book/7kvovf/
 - 绝色美人模拟器[快穿] https://www.xiaoshuo139.com/book/7kvooq/
-- 沈助理又在隐藏他的超能力 https://www.xiaoshuo139.com/book/7kvohr/
 - 全星际捧我当神明 https://www.xiaoshuo139.com/book/7kvo8r/
 - [综武侠]与剑有缘 https://www.xiaoshuo139.com/book/7kvo3s/
 - 沉烟 https://www.xiaoshuo139.com/book/7kvnva/
@@ -410,7 +409,6 @@
 - 这谁的沙雕二次元心声！ https://www.xiaoshuo139.com/book/7kuqqa/
 - 老公是松散生命体 https://www.xiaoshuo139.com/book/7kuqc2/
 - 我最讨厌打球了！ https://www.xiaoshuo139.com/book/7kuk7f/
-- 误入反派培养直播后 https://www.xiaoshuo139.com/book/7kuic8/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.xiaoshuo139.com/book/7kuevb/
 - [足球]罗蜜第一志愿 https://www.xiaoshuo139.com/book/7kuav6/
 - 哥你不能不要我 https://www.xiaoshuo139.com/book/7ktok1/

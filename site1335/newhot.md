@@ -1,7 +1,7 @@
 
 # 奇书网 - 奇书网epub,mobi,txt全本电子书免费下载
 
-更新时间：2026-09-08 03:31:53
+更新时间：2026-09-09 03:31:57
 
 奇书网提供最新的奇书网txt格式全本电子书资源免费下载服务，涵盖各种类型的小说，满足您的阅读需求。 https://www.jxbfsz.com
 
@@ -107,7 +107,6 @@
 - 万人迷绑定美强惨系统后 https://www.jxbfsz.com/book/29hvj1s/
 - 好巧，我爸也是狗血文男主 https://www.jxbfsz.com/book/29hvitq/
 - [综英美]怎么就蝙蝠崽文学了 https://www.jxbfsz.com/book/29hvit8/
-- 阴郁路人不想被喜欢 https://www.jxbfsz.com/book/29hvim2/
 - 当抠搜总裁被人读心[穿书] https://www.jxbfsz.com/book/29hvie1/
 - 修罗场里的无能丈夫 https://www.jxbfsz.com/book/29hvi9g/
 - 我在异世当妖精 https://www.jxbfsz.com/book/29hvi40/
@@ -183,7 +182,6 @@
 - 逃妾 https://www.jxbfsz.com/book/29hv23d/
 - 夏油弟弟在立海大 https://www.jxbfsz.com/book/29hv20m/
 - 万人迷误入炮灰片场 https://www.jxbfsz.com/book/29hv1qo/
-- 沈助理又在隐藏他的超能力 https://www.jxbfsz.com/book/29hv1ir/
 - [综英美]和小杰鸟青梅竹马的日子 https://www.jxbfsz.com/book/29hv1di/
 - 帝国唯一雄虫长官[虫族] https://www.jxbfsz.com/book/29hv1dd/
 - 旖旎新婚 https://www.jxbfsz.com/book/29hv15k/
@@ -253,7 +251,6 @@
 - 社畜，但是天才魔导师 https://www.jxbfsz.com/book/29humtk/
 - 在立海大玩网球模拟器 https://www.jxbfsz.com/book/29humq7/
 - 揍敌客大小姐好难攻略 https://www.jxbfsz.com/book/29humnn/
-- 误入反派培养直播后 https://www.jxbfsz.com/book/29humht/
 - 重回被拐那一天[千禧年代] https://www.jxbfsz.com/book/29humeb/
 - 绝世美人靠脸躺赢[快穿] https://www.jxbfsz.com/book/29hume3/
 - 挚友和我穿越后分了阵营 https://www.jxbfsz.com/book/29humcr/
@@ -326,7 +323,6 @@
 - 当烫男人走错了片场 https://www.jxbfsz.com/book/29hufje/
 - 哥你不能不要我 https://www.jxbfsz.com/book/29hufj7/
 - 冷傲上司绑定娇妻系统后 https://www.jxbfsz.com/book/29hufi6/
-- 被鬼怪宠爱的漂亮书生 https://www.jxbfsz.com/book/29hufhb/
 - 豪门狗血文里的天才后妈 https://www.jxbfsz.com/book/29hufgo/
 - 瓮中惊春 https://www.jxbfsz.com/book/29hufce/
 - [全职高手]问就是没钱 https://www.jxbfsz.com/book/29huf61/
@@ -362,7 +358,6 @@
 - 邪神祂总被觊觎 https://www.jxbfsz.com/book/29hud1o/
 - 宇智波的遗产 https://www.jxbfsz.com/book/29hud00/
 - 养个诡异当老婆 https://www.jxbfsz.com/book/29hucvg/
-- 炮灰的我该如何上位？ https://www.jxbfsz.com/book/29hucvb/
 - 超忆症大佬在古代破案 https://www.jxbfsz.com/book/29hucrq/
 - 御厨传人的小镇饭馆 [美食] https://www.jxbfsz.com/book/29hucoq/
 - 败类 https://www.jxbfsz.com/book/29hucmh/
@@ -424,6 +419,7 @@
 - 战死的阿爹回来了[年代] https://www.jxbfsz.com/book/29htsel/
 - 刀子精手心的人偶崽崽 https://www.jxbfsz.com/book/29htqbe/
 - [综英美]让我统治哥谭！！！ https://www.jxbfsz.com/book/29htq00/
+- 魔物堆里的人类幼崽 https://www.jxbfsz.com/book/29htm7i/
 - 好巧，你也是妹控？[综崩铁] https://www.jxbfsz.com/book/29htlit/
 - 欢迎来到重生点 https://www.jxbfsz.com/book/29htl6a/
 - 好兄弟暴富后非要跟我结婚 https://www.jxbfsz.com/book/29htjav/

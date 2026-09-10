@@ -1,7 +1,7 @@
 
 # 看居中文网_免费小说在线阅读|无弹窗广告值得收藏
 
-更新时间：2026-09-08 03:32:27
+更新时间：2026-09-09 03:32:30
 
 看居中文网是最热门的免费小说网站，提供包括但不限于玄幻、都市、言情等多种类型的小说在线阅读服务。本站实时更新小说最新章节列表，拥有全面的小说排行榜，致力于为读者提供一个干净舒适的阅读环境，无弹窗广告干扰，是您寻找好书的理想之地。 https://www.kanju688.com
 
@@ -159,13 +159,11 @@
 - 绑定惊吓系统但对象狂涨好感有救吗 https://www.kanju688.com/book/patoe3/
 - 恋爱脑他重生了 https://www.kanju688.com/book/patod9/
 - 被迫扮演病娇以后[快穿] https://www.kanju688.com/book/pato46/
-- 被鬼怪宠爱的漂亮书生 https://www.kanju688.com/book/patnqs/
 - 忍界有文学 https://www.kanju688.com/book/patng5/
 - 老公是松散生命体 https://www.kanju688.com/book/patn3r/
 - 万人迷总被入侵角色觊觎[快穿] https://www.kanju688.com/book/patmqg/
 - 普通人的乙女RPG[西幻] https://www.kanju688.com/book/patmqd/
 - 纨绔渣A拒绝入赘长公主府 https://www.kanju688.com/book/patmaj/
-- 沈助理又在隐藏他的超能力 https://www.kanju688.com/book/patm0j/
 - 沉烟 https://www.kanju688.com/book/patlnl/
 - [全职高手]小船 https://www.kanju688.com/book/patljp/
 - 苗疆蛊女模拟器 https://www.kanju688.com/book/patlee/
@@ -239,7 +237,6 @@
 - 反派的病弱白月光重生了 https://www.kanju688.com/book/patajv/
 - 掉马后成了奥特带恶人 https://www.kanju688.com/book/patabm/
 - 都说了我很娇纵了 https://www.kanju688.com/book/pataac/
-- 误入反派培养直播后 https://www.kanju688.com/book/pata36/
 - 摆烂后我成了邪神学院大佬 https://www.kanju688.com/book/pat9vi/
 - 和灵异片boss谈恋爱 https://www.kanju688.com/book/pat9u6/
 - 亚当斯与韦恩的适配性 https://www.kanju688.com/book/pat9nd/
@@ -297,7 +294,6 @@
 - 陌上炊烟（种田） https://www.kanju688.com/book/pat4gn/
 - 拯救美强惨女主进行时[快穿] https://www.kanju688.com/book/pat4e3/
 - 好好做1 https://www.kanju688.com/book/pat48j/
-- 炮灰的我该如何上位？ https://www.kanju688.com/book/pat46t/
 - 异种大食堂[无限] https://www.kanju688.com/book/pat42f/
 - 金发室友有肌肤饥渴症 https://www.kanju688.com/book/pat3vb/
 - [综武侠]万人迷小姐想要富贵荣华 https://www.kanju688.com/book/pat3uv/
@@ -437,7 +433,7 @@
 - 满级竹马从异世穿回来了 https://www.kanju688.com/book/parptt/
 - 直男咒术师的限制级游戏 https://www.kanju688.com/book/paqpcv/
 - 京秋婚约 https://www.kanju688.com/book/paqobo/
-- 阴郁路人不想被喜欢 https://www.kanju688.com/book/paqnd0/
+- 魔物堆里的人类幼崽 https://www.kanju688.com/book/paqnrk/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1374/index.md)

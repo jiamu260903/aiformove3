@@ -1,11 +1,12 @@
 
 # 紫玉海小说 - 好看的言情小说推荐,热门小说在线阅读
 
-更新时间：2026-09-08 03:49:56
+更新时间：2026-09-09 03:50:16
 
 紫玉海小说网提供好看的言情小说推荐，热门小说推荐，包括都市言情、霸道总裁、古代言情、穿越重生等优质资源在线阅读，好小说尽在自由屋推书网。 https://www.ziyuhai.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.ziyuhai.com/book/84rn5an/
 - 清穿女回来后[天幕] https://www.ziyuhai.com/book/84rn5aj/
 - 欲加之罪 https://www.ziyuhai.com/book/84rn5ai/
 - 魔尊闭关十年连生十一子？！ https://www.ziyuhai.com/book/84rn5ah/
@@ -78,11 +79,11 @@
 - 占有欲Daddy是我老公？ https://www.ziyuhai.com/book/84rn58c/
 - 夫人每天都在伪装 https://www.ziyuhai.com/book/84rn58b/
 - 恐游作精女配求生指南 https://www.ziyuhai.com/book/84rn58a/
-- 星际团宠小人鱼 https://www.ziyuhai.com/book/84rn52t/
 - [封神]圣人生欲 https://www.ziyuhai.com/book/84rn52m/
 - 原配夫人 https://www.ziyuhai.com/book/84rn529/
 - 十九世纪贵族厨房（美食） https://www.ziyuhai.com/book/84rn527/
 - 始乱终弃清冷首辅后 https://www.ziyuhai.com/book/84rn51r/
+- 我只梦你一页 https://www.ziyuhai.com/book/84rn50h/
 - 高调装神，猥琐发育 https://www.ziyuhai.com/book/84rn50f/
 - 直男咒术师的限制级游戏 https://www.ziyuhai.com/book/84rn4s3/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.ziyuhai.com/book/84rn4rr/
@@ -101,17 +102,14 @@
 - 食明 https://www.ziyuhai.com/book/84rkbv2/
 - 诡话第一boss https://www.ziyuhai.com/book/84rk8qu/
 - 让暴君Alpha怀崽后 https://www.ziyuhai.com/book/84rk3ik/
-- 仙门透明人被迫万人迷 https://www.ziyuhai.com/book/84rk2bk/
 - 专业女配的自我修养（快穿） https://www.ziyuhai.com/book/84rjvu9/
 - 日化人生[科研] https://www.ziyuhai.com/book/84rjvpu/
 - 老实人妻，但顶级魅魔 https://www.ziyuhai.com/book/84rjvoh/
 - 巨物致富：回乡开钓场 https://www.ziyuhai.com/book/84rjtjh/
 - [足球]我的游戏存档成真了？！ https://www.ziyuhai.com/book/84rjqtc/
 - 让你们无剧本可走（快穿） https://www.ziyuhai.com/book/84rjpj1/
-- 寡妇美人模拟器 https://www.ziyuhai.com/book/84rjp3l/
 - 趁她之危 https://www.ziyuhai.com/book/84rjnnb/
 - 起初，我只是想找个冤大头 https://www.ziyuhai.com/book/84rjm70/
-- 摄政王家的咸鱼夫郎 https://www.ziyuhai.com/book/84rjiap/
 - 死遁的亡夫们都回来了 https://www.ziyuhai.com/book/q2quoc/
 - 沈助理又在隐藏他的超能力 https://www.ziyuhai.com/book/q2qrpa/
 - 天幕今天也在直播我搞基建 https://www.ziyuhai.com/book/q2qqlk/
@@ -149,6 +147,7 @@
 - 带清冷女主回乡养螃蟹[种田] https://www.ziyuhai.com/book/q2p36q/
 - 爱好和平但狂拆机甲 https://www.ziyuhai.com/book/q2p0nv/
 - 权宋一只统 https://www.ziyuhai.com/book/q2p02m/
+- 月亮上的大筒木 https://www.ziyuhai.com/book/2jf97e/
 - 五十年代港城日常 https://www.ziyuhai.com/book/2jf94e/
 - [娱乐圈]过分美丽的她 https://www.ziyuhai.com/book/2jf8vb/
 - 清澈女大的六零年代 https://www.ziyuhai.com/book/2jf8ut/

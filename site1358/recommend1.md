@@ -1,11 +1,12 @@
 
 # 哲理书客吧-全本小说免费阅读及txt下载,最新章节无弹窗
 
-更新时间：2026-09-08 03:49:41
+更新时间：2026-09-09 03:50:01
 
 哲理书客吧提供最快更新的热门网络小说最新章节，支持全本小说在线免费阅读与txt电子书打包下载服务。收录多本经典好看的小说，并承诺无广告弹窗清爽阅读体验，是小说爱好者的理想选择。 https://www.zheli518.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.zheli518.com/book/4taqmm4/
 - 从1951开始 https://www.zheli518.com/book/4taqmm1/
 - 娘娘扶摇直上 https://www.zheli518.com/book/4taqmlv/
 - 清穿女回来后[天幕] https://www.zheli518.com/book/4taqmlp/
@@ -82,16 +83,15 @@
 - 始乱终弃清冷首辅后 https://www.zheli518.com/book/4tapavm/
 - 十九世纪贵族厨房（美食） https://www.zheli518.com/book/4tapaur/
 - 原配夫人 https://www.zheli518.com/book/4tapaku/
-- 星际团宠小人鱼 https://www.zheli518.com/book/4tapaki/
 - 完蛋！被恨孕男包围了！ https://www.zheli518.com/book/4tap3qr/
 - 高调装神，猥琐发育 https://www.zheli518.com/book/4tap3nr/
+- 我只梦你一页 https://www.zheli518.com/book/4tap3nf/
 - 食明 https://www.zheli518.com/book/4tap1q3/
 - 诡话第一boss https://www.zheli518.com/book/4taoubc/
 - 老实人妻，但顶级魅魔 https://www.zheli518.com/book/4taoru5/
 - 专业女配的自我修养（快穿） https://www.zheli518.com/book/4taornv/
 - [足球]我的游戏存档成真了？！ https://www.zheli518.com/book/4taol0u/
 - 让你们无剧本可走（快穿） https://www.zheli518.com/book/4taoks3/
-- 摄政王家的咸鱼夫郎 https://www.zheli518.com/book/4taok47/
 - 我与龙傲天寿命共享 https://www.zheli518.com/book/4taojiu/
 - 如何正确哄睡暴君 https://www.zheli518.com/book/4taofv8/
 - 死遁的亡夫们都回来了 https://www.zheli518.com/book/4taoblf/
@@ -105,6 +105,7 @@
 - 咦？我爸爸复活啦 https://www.zheli518.com/book/4tant3l/
 - 同时扮演贵族学院F4和平民校花 https://www.zheli518.com/book/4tans6p/
 - 从童星开始杀穿港娱 https://www.zheli518.com/book/4tanrqm/
+- 月亮上的大筒木 https://www.zheli518.com/book/4tanpin/
 - 路人攻了主角攻［快穿］ https://www.zheli518.com/book/4tanosn/
 - 开局绑定郭奉孝，谋定三国风云 https://www.zheli518.com/book/4tannvt/
 - 苏娘子汴京摆摊日常（美食） https://www.zheli518.com/book/4tannd4/
@@ -144,11 +145,9 @@
 - 爱好和平但狂拆机甲 https://www.zheli518.com/book/4tam2g3/
 - 大瑛弟国 https://www.zheli518.com/book/4tal5hb/
 - 六零之成了卷王的妹妹 https://www.zheli518.com/book/4tal5ff/
-- 仙门透明人被迫万人迷 https://www.zheli518.com/book/4tal5d4/
 - 直男咒术师的限制级游戏 https://www.zheli518.com/book/4tal5a1/
 - 我有一座安全城 https://www.zheli518.com/book/4tal59c/
 - [娱乐圈]过分美丽的她 https://www.zheli518.com/book/4tal57m/
-- 寡妇美人模拟器 https://www.zheli518.com/book/4tal53c/
 - 全民求生:从小木屋到魔法农场 https://www.zheli518.com/book/4tal534/
 - 95美国贵族高中模拟 https://www.zheli518.com/book/4tal510/
 - 五十年代港城日常 https://www.zheli518.com/book/4tal4t0/

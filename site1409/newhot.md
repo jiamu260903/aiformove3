@@ -1,11 +1,12 @@
 
 # 瑞文文学网 - 最新穿越小说大全及热门小说排行榜
 
-更新时间：2026-09-08 03:24:48
+更新时间：2026-09-09 03:24:57
 
 瑞文文学网提供多种类型的小说推荐，包括最新的都市、玄幻、武侠等多种类别。无论您是喜欢穿越还是重生故事，或是对其他风格如历史、科幻感兴趣，在这里都能找到心仪的作品！ https://www.49ig.com
 
 ## 最新小说
+- 网球带给齐木的灾难 https://www.49ig.com/book/436ej95/
 - 当甚尔转生成继国 https://www.49ig.com/book/436ehbs/
 - 节能型社恐靠交友存活打排球 https://www.49ig.com/book/436egmf/
 - 渣攻他疯了［快穿］ https://www.49ig.com/book/436eg2c/
@@ -28,7 +29,6 @@
 - 孤独症崽崽穿越到狗血爽文里[穿书] https://www.49ig.com/book/436e4hv/
 - 我有嘉宾 https://www.49ig.com/book/436e4ha/
 - 我，始皇闺女，未来皇帝，打钱 https://www.49ig.com/book/436e458/
-- 阴郁路人不想被喜欢 https://www.49ig.com/book/436e3fe/
 - 开局给李世民盘点安史之乱 https://www.49ig.com/book/436e3f7/
 - 怪谈小镇游玩指南[无限] https://www.49ig.com/book/436e2c0/
 - 离开那个混蛋后 https://www.49ig.com/book/436e1gq/
@@ -43,7 +43,6 @@
 - 侦探立于百万生命之上 https://www.49ig.com/book/436dj6g/
 - 特殊魅力值，已到账 https://www.49ig.com/book/436dih7/
 - 昭暮 https://www.49ig.com/book/436deq2/
-- 被鬼怪宠爱的漂亮书生 https://www.49ig.com/book/436d0hf/
 - 求求你们别吃了 https://www.49ig.com/book/436d0h5/
 - 穿成猫的咒术高专生活 https://www.49ig.com/book/436d0d2/
 - 某横滨的时间操纵 https://www.49ig.com/book/436cvrd/
@@ -158,7 +157,6 @@
 - 纨绔渣A拒绝入赘长公主府 https://www.49ig.com/book/436c63a/
 - 和室友他爸恋爱后 https://www.49ig.com/book/436c5vf/
 - 渣攻试图洗白[快穿] https://www.49ig.com/book/436c5mk/
-- 沈助理又在隐藏他的超能力 https://www.49ig.com/book/436c5k5/
 - 逃妾 https://www.49ig.com/book/436c5j7/
 - 沉烟 https://www.49ig.com/book/436c59u/
 - [全职高手]小船 https://www.49ig.com/book/436c58g/
@@ -253,7 +251,6 @@
 - 如何登顶反派第一 https://www.49ig.com/book/436bn5d/
 - 善逸拒绝成为咒术师 https://www.49ig.com/book/436bn4r/
 - 侯府打工人 https://www.49ig.com/book/436bn0r/
-- 炮灰的我该如何上位？ https://www.49ig.com/book/436bms8/
 - 忍界修罗金屋藏娇了？ https://www.49ig.com/book/436bmq8/
 - 想听越前君向我告白 https://www.49ig.com/book/436bmmr/
 - 糊咖爱豆用动物心声破案 https://www.49ig.com/book/436bmkn/
@@ -423,6 +420,7 @@
 - 高冷影后逼我标记她 https://www.49ig.com/book/436b95u/
 - 求生游戏：当邪神成为生活玩家后 https://www.49ig.com/book/436b94o/
 - 小狗向导，世界瑰宝！ https://www.49ig.com/book/436b924/
+- 魔物堆里的人类幼崽 https://www.49ig.com/book/436b8r6/
 - 柯学剧本杀，但恋爱流打法 https://www.49ig.com/book/436b87d/
 - 李玉灯 https://www.49ig.com/book/436b83c/
 - 好巧，你也是妹控？[综崩铁] https://www.49ig.com/book/436b7s4/
@@ -431,10 +429,10 @@
 - [综英美]和亲友群穿哥谭以后 https://www.49ig.com/book/436b1tu/
 - [崩铁]请给玩家一个准确的血条！ https://www.49ig.com/book/436b18r/
 - 自大狂 https://www.49ig.com/book/436apqf/
+- 为她守节第十年 https://www.49ig.com/book/436amf9/
 - 书呆子扮演渣攻翻车【快穿】 https://www.49ig.com/book/436aj9i/
 - 满级竹马从异世穿回来了 https://www.49ig.com/book/436aet6/
 - 丧尸老婆喂养日记 https://www.49ig.com/book/436a6gf/
-- 误入反派培养直播后 https://www.49ig.com/book/43698eg/
 - 你，后室管理员 https://www.49ig.com/book/4369816/
 - 被四皇错看成小动物后 https://www.49ig.com/book/43697ic/
 - 高调装神，猥琐发育 https://www.49ig.com/book/4369798/

@@ -1,7 +1,7 @@
 
 # 忆想小说网 - 最佳无弹窗在线小说阅读平台
 
-更新时间：2026-09-08 03:25:53
+更新时间：2026-09-09 03:26:04
 
 忆想小说网为您提供最佳的小说阅读体验，包括但不限于各类热门小说、最新连载等，支持无弹窗阅读模式，让您享受纯净舒适的阅读环境。 https://www.bianlishihao.com
 
@@ -35,7 +35,7 @@
 - 京秋婚约 https://www.bianlishihao.com/book/2vr7ab2/
 - 满级竹马从异世穿回来了 https://www.bianlishihao.com/book/2vr7aal/
 - 直男咒术师的限制级游戏 https://www.bianlishihao.com/book/2vr7a9e/
-- 阴郁路人不想被喜欢 https://www.bianlishihao.com/book/2vr7a9d/
+- 魔物堆里的人类幼崽 https://www.bianlishihao.com/book/2vr7a98/
 - 求生游戏：当邪神成为生活玩家后 https://www.bianlishihao.com/book/2vr7a96/
 - 昭暮 https://www.bianlishihao.com/book/2vr6vdd/
 - 修仙界都为我神魂颠倒 https://www.bianlishihao.com/book/2vr6um7/
@@ -203,7 +203,6 @@
 - [足球]那个德国队新皇 https://www.bianlishihao.com/book/9ip8dk/
 - 暗堕本丸，在线直播 https://www.bianlishihao.com/book/9ip865/
 - 围观吃瓜却发现老公和别人在一起 https://www.bianlishihao.com/book/9ip7oo/
-- 沈助理又在隐藏他的超能力 https://www.bianlishihao.com/book/9ip7lo/
 - 我在原始种田 https://www.bianlishihao.com/book/9ip7dv/
 - 不是排球天才，但成为最强 https://www.bianlishihao.com/book/9ip7bh/
 - 飞云之上 https://www.bianlishihao.com/book/9ip796/
@@ -410,7 +409,6 @@
 - 这谁的沙雕二次元心声！ https://www.bianlishihao.com/book/9iob3p/
 - 青空来信 https://www.bianlishihao.com/book/9ioaua/
 - 我最讨厌打球了！ https://www.bianlishihao.com/book/9io449/
-- 误入反派培养直播后 https://www.bianlishihao.com/book/9io3h5/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.bianlishihao.com/book/9inu6l/
 - [足球]罗蜜第一志愿 https://www.bianlishihao.com/book/9int05/
 - 哥你不能不要我 https://www.bianlishihao.com/book/9in9s8/

@@ -1,11 +1,12 @@
 
 # 速阅阁小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-08 03:44:59
+更新时间：2026-09-09 03:45:07
 
 速阅阁小说网是专为书友们打造的最佳网络小说阅读与收藏平台，提供海量优质小说资源，满足您的各种阅读需求。 https://www.wsfsx.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.wsfsx.com/book/5ts29el/
 - 国师 https://www.wsfsx.com/book/5ts29eh/
 - 欲加之罪 https://www.wsfsx.com/book/5ts29eg/
 - 占有欲Daddy是我老公？ https://www.wsfsx.com/book/5ts29ef/
@@ -81,9 +82,9 @@
 - 始乱终弃清冷首辅后 https://www.wsfsx.com/book/5ts296l/
 - 原配夫人 https://www.wsfsx.com/book/5ts296d/
 - 十九世纪贵族厨房（美食） https://www.wsfsx.com/book/5ts295t/
-- 星际团宠小人鱼 https://www.wsfsx.com/book/5ts2955/
 - [封神]圣人生欲 https://www.wsfsx.com/book/5ts294m/
 - 高调装神，猥琐发育 https://www.wsfsx.com/book/5ts294e/
+- 我只梦你一页 https://www.wsfsx.com/book/5ts294d/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.wsfsx.com/book/5ts293t/
 - 直男咒术师的限制级游戏 https://www.wsfsx.com/book/5ts291p/
 - 六零之成了卷王的妹妹 https://www.wsfsx.com/book/5ts27o1/
@@ -100,7 +101,6 @@
 - 如何嫁给当朝首辅 https://www.wsfsx.com/book/5trvecb/
 - 食明 https://www.wsfsx.com/book/5trvdne/
 - 诡话第一boss https://www.wsfsx.com/book/5trvag1/
-- 仙门透明人被迫万人迷 https://www.wsfsx.com/book/5trv7uq/
 - 日化人生[科研] https://www.wsfsx.com/book/5trv5ro/
 - 专业女配的自我修养（快穿） https://www.wsfsx.com/book/5trv589/
 - 让暴君Alpha怀崽后 https://www.wsfsx.com/book/5trv477/
@@ -108,10 +108,8 @@
 - 老实人妻，但顶级魅魔 https://www.wsfsx.com/book/5trv16e/
 - [足球]我的游戏存档成真了？！ https://www.wsfsx.com/book/5truvgi/
 - 趁她之危 https://www.wsfsx.com/book/5trutq8/
-- 寡妇美人模拟器 https://www.wsfsx.com/book/5trusqa/
 - 让你们无剧本可走（快穿） https://www.wsfsx.com/book/5trurrn/
 - 起初，我只是想找个冤大头 https://www.wsfsx.com/book/5trum6u/
-- 摄政王家的咸鱼夫郎 https://www.wsfsx.com/book/5trulcd/
 - 死遁的亡夫们都回来了 https://www.wsfsx.com/book/ivlnh0/
 - 天幕今天也在直播我搞基建 https://www.wsfsx.com/book/ivljvm/
 - 沈助理又在隐藏他的超能力 https://www.wsfsx.com/book/ivli57/
@@ -157,6 +155,7 @@
 - [娱乐圈]过分美丽的她 https://www.wsfsx.com/book/1sob03/
 - 全民求生:从小木屋到魔法农场 https://www.wsfsx.com/book/1soaif/
 - 开局绑定郭奉孝，谋定三国风云 https://www.wsfsx.com/book/1soabg/
+- 月亮上的大筒木 https://www.wsfsx.com/book/1soa9c/
 - 完蛋！被恨孕男包围了！ https://www.wsfsx.com/book/1soa3p/
 - 大瑛弟国 https://www.wsfsx.com/book/62ecb/
 - 五十年代港城日常 https://www.wsfsx.com/book/62e5k/

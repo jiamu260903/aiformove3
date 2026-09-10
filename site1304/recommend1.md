@@ -1,11 +1,12 @@
 
 # 唯我小说网-最新小说在线阅读,好看小说全文阅读
 
-更新时间：2026-09-08 03:31:01
+更新时间：2026-09-09 03:31:06
 
 唯我小说网提供最新最热门的小说在线阅读服务，包括但不限于各类好看的小说全文内容，满足广大读者的需求。 https://www.hkffbw.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.hkffbw.com/book/4nr5rmk/
 - 八零法医，带全家致富 https://www.hkffbw.com/book/4nr5rmg/
 - 魔法种田，从退队经营农场开始 https://www.hkffbw.com/book/4nr5rmf/
 - 全民求生，但剑三 https://www.hkffbw.com/book/4nr5rme/
@@ -80,10 +81,10 @@
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.hkffbw.com/book/4nr5rk7/
 - [封神]圣人生欲 https://www.hkffbw.com/book/4nr5ren/
 - 始乱终弃清冷首辅后 https://www.hkffbw.com/book/4nr5rek/
-- 星际团宠小人鱼 https://www.hkffbw.com/book/4nr5re4/
 - 原配夫人 https://www.hkffbw.com/book/4nr5rd2/
 - 十九世纪贵族厨房（美食） https://www.hkffbw.com/book/4nr5rcu/
 - 高调装神，猥琐发育 https://www.hkffbw.com/book/4nr5rcf/
+- 我只梦你一页 https://www.hkffbw.com/book/4nr5rcc/
 - 直男咒术师的限制级游戏 https://www.hkffbw.com/book/4nr5r9h/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.hkffbw.com/book/4nr5r7q/
 - 六零之成了卷王的妹妹 https://www.hkffbw.com/book/4nr5pv6/
@@ -100,17 +101,14 @@
 - 如何嫁给当朝首辅 https://www.hkffbw.com/book/4nr31c6/
 - 食明 https://www.hkffbw.com/book/4nr30d5/
 - 诡话第一boss https://www.hkffbw.com/book/4nr2t6l/
-- 仙门透明人被迫万人迷 https://www.hkffbw.com/book/4nr2r9r/
 - 专业女配的自我修养（快穿） https://www.hkffbw.com/book/4nr2omp/
 - 让暴君Alpha怀崽后 https://www.hkffbw.com/book/4nr2oj8/
 - 巨物致富：回乡开钓场 https://www.hkffbw.com/book/4nr2l1j/
 - 日化人生[科研] https://www.hkffbw.com/book/4nr2knd/
 - 老实人妻，但顶级魅魔 https://www.hkffbw.com/book/4nr2jsc/
 - [足球]我的游戏存档成真了？！ https://www.hkffbw.com/book/4nr2h7s/
-- 寡妇美人模拟器 https://www.hkffbw.com/book/4nr2g16/
 - 让你们无剧本可走（快穿） https://www.hkffbw.com/book/4nr2fc7/
 - 趁她之危 https://www.hkffbw.com/book/4nr2eis/
-- 摄政王家的咸鱼夫郎 https://www.hkffbw.com/book/4nr2a3b/
 - 起初，我只是想找个冤大头 https://www.hkffbw.com/book/4nr29v1/
 - 天幕今天也在直播我搞基建 https://www.hkffbw.com/book/f5vjmr/
 - 死遁的亡夫们都回来了 https://www.hkffbw.com/book/f5vhl7/
@@ -152,6 +150,7 @@
 - 我是唯一地上神国 https://www.hkffbw.com/book/1giv1n/
 - [娱乐圈]过分美丽的她 https://www.hkffbw.com/book/1giuv3/
 - 五十年代港城日常 https://www.hkffbw.com/book/1giui0/
+- 月亮上的大筒木 https://www.hkffbw.com/book/1giudl/
 - 清澈女大的六零年代 https://www.hkffbw.com/book/1giu0g/
 - 海岛求生：生活玩家种田囤货 https://www.hkffbw.com/book/1gitqr/
 - 我有一座安全城 https://www.hkffbw.com/book/1gitjc/

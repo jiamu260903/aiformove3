@@ -1,7 +1,7 @@
 
 # 零点看书吧-书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-08 03:29:25
+更新时间：2026-09-09 03:29:32
 
 零点看书吧是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节。作为无弹窗的小说阅读平台，零点看书吧成为网络小说爱好者必备的选择。 https://www.gjnbgb.com
 
@@ -32,7 +32,6 @@
 - 我比反派先崩坏[快穿] https://www.gjnbgb.com/book/2s9sv57/
 - cos温迪后玩到真崩铁了 https://www.gjnbgb.com/book/2s9sqo5/
 - 娇气点怎么啦？［快穿］ https://www.gjnbgb.com/book/2s9sq7s/
-- 阴郁路人不想被喜欢 https://www.gjnbgb.com/book/2s9sq63/
 - [崩铁]这丰饶孽物我当定了！ https://www.gjnbgb.com/book/2s9spet/
 - 不义世界都是我马甲[综英美] https://www.gjnbgb.com/book/2s9sp9k/
 - 我有嘉宾 https://www.gjnbgb.com/book/2s9socc/
@@ -95,7 +94,6 @@
 - 五零之我在香江富甲一方 https://www.gjnbgb.com/book/2s9r693/
 - 全世界都靠我吃瓜 https://www.gjnbgb.com/book/2s9r5uf/
 - 嗲精人设走偏啦［穿书］ https://www.gjnbgb.com/book/2s9r5u8/
-- 被鬼怪宠爱的漂亮书生 https://www.gjnbgb.com/book/2s9r5j3/
 - 我在异世当妖精 https://www.gjnbgb.com/book/2s9r5gh/
 - 被剧透后，五条猫猫当然要提前享受青春呀！ https://www.gjnbgb.com/book/2s9r5ea/
 - 疯子装什么乖 https://www.gjnbgb.com/book/2s9r5d2/
@@ -171,7 +169,6 @@
 - 苗疆蛊女模拟器 https://www.gjnbgb.com/book/2s9qm66/
 - 普通人的乙女RPG[西幻] https://www.gjnbgb.com/book/2s9qlt6/
 - 万人迷总被入侵角色觊觎[快穿] https://www.gjnbgb.com/book/2s9qljk/
-- 沈助理又在隐藏他的超能力 https://www.gjnbgb.com/book/2s9ql97/
 - 不要小看娇妻啊！ https://www.gjnbgb.com/book/2s9qkv9/
 - 同时扮演贵族学院F4和平民校花 https://www.gjnbgb.com/book/2s9qks1/
 - 转生星际有了签到系统可我是颗树啊 https://www.gjnbgb.com/book/2s9qklr/
@@ -261,7 +258,6 @@
 - 三代单传妈宝女[七零] https://www.gjnbgb.com/book/2s9q8fg/
 - 忍界修罗金屋藏娇了？ https://www.gjnbgb.com/book/2s9q8ff/
 - 绝世美人靠脸躺赢[快穿] https://www.gjnbgb.com/book/2s9q8ei/
-- 炮灰的我该如何上位？ https://www.gjnbgb.com/book/2s9q87b/
 - 退圈后，我靠职场综艺火爆全网 https://www.gjnbgb.com/book/2s9q83v/
 - 重回被拐那一天[千禧年代] https://www.gjnbgb.com/book/2s9q832/
 - 小亲王他不是吉祥物 https://www.gjnbgb.com/book/2s9q7p3/
@@ -422,6 +418,7 @@
 - [足球]小小鸟堂堂来袭 https://www.gjnbgb.com/book/2s9pml6/
 - 青城玩家明明超强却过分谨慎 https://www.gjnbgb.com/book/2s9plvk/
 - 好巧，你也是妹控？[综崩铁] https://www.gjnbgb.com/book/2s9plru/
+- 魔物堆里的人类幼崽 https://www.gjnbgb.com/book/2s9plmf/
 - 撕毁女配剧本的我被神之子读心了 https://www.gjnbgb.com/book/2s9pl2a/
 - 矩阵干扰 https://www.gjnbgb.com/book/2s9pkov/
 - 柯学剧本杀，但恋爱流打法 https://www.gjnbgb.com/book/2s9pk1s/
@@ -439,7 +436,6 @@
 - 暴君偏头痛 https://www.gjnbgb.com/book/2s9ot0a/
 - 满级竹马从异世穿回来了 https://www.gjnbgb.com/book/2s9osg0/
 - 高调装神，猥琐发育 https://www.gjnbgb.com/book/2s9np4t/
-- 误入反派培养直播后 https://www.gjnbgb.com/book/2s9nos4/
 - 朕看上的少年是侠女 https://www.gjnbgb.com/book/2s9noqp/
 - [封神]圣人生欲 https://www.gjnbgb.com/book/2s9nom2/
 - 被四皇错看成小动物后 https://www.gjnbgb.com/book/2s9noj3/

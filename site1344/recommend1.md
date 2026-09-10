@@ -1,11 +1,12 @@
 
 # 国威御林小说_国威御林小说小说在线阅读
 
-更新时间：2026-09-08 03:29:56
+更新时间：2026-09-09 03:30:02
 
 国威御林小说是拥有海量的完结全本小说作品, 提供热门小说排行榜免费在线阅读, 每日更新言情、都市、穿越、青春、悬疑等作品连载。 https://www.guoweiyulin.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.guoweiyulin.com/book/360q2i3/
 - 万人嫌从末世回来了 https://www.guoweiyulin.com/book/360q2hv/
 - [全职高手]治疗什么的不干了！ https://www.guoweiyulin.com/book/360q2hu/
 - 穿咒术，但杀猴现场 https://www.guoweiyulin.com/book/360q2hq/
@@ -77,8 +78,8 @@
 - 上个鬼班[无限] https://www.guoweiyulin.com/book/360pi7j/
 - 原配夫人 https://www.guoweiyulin.com/book/360ph82/
 - 始乱终弃清冷首辅后 https://www.guoweiyulin.com/book/360ph76/
-- 星际团宠小人鱼 https://www.guoweiyulin.com/book/360ph67/
 - 让暴君Alpha怀崽后 https://www.guoweiyulin.com/book/360pfo2/
+- 我只梦你一页 https://www.guoweiyulin.com/book/360pe6b/
 - 九零重组小家庭 https://www.guoweiyulin.com/book/360pcrd/
 - [足球]足坛人生模拟器 https://www.guoweiyulin.com/book/360pa08/
 - 趁她之危 https://www.guoweiyulin.com/book/360p421/
@@ -92,13 +93,10 @@
 - 十九世纪贵族厨房（美食） https://www.guoweiyulin.com/book/360o8an/
 - 高调装神，猥琐发育 https://www.guoweiyulin.com/book/360o5ap/
 - 起初，我只是想找个冤大头 https://www.guoweiyulin.com/book/360o47t/
-- 寡妇美人模拟器 https://www.guoweiyulin.com/book/360o0ep/
-- 仙门透明人被迫万人迷 https://www.guoweiyulin.com/book/360nv7f/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.guoweiyulin.com/book/360nupi/
 - 直男咒术师的限制级游戏 https://www.guoweiyulin.com/book/360nuk5/
 - [足球]我的游戏存档成真了？！ https://www.guoweiyulin.com/book/360nu5u/
 - 让你们无剧本可走（快穿） https://www.guoweiyulin.com/book/360nu5m/
-- 摄政王家的咸鱼夫郎 https://www.guoweiyulin.com/book/360nruq/
 - 我与龙傲天寿命共享 https://www.guoweiyulin.com/book/360np24/
 - 如何正确哄睡暴君 https://www.guoweiyulin.com/book/360nl2q/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.guoweiyulin.com/book/360ne1p/
@@ -108,6 +106,7 @@
 - 在民俗惊悚片被诸神庇护 https://www.guoweiyulin.com/book/360n576/
 - 从童星开始杀穿港娱 https://www.guoweiyulin.com/book/360n4u3/
 - 漂亮女配是万人迷［快穿］ https://www.guoweiyulin.com/book/360n25i/
+- 月亮上的大筒木 https://www.guoweiyulin.com/book/360n10t/
 - 我有一座地下城 https://www.guoweiyulin.com/book/360n0ok/
 - 开局绑定郭奉孝，谋定三国风云 https://www.guoweiyulin.com/book/360n04u/
 - 同时扮演贵族学院F4和平民校花 https://www.guoweiyulin.com/book/360mstm/

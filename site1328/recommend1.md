@@ -1,11 +1,12 @@
 
 # 新乐文小说 - 最热门免费在线阅读平台 | 玄幻、网游、言情、穿越、都市全本小说
 
-更新时间：2026-09-08 03:34:20
+更新时间：2026-09-09 03:34:23
 
 新乐文小说为您提供一个无广告无弹窗的纯净阅读环境，专注于玄幻、网游、言情、穿越、都市等多种类型的小说在线阅读体验。在这里可以找到最新最热的小说章节更新，享受舒适的阅读时光。 https://www.ksqinlida.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.ksqinlida.com/book/1svdokn/
 - 万人嫌从末世回来了 https://www.ksqinlida.com/book/1svdokj/
 - [足球]小小鸟堂堂来袭 https://www.ksqinlida.com/book/1svdoki/
 - 强取师尊后 https://www.ksqinlida.com/book/1svdokh/
@@ -82,8 +83,8 @@
 - 原配夫人 https://www.ksqinlida.com/book/1svdoc4/
 - [封神]圣人生欲 https://www.ksqinlida.com/book/1svdobm/
 - 始乱终弃清冷首辅后 https://www.ksqinlida.com/book/1svdobk/
-- 星际团宠小人鱼 https://www.ksqinlida.com/book/1svdob0/
 - 高调装神，猥琐发育 https://www.ksqinlida.com/book/1svdoah/
+- 我只梦你一页 https://www.ksqinlida.com/book/1svdoaf/
 - 直男咒术师的限制级游戏 https://www.ksqinlida.com/book/1svdo8f/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.ksqinlida.com/book/1svdo74/
 - 六零之成了卷王的妹妹 https://www.ksqinlida.com/book/1svdmtv/
@@ -101,17 +102,14 @@
 - 食明 https://www.ksqinlida.com/book/1svautn/
 - 诡话第一boss https://www.ksqinlida.com/book/1svario/
 - 让暴君Alpha怀崽后 https://www.ksqinlida.com/book/1svanpl/
-- 仙门透明人被迫万人迷 https://www.ksqinlida.com/book/1svam46/
 - 日化人生[科研] https://www.ksqinlida.com/book/1svaj3k/
 - 老实人妻，但顶级魅魔 https://www.ksqinlida.com/book/1svait2/
 - 专业女配的自我修养（快穿） https://www.ksqinlida.com/book/1svaijb/
 - 巨物致富：回乡开钓场 https://www.ksqinlida.com/book/1svahg7/
 - 让你们无剧本可走（快穿） https://www.ksqinlida.com/book/1svaeu1/
 - [足球]我的游戏存档成真了？！ https://www.ksqinlida.com/book/1svae7v/
-- 寡妇美人模拟器 https://www.ksqinlida.com/book/1svadle/
 - 趁她之危 https://www.ksqinlida.com/book/1svaccr/
 - 起初，我只是想找个冤大头 https://www.ksqinlida.com/book/1sva8g3/
-- 摄政王家的咸鱼夫郎 https://www.ksqinlida.com/book/1sva5o3/
 - 死遁的亡夫们都回来了 https://www.ksqinlida.com/book/636ot3/
 - 沈助理又在隐藏他的超能力 https://www.ksqinlida.com/book/636mq8/
 - 天幕今天也在直播我搞基建 https://www.ksqinlida.com/book/636mhp/
@@ -155,6 +153,7 @@
 - 在魔法贵族学院当白月光 https://www.ksqinlida.com/book/jgf1v/
 - 全民求生:从小木屋到魔法农场 https://www.ksqinlida.com/book/jgerr/
 - 开局绑定郭奉孝，谋定三国风云 https://www.ksqinlida.com/book/jgeqc/
+- 月亮上的大筒木 https://www.ksqinlida.com/book/jgeiv/
 - 海岛求生：生活玩家种田囤货 https://www.ksqinlida.com/book/jgdn4/
 - 五十年代港城日常 https://www.ksqinlida.com/book/jgdgh/
 - 大瑛弟国 https://www.ksqinlida.com/book/jgdfo/

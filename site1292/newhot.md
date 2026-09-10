@@ -1,7 +1,7 @@
 
 # 酷匠小说网 - 专注手机阅读，免费小说在线阅读及下载
 
-更新时间：2026-09-08 03:49:03
+更新时间：2026-09-09 03:49:19
 
 酷匠小说网提供最新免费小说在线阅读及下载。包括都市小说，玄幻小说，言情小说等。精致排版，每天更新，打造极致阅读体验，让您静享“精品阅读时光”。 https://www.yumin66.com
 
@@ -34,7 +34,7 @@
 - 高调装神，猥琐发育 https://www.yumin66.com/book/5q5n4h/
 - 直男咒术师的限制级游戏 https://www.yumin66.com/book/5q5n44/
 - 满级竹马从异世穿回来了 https://www.yumin66.com/book/5q5n3d/
-- 阴郁路人不想被喜欢 https://www.yumin66.com/book/5q5n20/
+- 魔物堆里的人类幼崽 https://www.yumin66.com/book/5q5n1v/
 - 京秋婚约 https://www.yumin66.com/book/5q5n0u/
 - 求生游戏：当邪神成为生活玩家后 https://www.yumin66.com/book/5q5mv8/
 - 昭暮 https://www.yumin66.com/book/5q5c2s/
@@ -200,7 +200,6 @@
 - 旖旎新婚 https://www.yumin66.com/book/iltb6/
 - 夏油弟弟在立海大 https://www.yumin66.com/book/ilt8i/
 - 我在原始种田 https://www.yumin66.com/book/ilt0n/
-- 沈助理又在隐藏他的超能力 https://www.yumin66.com/book/ilsr7/
 - 转生星际有了签到系统可我是颗树啊 https://www.yumin66.com/book/ilslc/
 - 不是排球天才，但成为最强 https://www.yumin66.com/book/ilsbu/
 - 恶劣大佬爆改黑月光[快穿] https://www.yumin66.com/book/ilsah/
@@ -411,7 +410,6 @@
 - 青空来信 https://www.yumin66.com/book/ikvcc/
 - 我最讨厌打球了！ https://www.yumin66.com/book/ikp9a/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.yumin66.com/book/ikll5/
-- 误入反派培养直播后 https://www.yumin66.com/book/ikkeb/
 - [足球]罗蜜第一志愿 https://www.yumin66.com/book/ikgn3/
 - 哥你不能不要我 https://www.yumin66.com/book/ijvg6/
 ## 相关内容
