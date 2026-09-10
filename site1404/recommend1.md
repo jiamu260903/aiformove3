@@ -1,11 +1,12 @@
 
 # 小顽童寻书网-最热门的免费小说阅读平台|全本玄幻言情网游穿越都市小说在线阅读
 
-更新时间：2026-09-08 03:47:10
+更新时间：2026-09-09 03:47:22
 
 小顽童寻书网提供一个无广告、无弹窗干扰的环境，让您享受纯净的小说阅读体验。涵盖玄幻、网游、言情、穿越、都市等多种类型的小说资源，在这里可以找到最新的章节更新以及完整的书籍内容。 https://www.xwt999.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.xwt999.com/book/1u5ntds/
 - 炮灰的海外亲戚回国啦！ https://www.xwt999.com/book/1u5nhrc/
 - 末世八年春，游戏降临 https://www.xwt999.com/book/1u5nhr8/
 - [综英美]哥谭市民，在线抽卡 https://www.xwt999.com/book/1u5nhr7/
@@ -67,7 +68,6 @@
 - 病美人重生日记 https://www.xwt999.com/book/1u5nhmc/
 - 天幕今天也在直播我搞基建 https://www.xwt999.com/book/1u5nhi5/
 - 起初，我只是想找个冤大头 https://www.xwt999.com/book/1u5nhhq/
-- 仙门透明人被迫万人迷 https://www.xwt999.com/book/1u5nd50/
 - 上个鬼班[无限] https://www.xwt999.com/book/1u5na9l/
 - [足球]足坛人生模拟器 https://www.xwt999.com/book/1u5n9p3/
 - 让暴君Alpha怀崽后 https://www.xwt999.com/book/1u5n478/
@@ -82,7 +82,6 @@
 - 我与龙傲天寿命共享 https://www.xwt999.com/book/1u5m6ds/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.xwt999.com/book/1u5m5mt/
 - [足球]我的游戏存档成真了？！ https://www.xwt999.com/book/1u5m38j/
-- 摄政王家的咸鱼夫郎 https://www.xwt999.com/book/1u5m241/
 - 如何正确哄睡暴君 https://www.xwt999.com/book/1u5m1dl/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.xwt999.com/book/1u5m16m/
 - 死遁的亡夫们都回来了 https://www.xwt999.com/book/1u5lvu1/
@@ -96,6 +95,7 @@
 - 死对头又在挑衅我 https://www.xwt999.com/book/1u5lf09/
 - 路人攻了主角攻［快穿］ https://www.xwt999.com/book/1u5lem4/
 - 沈助理又在隐藏他的超能力 https://www.xwt999.com/book/1u5leil/
+- 月亮上的大筒木 https://www.xwt999.com/book/1u5ldll/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.xwt999.com/book/1u5lcvm/
 - 从童星开始杀穿港娱 https://www.xwt999.com/book/1u5lcjg/
 - 如何嫁给当朝首辅 https://www.xwt999.com/book/1u5l8pd/
@@ -112,6 +112,7 @@
 - [足球]小小鸟堂堂来袭 https://www.xwt999.com/book/1u5kr4d/
 - 我187了，你敢见我吗？ https://www.xwt999.com/book/1u5kpug/
 - 和姐姐的前女友欢愉后 https://www.xwt999.com/book/1u5kld2/
+- 我只梦你一页 https://www.xwt999.com/book/1u5kkfv/
 - 朕也要被强制吗？ https://www.xwt999.com/book/1u5kf34/
 - 心动嫌疑人 https://www.xwt999.com/book/1u5keo5/
 - 等我吃腻了再倒闭可以吗 https://www.xwt999.com/book/1u5keds/
@@ -137,7 +138,6 @@
 - 爱好和平但狂拆机甲 https://www.xwt999.com/book/1u5jgu5/
 - 你让魔王组建勇者小队？ https://www.xwt999.com/book/1u5jdnl/
 - 全民求生:从小木屋到魔法农场 https://www.xwt999.com/book/1u5ihme/
-- 寡妇美人模拟器 https://www.xwt999.com/book/1u5ihjm/
 - 巨物致富：回乡开钓场 https://www.xwt999.com/book/1u5ihfn/
 - 五十年代港城日常 https://www.xwt999.com/book/1u5ih1q/
 - [娱乐圈]过分美丽的她 https://www.xwt999.com/book/1u5igri/
@@ -161,7 +161,6 @@
 - [封神]圣人生欲 https://www.xwt999.com/book/1u5ierl/
 - 趁她之危 https://www.xwt999.com/book/1u5ien8/
 - 卷王后妈，八零养娃 https://www.xwt999.com/book/1u5ien4/
-- 星际团宠小人鱼 https://www.xwt999.com/book/1u5ieem/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1404/index.md)

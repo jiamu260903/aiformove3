@@ -1,11 +1,12 @@
 
 # 书旗全本小说网 - 书旗小说排行榜, 已完结版书旗小说推荐
 
-更新时间：2026-09-08 03:40:31
+更新时间：2026-09-09 03:40:30
 
 书旗全本小说网提供最新最全最热门的小说作品排行，包括但不限于已完结版玄幻小说排行榜等。本站汇集了海量网络免费小说资源供您选择。 https://www.shuqi687.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.shuqi687.com/book/8vsmjgk/
 - 你让魔王组建勇者小队？ https://www.shuqi687.com/book/8vsmjgg/
 - 魔尊闭关十年连生十一子？！ https://www.shuqi687.com/book/8vsmjgf/
 - 占有欲Daddy是我老公？ https://www.shuqi687.com/book/8vsmjge/
@@ -78,12 +79,12 @@
 - 恐游里的邻居们[万人迷] https://www.shuqi687.com/book/8vsmje9/
 - 魔改剧本后我爆火了[娱乐圈] https://www.shuqi687.com/book/8vsmje8/
 - [综英美]和亲友群穿哥谭以后 https://www.shuqi687.com/book/8vsmje7/
-- 星际团宠小人鱼 https://www.shuqi687.com/book/8vsmj8b/
 - 十九世纪贵族厨房（美食） https://www.shuqi687.com/book/8vsmj7k/
 - 原配夫人 https://www.shuqi687.com/book/8vsmj7a/
 - 始乱终弃清冷首辅后 https://www.shuqi687.com/book/8vsmj6l/
 - [封神]圣人生欲 https://www.shuqi687.com/book/8vsmj6h/
 - 高调装神，猥琐发育 https://www.shuqi687.com/book/8vsmj6e/
+- 我只梦你一页 https://www.shuqi687.com/book/8vsmj6d/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.shuqi687.com/book/8vsmj5a/
 - 直男咒术师的限制级游戏 https://www.shuqi687.com/book/8vsmj4f/
 - 六零之成了卷王的妹妹 https://www.shuqi687.com/book/8vsmhpf/
@@ -100,7 +101,6 @@
 - 如何嫁给当朝首辅 https://www.shuqi687.com/book/8vsjq8c/
 - 食明 https://www.shuqi687.com/book/8vsjpci/
 - 诡话第一boss https://www.shuqi687.com/book/8vsjm9b/
-- 仙门透明人被迫万人迷 https://www.shuqi687.com/book/8vsjjga/
 - 让暴君Alpha怀崽后 https://www.shuqi687.com/book/8vsjgov/
 - 专业女配的自我修养（快穿） https://www.shuqi687.com/book/8vsjf7e/
 - 日化人生[科研] https://www.shuqi687.com/book/8vsje1r/
@@ -108,10 +108,8 @@
 - 巨物致富：回乡开钓场 https://www.shuqi687.com/book/8vsjc70/
 - 趁她之危 https://www.shuqi687.com/book/8vsj9l8/
 - 让你们无剧本可走（快穿） https://www.shuqi687.com/book/8vsj8l9/
-- 寡妇美人模拟器 https://www.shuqi687.com/book/8vsj7nj/
 - [足球]我的游戏存档成真了？！ https://www.shuqi687.com/book/8vsj784/
 - 起初，我只是想找个冤大头 https://www.shuqi687.com/book/8vsj206/
-- 摄政王家的咸鱼夫郎 https://www.shuqi687.com/book/8vsiveh/
 - 天幕今天也在直播我搞基建 https://www.shuqi687.com/book/spatkf/
 - 死遁的亡夫们都回来了 https://www.shuqi687.com/book/sparh5/
 - 沈助理又在隐藏他的超能力 https://www.shuqi687.com/book/spao95/
@@ -159,6 +157,7 @@
 - 五十年代港城日常 https://www.shuqi687.com/book/2s41j6/
 - 开局绑定郭奉孝，谋定三国风云 https://www.shuqi687.com/book/2s41if/
 - 我是唯一地上神国 https://www.shuqi687.com/book/96qdu/
+- 月亮上的大筒木 https://www.shuqi687.com/book/96q9p/
 - 海岛求生：生活玩家种田囤货 https://www.shuqi687.com/book/96pv1/
 - 清澈女大的六零年代 https://www.shuqi687.com/book/tfeh/
 - 完蛋！被恨孕男包围了！ https://www.shuqi687.com/book/tfc4/

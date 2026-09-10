@@ -1,7 +1,7 @@
 
 # 读读窝小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-08 03:42:34
+更新时间：2026-09-09 03:42:34
 
 读读窝小说网提供最新最全的网络小说在线阅读服务，是广大书友寻找优质书籍、享受阅读乐趣的理想选择。 https://www.tiananfoundry.com
 
@@ -34,8 +34,8 @@
 - 高调装神，猥琐发育 https://www.tiananfoundry.com/book/1ol4moe/
 - 京秋婚约 https://www.tiananfoundry.com/book/1ol4mo3/
 - 直男咒术师的限制级游戏 https://www.tiananfoundry.com/book/1ol4mn6/
+- 魔物堆里的人类幼崽 https://www.tiananfoundry.com/book/1ol4ml9/
 - 满级竹马从异世穿回来了 https://www.tiananfoundry.com/book/1ol4mkq/
-- 阴郁路人不想被喜欢 https://www.tiananfoundry.com/book/1ol4mjj/
 - 求生游戏：当邪神成为生活玩家后 https://www.tiananfoundry.com/book/1ol4mj5/
 - 昭暮 https://www.tiananfoundry.com/book/1ol4bmn/
 - 修仙界都为我神魂颠倒 https://www.tiananfoundry.com/book/1ol40is/
@@ -200,7 +200,6 @@
 - 反派师尊又在迫害主角了 https://www.tiananfoundry.com/book/5lc6ou/
 - 声息渐止 https://www.tiananfoundry.com/book/5lc6lh/
 - 开局一间小卖部[经营] https://www.tiananfoundry.com/book/5lc6j2/
-- 沈助理又在隐藏他的超能力 https://www.tiananfoundry.com/book/5lc6gu/
 - 骄纵漂亮万人嫌被觊觎后［快穿］ https://www.tiananfoundry.com/book/5lc69r/
 - 女配她肆意妄为[快穿] https://www.tiananfoundry.com/book/5lc65s/
 - 围观吃瓜却发现老公和别人在一起 https://www.tiananfoundry.com/book/5lc63o/
@@ -408,7 +407,6 @@
 - 你也没死？ https://www.tiananfoundry.com/book/5lba0r/
 - 老公是松散生命体 https://www.tiananfoundry.com/book/5lb7v6/
 - 我最讨厌打球了！ https://www.tiananfoundry.com/book/5lb606/
-- 误入反派培养直播后 https://www.tiananfoundry.com/book/5lb05p/
 - [足球]罗蜜第一志愿 https://www.tiananfoundry.com/book/5lateh/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.tiananfoundry.com/book/5lat9j/
 - 哥你不能不要我 https://www.tiananfoundry.com/book/5la9h8/

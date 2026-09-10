@@ -1,11 +1,12 @@
 
 # 读读窝小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-08 03:42:34
+更新时间：2026-09-09 03:42:34
 
 读读窝小说网提供最新最全的网络小说在线阅读服务，是广大书友寻找优质书籍、享受阅读乐趣的理想选择。 https://www.tiananfoundry.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.tiananfoundry.com/book/1ol4n2k/
 - 我们小区穿末世 https://www.tiananfoundry.com/book/1ol4n2g/
 - 爱情的肯定句 https://www.tiananfoundry.com/book/1ol4n2f/
 - 欲加之罪 https://www.tiananfoundry.com/book/1ol4n2e/
@@ -82,8 +83,8 @@
 - [封神]圣人生欲 https://www.tiananfoundry.com/book/1ol4mq7/
 - 十九世纪贵族厨房（美食） https://www.tiananfoundry.com/book/1ol4mpo/
 - 始乱终弃清冷首辅后 https://www.tiananfoundry.com/book/1ol4mpm/
-- 星际团宠小人鱼 https://www.tiananfoundry.com/book/1ol4mol/
 - 高调装神，猥琐发育 https://www.tiananfoundry.com/book/1ol4moe/
+- 我只梦你一页 https://www.tiananfoundry.com/book/1ol4mod/
 - 直男咒术师的限制级游戏 https://www.tiananfoundry.com/book/1ol4mn6/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.tiananfoundry.com/book/1ol4mlt/
 - 六零之成了卷王的妹妹 https://www.tiananfoundry.com/book/1ol4lba/
@@ -100,7 +101,6 @@
 - 如何嫁给当朝首辅 https://www.tiananfoundry.com/book/1ol1sp3/
 - 食明 https://www.tiananfoundry.com/book/1ol1s3v/
 - 诡话第一boss https://www.tiananfoundry.com/book/1ol1on9/
-- 仙门透明人被迫万人迷 https://www.tiananfoundry.com/book/1ol1nij/
 - 让暴君Alpha怀崽后 https://www.tiananfoundry.com/book/1ol1kf6/
 - 日化人生[科研] https://www.tiananfoundry.com/book/1ol1i58/
 - 专业女配的自我修养（快穿） https://www.tiananfoundry.com/book/1ol1h42/
@@ -108,10 +108,8 @@
 - [足球]我的游戏存档成真了？！ https://www.tiananfoundry.com/book/1ol1ejp/
 - 巨物致富：回乡开钓场 https://www.tiananfoundry.com/book/1ol1ehi/
 - 让你们无剧本可走（快穿） https://www.tiananfoundry.com/book/1ol1c34/
-- 寡妇美人模拟器 https://www.tiananfoundry.com/book/1ol1bpg/
 - 趁她之危 https://www.tiananfoundry.com/book/1ol1ale/
 - 起初，我只是想找个冤大头 https://www.tiananfoundry.com/book/1ol15u5/
-- 摄政王家的咸鱼夫郎 https://www.tiananfoundry.com/book/1ol13u2/
 - 死遁的亡夫们都回来了 https://www.tiananfoundry.com/book/5lc8d5/
 - 天幕今天也在直播我搞基建 https://www.tiananfoundry.com/book/5lc7av/
 - 沈助理又在隐藏他的超能力 https://www.tiananfoundry.com/book/5lc6gu/
@@ -162,6 +160,7 @@
 - 苏娘子汴京摆摊日常（美食） https://www.tiananfoundry.com/book/1q0v4/
 - 海岛求生：生活玩家种田囤货 https://www.tiananfoundry.com/book/1q0or/
 - [娱乐圈]过分美丽的她 https://www.tiananfoundry.com/book/1q0ls/
+- 月亮上的大筒木 https://www.tiananfoundry.com/book/1q0i3/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1288/index.md)

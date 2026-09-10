@@ -1,7 +1,7 @@
 
 # 笔看阁-最热门的免费小说网 | 玄幻、网游、言情、穿越、都市全本小说在线阅读
 
-更新时间：2026-09-08 03:28:06
+更新时间：2026-09-09 03:28:14
 
 笔看阁是最热门的免费小说网站之一，专注于提供包括玄幻、网游、言情、穿越、都市等多种类型的小说在线阅读服务。本站承诺不设任何弹窗广告，页面简洁易用，为读者创造一个纯净舒适的阅读环境。 https://www.dasenluan.com
 
@@ -112,7 +112,6 @@
 - 全世界都靠我吃瓜 https://www.dasenluan.com/book/3jmfe5j/
 - [综英美]怎么就蝙蝠崽文学了 https://www.dasenluan.com/book/3jmfe19/
 - 我在异世当妖精 https://www.dasenluan.com/book/3jmfdeh/
-- 阴郁路人不想被喜欢 https://www.dasenluan.com/book/3jmfd7h/
 - [综武侠]嘘！不许剧透 https://www.dasenluan.com/book/3jmfcir/
 - 乱世奶嗝受 https://www.dasenluan.com/book/3jmfchg/
 - 穿成年代文里的村草 https://www.dasenluan.com/book/3jmfcd8/
@@ -184,7 +183,6 @@
 - 老公是恐怖游戏男主 https://www.dasenluan.com/book/3jmetb2/
 - 想换个老公怎么这么难 https://www.dasenluan.com/book/3jmet7f/
 - 天崩开局还能通关吗？ https://www.dasenluan.com/book/3jmet4q/
-- 沈助理又在隐藏他的超能力 https://www.dasenluan.com/book/3jmessp/
 - 不要小看娇妻啊！ https://www.dasenluan.com/book/3jmessb/
 - 帝国唯一雄虫长官[虫族] https://www.dasenluan.com/book/3jmeso3/
 - 旖旎新婚 https://www.dasenluan.com/book/3jmesh8/
@@ -254,7 +252,6 @@
 - 娇气包在无限游戏被坏男人骗 https://www.dasenluan.com/book/3jmei0i/
 - 人在综漫，但崩铁马甲 https://www.dasenluan.com/book/3jmehpd/
 - 我被厉鬼盯上了 https://www.dasenluan.com/book/3jmehmj/
-- 误入反派培养直播后 https://www.dasenluan.com/book/3jmehmd/
 - 退圈后，我靠职场综艺火爆全网 https://www.dasenluan.com/book/3jmehd2/
 - 绝世美人靠脸躺赢[快穿] https://www.dasenluan.com/book/3jmeha0/
 - 揍敌客大小姐好难攻略 https://www.dasenluan.com/book/3jmeh90/
@@ -314,7 +311,6 @@
 - 白月光拒绝拯救反派 https://www.dasenluan.com/book/3jmebs8/
 - 我养龙傲天的那些年 https://www.dasenluan.com/book/3jmebq5/
 - 银发死鱼眼也要打排球 https://www.dasenluan.com/book/3jmebpe/
-- 被鬼怪宠爱的漂亮书生 https://www.dasenluan.com/book/3jmebkj/
 - 娇嗔 https://www.dasenluan.com/book/3jmebjr/
 - 这死beta老说我们不可能 https://www.dasenluan.com/book/3jmebhu/
 - 她来赎罪 https://www.dasenluan.com/book/3jmebfp/
@@ -379,7 +375,6 @@
 - 关于我想和太宰当一辈子的挚友可是他怎么居然想和我结婚这件事 https://www.dasenluan.com/book/3jme795/
 - 朱棣造反被朱元璋表扬这事[直播剧透] https://www.dasenluan.com/book/3jme792/
 - 宇智波的遗产 https://www.dasenluan.com/book/3jme76r/
-- 炮灰的我该如何上位？ https://www.dasenluan.com/book/3jme73e/
 - 请问夫君你哪位 https://www.dasenluan.com/book/3jme6u9/
 - 国舅太难追了 https://www.dasenluan.com/book/3jme6u5/
 - 咒术师，但队友是侦探 https://www.dasenluan.com/book/3jme6nf/
@@ -425,6 +420,7 @@
 - 战死的阿爹回来了[年代] https://www.dasenluan.com/book/3jmdlf8/
 - [综英美]让我统治哥谭！！！ https://www.dasenluan.com/book/3jmdl2f/
 - 欢迎来到重生点 https://www.dasenluan.com/book/3jmdi08/
+- 魔物堆里的人类幼崽 https://www.dasenluan.com/book/3jmdh6r/
 - 好巧，你也是妹控？[综崩铁] https://www.dasenluan.com/book/3jmdgie/
 - 求生游戏：当邪神成为生活玩家后 https://www.dasenluan.com/book/3jmde9k/
 - 好兄弟暴富后非要跟我结婚 https://www.dasenluan.com/book/3jmde0k/

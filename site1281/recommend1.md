@@ -1,7 +1,7 @@
 
 # 忆想小说网 - 最佳无弹窗在线小说阅读平台
 
-更新时间：2026-09-08 03:25:53
+更新时间：2026-09-09 03:26:04
 
 忆想小说网为您提供最佳的小说阅读体验，包括但不限于各类热门小说、最新连载等，支持无弹窗阅读模式，让您享受纯净舒适的阅读环境。 https://www.bianlishihao.com
 
@@ -108,7 +108,6 @@
 - 巨物致富：回乡开钓场 https://www.bianlishihao.com/book/2vr42ci/
 - [足球]我的游戏存档成真了？！ https://www.bianlishihao.com/book/2vr40ak/
 - 让你们无剧本可走（快穿） https://www.bianlishihao.com/book/2vr3va3/
-- 寡妇美人模拟器 https://www.bianlishihao.com/book/2vr3upq/
 - 趁她之危 https://www.bianlishihao.com/book/2vr3s1u/
 - 起初，我只是想找个冤大头 https://www.bianlishihao.com/book/2vr3qmr/
 - 摄政王家的咸鱼夫郎 https://www.bianlishihao.com/book/2vr3oar/

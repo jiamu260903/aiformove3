@@ -1,7 +1,7 @@
 
 # 看书小说网 - 全本完结小说免费阅读, 最新章节更新最快, 网络小说排行榜
 
-更新时间：2026-09-08 03:32:58
+更新时间：2026-09-09 03:33:01
 
 看书小说网提供全本完结小说免费阅读服务，包括但不限于言情小说等类型。网站内所有小说均可免费阅读且无任何弹窗广告干扰。这里汇集了最好看的网络小说，同时保证了最新章节的快速更新。 https://www.kanshu666.com
 
@@ -32,7 +32,7 @@
 - 朕看上的少年是侠女 https://www.kanshu666.com/book/8jv7i7m/
 - 被四皇错看成小动物后 https://www.kanshu666.com/book/8jv7i70/
 - 高调装神，猥琐发育 https://www.kanshu666.com/book/8jv7i6h/
-- 阴郁路人不想被喜欢 https://www.kanshu666.com/book/8jv7i64/
+- 魔物堆里的人类幼崽 https://www.kanshu666.com/book/8jv7i5g/
 - 京秋婚约 https://www.kanshu666.com/book/8jv7i5c/
 - 满级竹马从异世穿回来了 https://www.kanshu666.com/book/8jv7i48/
 - 直男咒术师的限制级游戏 https://www.kanshu666.com/book/8jv7i2n/
@@ -200,7 +200,6 @@
 - [综英美]和小杰鸟青梅竹马的日子 https://www.kanshu666.com/book/rj63uk/
 - 帝国唯一雄虫长官[虫族] https://www.kanshu666.com/book/rj63ub/
 - 围观吃瓜却发现老公和别人在一起 https://www.kanshu666.com/book/rj63sr/
-- 沈助理又在隐藏他的超能力 https://www.kanshu666.com/book/rj63r4/
 - 如何投入虚情假意 https://www.kanshu666.com/book/rj6308/
 - 我在原始种田 https://www.kanshu666.com/book/rj627o/
 - 暗堕本丸，在线直播 https://www.kanshu666.com/book/rj61u7/
@@ -410,7 +409,6 @@
 - 青空来信 https://www.kanshu666.com/book/rj56ej/
 - 这谁的沙雕二次元心声！ https://www.kanshu666.com/book/rj54ab/
 - 我最讨厌打球了！ https://www.kanshu666.com/book/rj4v3s/
-- 误入反派培养直播后 https://www.kanshu666.com/book/rj4tvr/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.kanshu666.com/book/rj4oqb/
 - [足球]罗蜜第一志愿 https://www.kanshu666.com/book/rj4noc/
 - 哥你不能不要我 https://www.kanshu666.com/book/rj45vi/

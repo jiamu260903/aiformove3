@@ -1,7 +1,7 @@
 
 # 笔趣阁_书友最值得收藏的网络小说阅读网_新笔趣阁5200
 
-更新时间：2026-09-08 03:32:08
+更新时间：2026-09-09 03:32:12
 
 笔趣阁是广大书友最值得收藏的网络小说阅读网，新笔趣阁网站收录了当前最火热的网络小说，笔趣阁5200免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。 https://www.kangrunwangye.com
 
@@ -34,7 +34,7 @@
 - 高调装神，猥琐发育 https://www.kangrunwangye.com/book/1o9mg0i/
 - 京秋婚约 https://www.kangrunwangye.com/book/1o9mft6/
 - 满级竹马从异世穿回来了 https://www.kangrunwangye.com/book/1o9mfsi/
-- 阴郁路人不想被喜欢 https://www.kangrunwangye.com/book/1o9mfrp/
+- 魔物堆里的人类幼崽 https://www.kangrunwangye.com/book/1o9mfsg/
 - 直男咒术师的限制级游戏 https://www.kangrunwangye.com/book/1o9mfri/
 - 求生游戏：当邪神成为生活玩家后 https://www.kangrunwangye.com/book/1o9mfr9/
 - 昭暮 https://www.kangrunwangye.com/book/1o9m4us/
@@ -197,7 +197,6 @@
 - 帝国唯一雄虫长官[虫族] https://www.kangrunwangye.com/book/5k7j9h/
 - 沉烟 https://www.kangrunwangye.com/book/5k7j3i/
 - 老公是恐怖游戏男主 https://www.kangrunwangye.com/book/5k7it3/
-- 沈助理又在隐藏他的超能力 https://www.kangrunwangye.com/book/5k7iof/
 - 我在原始种田 https://www.kangrunwangye.com/book/5k7id5/
 - 围观吃瓜却发现老公和别人在一起 https://www.kangrunwangye.com/book/5k7ico/
 - 天崩开局还能通关吗？ https://www.kangrunwangye.com/book/5k7i9k/
@@ -410,7 +409,6 @@
 - 老公是松散生命体 https://www.kangrunwangye.com/book/5k6kss/
 - 这谁的沙雕二次元心声！ https://www.kangrunwangye.com/book/5k6kik/
 - 我最讨厌打球了！ https://www.kangrunwangye.com/book/5k6h46/
-- 误入反派培养直播后 https://www.kangrunwangye.com/book/5k6dk8/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.kangrunwangye.com/book/5k68v4/
 - [足球]罗蜜第一志愿 https://www.kangrunwangye.com/book/5k66hg/
 - 哥你不能不要我 https://www.kangrunwangye.com/book/5k5l59/

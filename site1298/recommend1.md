@@ -1,7 +1,7 @@
 
 # 笔趣屋-最热门的免费小说网 | 玄幻,网游,言情,穿越,都市小说全本在线阅读
 
-更新时间：2026-09-08 03:34:02
+更新时间：2026-09-09 03:34:05
 
 笔趣屋提供多种类型的好看小说在线阅读服务，包括但不限于玄幻、网游、言情、穿越及都市等热门分类。网站承诺无广告无弹窗干扰，页面简洁，方便用户享受纯净的阅读体验。 https://www.kmjike.com
 
@@ -107,7 +107,6 @@
 - 专业女配的自我修养（快穿） https://www.kmjike.com/book/4mlsf63/
 - 巨物致富：回乡开钓场 https://www.kmjike.com/book/4mlsec5/
 - 让你们无剧本可走（快穿） https://www.kmjike.com/book/4mlsc2g/
-- 寡妇美人模拟器 https://www.kmjike.com/book/4mlsb7u/
 - 趁她之危 https://www.kmjike.com/book/4mlsb7n/
 - [足球]我的游戏存档成真了？！ https://www.kmjike.com/book/4mls9eb/
 - 起初，我只是想找个冤大头 https://www.kmjike.com/book/4mls3jh/

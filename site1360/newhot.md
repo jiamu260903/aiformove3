@@ -1,7 +1,7 @@
 
 # 生活文学小说-质感小说文学网站|高质量文学作品与创作交流平台
 
-更新时间：2026-09-08 03:39:15
+更新时间：2026-09-09 03:39:15
 
 生活文学小说是一个专注于提供质感小说文学的网站，致力于为文学爱好者打造一个高质量的文学作品和创作交流平台，在这里可以享受到独特的夜间文学之美。 https://www.shenghuo988.com
 
@@ -163,11 +163,9 @@
 - 忍界有文学 https://www.shenghuo988.com/book/86g8j8b/
 - 沉烟 https://www.shenghuo988.com/book/86g8j7p/
 - 万人迷总被入侵角色觊觎[快穿] https://www.shenghuo988.com/book/86g8j2s/
-- 沈助理又在隐藏他的超能力 https://www.shenghuo988.com/book/86g8j10/
 - 渣攻试图洗白[快穿] https://www.shenghuo988.com/book/86g8is0/
 - 纨绔渣A拒绝入赘长公主府 https://www.shenghuo988.com/book/86g8ing/
 - 普通人的乙女RPG[西幻] https://www.shenghuo988.com/book/86g8i9c/
-- 被鬼怪宠爱的漂亮书生 https://www.shenghuo988.com/book/86g8i6p/
 - 老公是松散生命体 https://www.shenghuo988.com/book/86g8huu/
 - [全职高手]小船 https://www.shenghuo988.com/book/86g8hsa/
 - 老公是恐怖游戏男主 https://www.shenghuo988.com/book/86g8hdn/
@@ -235,7 +233,6 @@
 - 吃瓜也能整顿豪门？ https://www.shenghuo988.com/book/86g87na/
 - 蜜蜂膝盖银子弹 https://www.shenghuo988.com/book/86g878b/
 - 摆烂后我成了邪神学院大佬 https://www.shenghuo988.com/book/86g8758/
-- 误入反派培养直播后 https://www.shenghuo988.com/book/86g870s/
 - 强爱清冷O后她上瘾了[快穿] https://www.shenghuo988.com/book/86g86jg/
 - 都说了我很娇纵了 https://www.shenghuo988.com/book/86g86je/
 - 少女妄想症 https://www.shenghuo988.com/book/86g86gn/
@@ -275,7 +272,6 @@
 - [综武侠]万人迷小姐想要富贵荣华 https://www.shenghuo988.com/book/86g82h3/
 - 佐久早才不是洁癖！ https://www.shenghuo988.com/book/86g82g4/
 - 穿进民国后宅从杂役做起 https://www.shenghuo988.com/book/86g82eh/
-- 炮灰的我该如何上位？ https://www.shenghuo988.com/book/86g82db/
 - 奶奶蛋糕店[美食] https://www.shenghuo988.com/book/86g82cm/
 - [封神]圣人生欲 https://www.shenghuo988.com/book/86g82aq/
 - 捡到一条许愿龙 https://www.shenghuo988.com/book/86g827a/
@@ -435,9 +431,9 @@
 - 自大狂 https://www.shenghuo988.com/book/86g6tdg/
 - 和室友他爸恋爱后 https://www.shenghuo988.com/book/86g6q62/
 - 满级竹马从异世穿回来了 https://www.shenghuo988.com/book/86g6k57/
+- 魔物堆里的人类幼崽 https://www.shenghuo988.com/book/86g5ml3/
 - 京秋婚约 https://www.shenghuo988.com/book/86g5m3e/
 - 直男咒术师的限制级游戏 https://www.shenghuo988.com/book/86g5l2b/
-- 阴郁路人不想被喜欢 https://www.shenghuo988.com/book/86g5k7b/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1360/index.md)

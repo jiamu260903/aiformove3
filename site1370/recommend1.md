@@ -1,7 +1,7 @@
 
 # 燃文故事小说网 - 无弹窗全本小说免费阅读
 
-更新时间：2026-09-08 03:30:30
+更新时间：2026-09-09 03:30:35
 
 燃文故事小说网提供无弹窗干扰的小说阅读体验，支持全本小说在线免费阅读。 https://www.gushi687.com
 
@@ -155,7 +155,6 @@
 - 天幕今天也在直播我搞基建 https://www.gushi687.com/book/63qpq5i/
 - 海岛求生：生活玩家种田囤货 https://www.gushi687.com/book/63qpq56/
 - 五十年代港城日常 https://www.gushi687.com/book/63qppp5/
-- 寡妇美人模拟器 https://www.gushi687.com/book/63qppje/
 - [娱乐圈]过分美丽的她 https://www.gushi687.com/book/63qpp9q/
 - 老公对不起 https://www.gushi687.com/book/63qpp5n/
 - 日化人生[科研] https://www.gushi687.com/book/63qpp58/

@@ -1,7 +1,7 @@
 
 # 积家健康小说 - 无弹窗无广告小说在线阅读
 
-更新时间：2026-09-08 03:31:19
+更新时间：2026-09-09 03:31:24
 
 积家健康小说提供一个干净简洁的平台让您享受无弹窗无广告的小说在线阅读体验。无论是在线阅读还是下载小说，都是完全免费的。 https://www.jijiajk.com
 
@@ -34,7 +34,6 @@
 - 娇气点怎么啦？［快穿］ https://www.jijiajk.com/book/3ab2j6p/
 - [崩铁]这丰饶孽物我当定了！ https://www.jijiajk.com/book/3ab2ick/
 - 不义世界都是我马甲[综英美] https://www.jijiajk.com/book/3ab2i6j/
-- 阴郁路人不想被喜欢 https://www.jijiajk.com/book/3ab2h0a/
 - 我有嘉宾 https://www.jijiajk.com/book/3ab2gqo/
 - [综武侠]风流 https://www.jijiajk.com/book/3ab2gj9/
 - 孤独症崽崽穿越到狗血爽文里[穿书] https://www.jijiajk.com/book/3ab2fe2/
@@ -74,7 +73,6 @@
 - 我当县令那些年 https://www.jijiajk.com/book/3ab16mk/
 - 暗堕本丸，在线直播 https://www.jijiajk.com/book/3ab15ta/
 - 可怜的天然呆直男[快穿] https://www.jijiajk.com/book/3ab15f3/
-- 被鬼怪宠爱的漂亮书生 https://www.jijiajk.com/book/3ab15ah/
 - [足球]听克圣的话，成了米兰金童 https://www.jijiajk.com/book/3ab1507/
 - [综英美]flash小游戏，哥谭出品 https://www.jijiajk.com/book/3ab14fs/
 - 我有一座城 https://www.jijiajk.com/book/3ab14dt/
@@ -168,7 +166,6 @@
 - 万人迷又被自己巧取豪夺了［快穿］ https://www.jijiajk.com/book/3ab0h83/
 - 纨绔渣A拒绝入赘长公主府 https://www.jijiajk.com/book/3ab0gpt/
 - 沉烟 https://www.jijiajk.com/book/3ab0gou/
-- 沈助理又在隐藏他的超能力 https://www.jijiajk.com/book/3ab0g9j/
 - 普通人的乙女RPG[西幻] https://www.jijiajk.com/book/3ab0g7a/
 - 万人迷总被入侵角色觊觎[快穿] https://www.jijiajk.com/book/3ab0fr7/
 - 渣攻试图洗白[快穿] https://www.jijiajk.com/book/3ab0fnc/
@@ -275,7 +272,6 @@
 - 糊咖爱豆用动物心声破案 https://www.jijiajk.com/book/3ab00dg/
 - 如何登顶反派第一 https://www.jijiajk.com/book/3aavvse/
 - 揍敌客大小姐好难攻略 https://www.jijiajk.com/book/3aavvns/
-- 炮灰的我该如何上位？ https://www.jijiajk.com/book/3aavvli/
 - 野比春子穿越事件簿 https://www.jijiajk.com/book/3aavvkc/
 - 想听越前君向我告白 https://www.jijiajk.com/book/3aavvg6/
 - [西汉]我打工给全家改命 https://www.jijiajk.com/book/3aavvfe/
@@ -430,6 +426,7 @@
 - 撕毁女配剧本的我被神之子读心了 https://www.jijiajk.com/book/3aavh39/
 - 刀子精手心的人偶崽崽 https://www.jijiajk.com/book/3aavgu2/
 - 和港城大小姐先婚后爱了 https://www.jijiajk.com/book/3aavfsm/
+- 魔物堆里的人类幼崽 https://www.jijiajk.com/book/3aavffd/
 - 柯学剧本杀，但恋爱流打法 https://www.jijiajk.com/book/3aavejs/
 - 好巧，你也是妹控？[综崩铁] https://www.jijiajk.com/book/3aavegt/
 - 欢迎来到重生点 https://www.jijiajk.com/book/3aavefe/
@@ -444,7 +441,6 @@
 - 满级竹马从异世穿回来了 https://www.jijiajk.com/book/3aaunmp/
 - 丧尸老婆喂养日记 https://www.jijiajk.com/book/3aaugqt/
 - 你，后室管理员 https://www.jijiajk.com/book/3aativ3/
-- 误入反派培养直播后 https://www.jijiajk.com/book/3aatitm/
 - [封神]圣人生欲 https://www.jijiajk.com/book/3aatin5/
 - 朕看上的少年是侠女 https://www.jijiajk.com/book/3aathl5/
 - 被四皇错看成小动物后 https://www.jijiajk.com/book/3aath12/

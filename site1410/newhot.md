@@ -1,11 +1,15 @@
 
 # 新华 MBA雷火小说网 - 最新最全的小说阅读平台
 
-更新时间：2026-09-08 03:46:04
+更新时间：2026-09-09 03:46:17
 
 新华 MBA雷火小说网提供海量正版小说资源，在线免费阅读最新热门小说，支持手机电脑多端同步阅读，是书友们值得收藏的优质小说阅读网站。 https://www.xhmba.com
 
 ## 最新小说
+- 当甚尔转生成继国 https://www.xhmba.com/book/7mj2jf2/
+- 节能型社恐靠交友存活打排球 https://www.xhmba.com/book/7mj2ioc/
+- 渣攻他疯了［快穿］ https://www.xhmba.com/book/7mj2i6g/
+- [足球]番外乐子集 https://www.xhmba.com/book/7mj2hne/
 - 我超凶的！[快穿] https://www.xhmba.com/book/7mj2g6d/
 - 我比反派先崩坏[快穿] https://www.xhmba.com/book/7mj2fcv/
 - cos温迪后玩到真崩铁了 https://www.xhmba.com/book/7mj2aug/
@@ -24,7 +28,6 @@
 - 孤独症崽崽穿越到狗血爽文里[穿书] https://www.xhmba.com/book/7mj26is/
 - 我，始皇闺女，未来皇帝，打钱 https://www.xhmba.com/book/7mj269c/
 - 开局给李世民盘点安史之乱 https://www.xhmba.com/book/7mj25fd/
-- 阴郁路人不想被喜欢 https://www.xhmba.com/book/7mj2526/
 - 怪谈小镇游玩指南[无限] https://www.xhmba.com/book/7mj24er/
 - 离开那个混蛋后 https://www.xhmba.com/book/7mj23ou/
 - 穿成反派的亡夫后[虫族] https://www.xhmba.com/book/7mj20jp/
@@ -158,7 +161,6 @@
 - 幼崽假少爷选择回归寒门 https://www.xhmba.com/book/7mj06va/
 - 忍界有文学 https://www.xhmba.com/book/7mj06ot/
 - [全职高手]小船 https://www.xhmba.com/book/7mj06o3/
-- 沈助理又在隐藏他的超能力 https://www.xhmba.com/book/7mj06m0/
 - 纨绔渣A拒绝入赘长公主府 https://www.xhmba.com/book/7mj06gm/
 - 渣攻试图洗白[快穿] https://www.xhmba.com/book/7mj068l/
 - 普通人的乙女RPG[西幻] https://www.xhmba.com/book/7mj05it/
@@ -259,7 +261,6 @@
 - 想听越前君向我告白 https://www.xhmba.com/book/7mivnik/
 - 小亲王他不是吉祥物 https://www.xhmba.com/book/7mivnif/
 - 重回被拐那一天[千禧年代] https://www.xhmba.com/book/7mivndf/
-- 炮灰的我该如何上位？ https://www.xhmba.com/book/7mivnb9/
 - 如何登顶反派第一 https://www.xhmba.com/book/7mivn7c/
 - 全世界名为爱的恶意 https://www.xhmba.com/book/7mivn0k/
 - 绝世美人靠脸躺赢[快穿] https://www.xhmba.com/book/7mivmvj/
@@ -412,6 +413,7 @@
 - 求生游戏：当邪神成为生活玩家后 https://www.xhmba.com/book/7mivbgs/
 - 好兄弟暴富后非要跟我结婚 https://www.xhmba.com/book/7mivbgc/
 - 普通高中生，但兼职咒术师 https://www.xhmba.com/book/7mivb6p/
+- 魔物堆里的人类幼崽 https://www.xhmba.com/book/7miva8j/
 - 好巧，你也是妹控？[综崩铁] https://www.xhmba.com/book/7miv9ua/
 - 欢迎来到重生点 https://www.xhmba.com/book/7miv9m1/
 - 李玉灯 https://www.xhmba.com/book/7miv9aj/
@@ -429,10 +431,10 @@
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.xhmba.com/book/7miuk1q/
 - 满级竹马从异世穿回来了 https://www.xhmba.com/book/7miujkf/
 - 丧尸老婆喂养日记 https://www.xhmba.com/book/7miubjf/
+- 为她守节第十年 https://www.xhmba.com/book/7miu4he/
 - 朕看上的少年是侠女 https://www.xhmba.com/book/7mita8u/
 - 你，后室管理员 https://www.xhmba.com/book/7mit9dn/
 - [封神]圣人生欲 https://www.xhmba.com/book/7mit8aj/
-- 误入反派培养直播后 https://www.xhmba.com/book/7mit7go/
 - 高调装神，猥琐发育 https://www.xhmba.com/book/7mit7ee/
 - 被四皇错看成小动物后 https://www.xhmba.com/book/7mit7c7/
 ## 相关内容

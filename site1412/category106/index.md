@@ -1,11 +1,45 @@
 
 # 瑞文文学网 - 最新穿越小说大全及热门小说排行榜
 
-更新时间：2026-09-08 03:45:47
+更新时间：2026-09-09 03:45:55
 
 瑞文文学网提供多种类型的小说推荐，包括最新的都市、玄幻、武侠等多种类别。无论您是喜欢穿越还是重生故事，或是对其他风格如历史、科幻感兴趣，在这里都能找到心仪的作品！ https://www.wxdx2.com
 
 ## 传奇小说 
+- [传奇 第1页](/site1412/category106/1.md)
+- [传奇 第2页](/site1412/category106/2.md)
+- [传奇 第3页](/site1412/category106/3.md)
+- [传奇 第4页](/site1412/category106/4.md)
+- [传奇 第5页](/site1412/category106/5.md)
+- [传奇 第6页](/site1412/category106/6.md)
+- [传奇 第7页](/site1412/category106/7.md)
+- [传奇 第8页](/site1412/category106/8.md)
+- [传奇 第9页](/site1412/category106/9.md)
+- [传奇 第10页](/site1412/category106/10.md)
+- [传奇 第11页](/site1412/category106/11.md)
+- [传奇 第12页](/site1412/category106/12.md)
+- [传奇 第13页](/site1412/category106/13.md)
+- [传奇 第14页](/site1412/category106/14.md)
+- [传奇 第15页](/site1412/category106/15.md)
+- [传奇 第16页](/site1412/category106/16.md)
+- [传奇 第17页](/site1412/category106/17.md)
+- [传奇 第18页](/site1412/category106/18.md)
+- [传奇 第19页](/site1412/category106/19.md)
+- [传奇 第20页](/site1412/category106/20.md)
+- [传奇 第21页](/site1412/category106/21.md)
+- [传奇 第22页](/site1412/category106/22.md)
+- [传奇 第23页](/site1412/category106/23.md)
+- [传奇 第24页](/site1412/category106/24.md)
+- [传奇 第25页](/site1412/category106/25.md)
+- [传奇 第26页](/site1412/category106/26.md)
+- [传奇 第27页](/site1412/category106/27.md)
+- [传奇 第28页](/site1412/category106/28.md)
+- [传奇 第29页](/site1412/category106/29.md)
+- [传奇 第30页](/site1412/category106/30.md)
+- [传奇 第31页](/site1412/category106/31.md)
+- [传奇 第32页](/site1412/category106/32.md)
+- [传奇 第33页](/site1412/category106/33.md)
+- [传奇 第34页](/site1412/category106/34.md)
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1412/index.md)

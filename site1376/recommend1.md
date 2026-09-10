@@ -1,11 +1,12 @@
 
 # 零点看书吧-书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-08 03:29:25
+更新时间：2026-09-09 03:29:32
 
 零点看书吧是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节。作为无弹窗的小说阅读平台，零点看书吧成为网络小说爱好者必备的选择。 https://www.gjnbgb.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.gjnbgb.com/book/2s9tbbe/
 - 末世八年春，游戏降临 https://www.gjnbgb.com/book/2s9t5fr/
 - ［西幻］RPG就不要谈恋爱了吧！ https://www.gjnbgb.com/book/2s9t5fp/
 - 死遁APP https://www.gjnbgb.com/book/2s9t5fm/
@@ -71,7 +72,6 @@
 - 天幕今天也在直播我搞基建 https://www.gjnbgb.com/book/2s9su8l/
 - 起初，我只是想找个冤大头 https://www.gjnbgb.com/book/2s9stke/
 - 上个鬼班[无限] https://www.gjnbgb.com/book/2s9spvi/
-- 仙门透明人被迫万人迷 https://www.gjnbgb.com/book/2s9sosd/
 - [足球]足坛人生模拟器 https://www.gjnbgb.com/book/2s9sijm/
 - 九零重组小家庭 https://www.gjnbgb.com/book/2s9si0r/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.gjnbgb.com/book/2s9shlp/
@@ -85,7 +85,6 @@
 - 专业女配的自我修养（快穿） https://www.gjnbgb.com/book/2s9rgng/
 - [足球]我的游戏存档成真了？！ https://www.gjnbgb.com/book/2s9rcaf/
 - 我与龙傲天寿命共享 https://www.gjnbgb.com/book/2s9rbvk/
-- 摄政王家的咸鱼夫郎 https://www.gjnbgb.com/book/2s9rafb/
 - 让你们无剧本可走（快穿） https://www.gjnbgb.com/book/2s9r9af/
 - 我骗家里的钱养你啊 https://www.gjnbgb.com/book/2s9r8g3/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.gjnbgb.com/book/2s9r7de/
@@ -102,6 +101,8 @@
 - 路人攻了主角攻［快穿］ https://www.gjnbgb.com/book/2s9qhsg/
 - 开局绑定郭奉孝，谋定三国风云 https://www.gjnbgb.com/book/2s9qgk4/
 - 苏娘子汴京摆摊日常（美食） https://www.gjnbgb.com/book/2s9qg91/
+- 月亮上的大筒木 https://www.gjnbgb.com/book/2s9qg6b/
+- 我只梦你一页 https://www.gjnbgb.com/book/2s9qfmo/
 - 直男咒术师的限制级游戏 https://www.gjnbgb.com/book/2s9qdut/
 - 漂亮女配是万人迷［快穿］ https://www.gjnbgb.com/book/2s9qasc/
 - 我有一座地下城 https://www.gjnbgb.com/book/2s9qaf4/
@@ -137,7 +138,6 @@
 - 爱好和平但狂拆机甲 https://www.gjnbgb.com/book/2s9oqd6/
 - 你让魔王组建勇者小队？ https://www.gjnbgb.com/book/2s9onjd/
 - 成为养成系练习生后 https://www.gjnbgb.com/book/2s9nqb0/
-- 寡妇美人模拟器 https://www.gjnbgb.com/book/2s9nq9f/
 - 在民俗惊悚片被诸神庇护 https://www.gjnbgb.com/book/2s9nq7m/
 - [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.gjnbgb.com/book/2s9npvq/
 - 老公对不起 https://www.gjnbgb.com/book/2s9npnn/
@@ -160,7 +160,6 @@
 - 巨物致富：回乡开钓场 https://www.gjnbgb.com/book/2s9nnfo/
 - 卷王后妈，八零养娃 https://www.gjnbgb.com/book/2s9nnee/
 - 日化人生[科研] https://www.gjnbgb.com/book/2s9nndn/
-- 星际团宠小人鱼 https://www.gjnbgb.com/book/2s9nn9s/
 - 原配夫人 https://www.gjnbgb.com/book/2s9nn6p/
 ## 相关内容
 - [README](/README.md)

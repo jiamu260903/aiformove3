@@ -1,7 +1,7 @@
 
 # 爱你中文网-最热门的免费小说网|全本小说在线阅读
 
-更新时间：2026-09-08 03:35:14
+更新时间：2026-09-09 03:35:17
 
 爱你中文网致力于打造一个无广告无弹窗的在线小说阅读平台，提供包括但不限于玄幻、网游、言情、穿越及都市等多种类型的小说在线阅读服务。网站页面简洁，支持小说最新章节快速更新。 https://www.longjiangstone.com
 
@@ -34,7 +34,7 @@
 - 高调装神，猥琐发育 https://www.longjiangstone.com/book/34b4gf/
 - 满级竹马从异世穿回来了 https://www.longjiangstone.com/book/34b4fo/
 - 直男咒术师的限制级游戏 https://www.longjiangstone.com/book/34b4cq/
-- 阴郁路人不想被喜欢 https://www.longjiangstone.com/book/34b4ck/
+- 魔物堆里的人类幼崽 https://www.longjiangstone.com/book/34b4cj/
 - 京秋婚约 https://www.longjiangstone.com/book/34b4bm/
 - 求生游戏：当邪神成为生活玩家后 https://www.longjiangstone.com/book/34b4b7/
 - 昭暮 https://www.longjiangstone.com/book/34apg1/
@@ -187,7 +187,6 @@
 - 直男大佬误闯生子文片场 https://www.longjiangstone.com/book/a3a9j/
 - 不要小看娇妻啊！ https://www.longjiangstone.com/book/a3a4d/
 - 转生星际有了签到系统可我是颗树啊 https://www.longjiangstone.com/book/a3a3b/
-- 沈助理又在隐藏他的超能力 https://www.longjiangstone.com/book/a3a1f/
 - 全星际捧我当神明 https://www.longjiangstone.com/book/a39r1/
 - [综武侠]与剑有缘 https://www.longjiangstone.com/book/a39ov/
 - 沉烟 https://www.longjiangstone.com/book/a39kk/
@@ -410,7 +409,6 @@
 - 青空来信 https://www.longjiangstone.com/book/a2av6/
 - 老公是松散生命体 https://www.longjiangstone.com/book/a2a1j/
 - 我最讨厌打球了！ https://www.longjiangstone.com/book/a2517/
-- 误入反派培养直播后 https://www.longjiangstone.com/book/a22i7/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.longjiangstone.com/book/a201l/
 - [足球]罗蜜第一志愿 https://www.longjiangstone.com/book/a1rb2/
 - 哥你不能不要我 https://www.longjiangstone.com/book/a1apr/

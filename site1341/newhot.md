@@ -1,7 +1,7 @@
 
 # 春日书屋-免费热门小说在线阅读平台|晋江文学|全本免费畅读
 
-更新时间：2026-09-08 03:39:30
+更新时间：2026-09-09 03:39:30
 
 春日书屋是一个专注于提供免费全本小说的在线阅读平台。精选海量热门网络小说，涵盖玄幻、言情、都市、仙侠等各类题材，所有书籍均可免费畅读。致力于为广大书友打造一个无弹窗、更新快的纯净阅读空间，让您轻松追更，尽享阅读乐趣！ https://www.shenyuanhg.com
 
@@ -108,7 +108,6 @@
 - 五零之我在香江富甲一方 https://www.shenyuanhg.com/book/7gic3ne/
 - 我在异世当妖精 https://www.shenyuanhg.com/book/7gic3eq/
 - [综英美]怎么就蝙蝠崽文学了 https://www.shenyuanhg.com/book/7gic3d6/
-- 阴郁路人不想被喜欢 https://www.shenyuanhg.com/book/7gic2td/
 - 修罗场里的无能丈夫 https://www.shenyuanhg.com/book/7gic2p1/
 - 好巧，我爸也是狗血文男主 https://www.shenyuanhg.com/book/7gic2o6/
 - 当抠搜总裁被人读心[穿书] https://www.shenyuanhg.com/book/7gic2j5/
@@ -175,7 +174,6 @@
 - 渣攻试图洗白[快穿] https://www.shenyuanhg.com/book/7gibjqg/
 - 帝国唯一雄虫长官[虫族] https://www.shenyuanhg.com/book/7gibj7a/
 - 沉烟 https://www.shenyuanhg.com/book/7gibj6m/
-- 沈助理又在隐藏他的超能力 https://www.shenyuanhg.com/book/7gibj48/
 - [综英美]和小杰鸟青梅竹马的日子 https://www.shenyuanhg.com/book/7gibj2f/
 - [综武侠]与剑有缘 https://www.shenyuanhg.com/book/7gibitl/
 - 我不可能舔一个漂亮捞子 https://www.shenyuanhg.com/book/7gibirk/
@@ -254,7 +252,6 @@
 - 假如樱是砂忍 https://www.shenyuanhg.com/book/7gib6vh/
 - 想听越前君向我告白 https://www.shenyuanhg.com/book/7gib6nc/
 - 我被厉鬼盯上了 https://www.shenyuanhg.com/book/7gib6k3/
-- 误入反派培养直播后 https://www.shenyuanhg.com/book/7gib6j5/
 - 绝世美人靠脸躺赢[快穿] https://www.shenyuanhg.com/book/7gib6di/
 - 小傻子［无限］ https://www.shenyuanhg.com/book/7gib65f/
 - 与清冷O协议结婚后她失忆了 https://www.shenyuanhg.com/book/7gib64b/
@@ -328,7 +325,6 @@
 - 娇婚惯养 https://www.shenyuanhg.com/book/7giavn3/
 - 我让人生赢家俯首称臣的那些年 https://www.shenyuanhg.com/book/7giavlq/
 - 师妹为何要如此 https://www.shenyuanhg.com/book/7giavku/
-- 被鬼怪宠爱的漂亮书生 https://www.shenyuanhg.com/book/7giavc5/
 - 她来赎罪 https://www.shenyuanhg.com/book/7giavb8/
 - 正常人成为虫母后沦陷修罗场 https://www.shenyuanhg.com/book/7giav9t/
 - [综英美]忠诚的地球迎来了伟大的开拓者 https://www.shenyuanhg.com/book/7giav9p/
@@ -353,7 +349,6 @@
 - 随便捡小狗会出大问题 https://www.shenyuanhg.com/book/7giau8v/
 - 樋口干部不干了 https://www.shenyuanhg.com/book/7giau6l/
 - 邪神祂总被觊觎 https://www.shenyuanhg.com/book/7giau62/
-- 炮灰的我该如何上位？ https://www.shenyuanhg.com/book/7giau3n/
 - 穿进忍界后每天迫害黑绝 https://www.shenyuanhg.com/book/7giau22/
 - 运动番主角模拟器 https://www.shenyuanhg.com/book/7giatsj/
 - 在家不许汪汪大叫 https://www.shenyuanhg.com/book/7giatoi/
@@ -425,6 +420,7 @@
 - 战死的阿爹回来了[年代] https://www.shenyuanhg.com/book/7giab63/
 - [综英美]让我统治哥谭！！！ https://www.shenyuanhg.com/book/7gia9oi/
 - 好巧，你也是妹控？[综崩铁] https://www.shenyuanhg.com/book/7gia69b/
+- 魔物堆里的人类幼崽 https://www.shenyuanhg.com/book/7gia5rh/
 - 欢迎来到重生点 https://www.shenyuanhg.com/book/7gia4pj/
 - 关于我虚构了一个男友这件事 https://www.shenyuanhg.com/book/7gia3oe/
 - 求生游戏：当邪神成为生活玩家后 https://www.shenyuanhg.com/book/7gia2tu/

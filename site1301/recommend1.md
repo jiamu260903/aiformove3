@@ -1,11 +1,12 @@
 
 # 系统流小说网 - 免费在线阅读各类热门小说
 
-更新时间：2026-09-08 03:38:57
+更新时间：2026-09-09 03:38:57
 
 系统流小说网为您提供免费在线阅读服务，涵盖了玄幻魔法、武侠修真、都市言情等多类别的小说资源，是读者们最喜爱的小说阅读平台之一。 https://www.ronsriverboat.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.ronsriverboat.com/book/8583skn/
 - 星露谷，但日本战国 https://www.ronsriverboat.com/book/8583skj/
 - 我骗家里的钱养你啊 https://www.ronsriverboat.com/book/8583ski/
 - 夫人每天都在伪装 https://www.ronsriverboat.com/book/8583skh/
@@ -82,8 +83,8 @@
 - [封神]圣人生欲 https://www.ronsriverboat.com/book/8583sbu/
 - 始乱终弃清冷首辅后 https://www.ronsriverboat.com/book/8583sbn/
 - 原配夫人 https://www.ronsriverboat.com/book/8583sbk/
-- 星际团宠小人鱼 https://www.ronsriverboat.com/book/8583sb4/
 - 高调装神，猥琐发育 https://www.ronsriverboat.com/book/8583sag/
+- 我只梦你一页 https://www.ronsriverboat.com/book/8583saf/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.ronsriverboat.com/book/8583s6i/
 - 直男咒术师的限制级游戏 https://www.ronsriverboat.com/book/8583s5h/
 - 六零之成了卷王的妹妹 https://www.ronsriverboat.com/book/8583qth/
@@ -100,18 +101,15 @@
 - 如何嫁给当朝首辅 https://www.ronsriverboat.com/book/85813hj/
 - 食明 https://www.ronsriverboat.com/book/8581330/
 - 诡话第一boss https://www.ronsriverboat.com/book/8580vqn/
-- 仙门透明人被迫万人迷 https://www.ronsriverboat.com/book/8580rrd/
 - 让暴君Alpha怀崽后 https://www.ronsriverboat.com/book/8580q79/
 - 专业女配的自我修养（快穿） https://www.ronsriverboat.com/book/8580p3l/
 - 日化人生[科研] https://www.ronsriverboat.com/book/8580ofv/
 - 老实人妻，但顶级魅魔 https://www.ronsriverboat.com/book/8580nkn/
 - 巨物致富：回乡开钓场 https://www.ronsriverboat.com/book/8580kl4/
 - 让你们无剧本可走（快穿） https://www.ronsriverboat.com/book/8580hu0/
-- 寡妇美人模拟器 https://www.ronsriverboat.com/book/8580gvp/
 - [足球]我的游戏存档成真了？！ https://www.ronsriverboat.com/book/8580gu6/
 - 趁她之危 https://www.ronsriverboat.com/book/8580fm3/
 - 起初，我只是想找个冤大头 https://www.ronsriverboat.com/book/8580bb2/
-- 摄政王家的咸鱼夫郎 https://www.ronsriverboat.com/book/85809cl/
 - 死遁的亡夫们都回来了 https://www.ronsriverboat.com/book/q42jdf/
 - 天幕今天也在直播我搞基建 https://www.ronsriverboat.com/book/q42ics/
 - 沈助理又在隐藏他的超能力 https://www.ronsriverboat.com/book/q42gha/
@@ -154,6 +152,7 @@
 - 全民求生:从小木屋到魔法农场 https://www.ronsriverboat.com/book/2jj7qi/
 - 我有一座安全城 https://www.ronsriverboat.com/book/2jj7a4/
 - 海岛求生：生活玩家种田囤货 https://www.ronsriverboat.com/book/2jj78f/
+- 月亮上的大筒木 https://www.ronsriverboat.com/book/2jj77q/
 - 我是唯一地上神国 https://www.ronsriverboat.com/book/2jj71i/
 - 在魔法贵族学院当白月光 https://www.ronsriverboat.com/book/2jj6p4/
 - [娱乐圈]过分美丽的她 https://www.ronsriverboat.com/book/8bh52/

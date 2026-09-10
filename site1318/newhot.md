@@ -1,7 +1,7 @@
 
 # 书旗全本小说网 - 书旗小说排行榜, 已完结版书旗小说推荐
 
-更新时间：2026-09-08 03:40:31
+更新时间：2026-09-09 03:40:30
 
 书旗全本小说网提供最新最全最热门的小说作品排行，包括但不限于已完结版玄幻小说排行榜等。本站汇集了海量网络免费小说资源供您选择。 https://www.shuqi687.com
 
@@ -32,10 +32,10 @@
 - 被四皇错看成小动物后 https://www.shuqi687.com/book/8vsmj6r/
 - [封神]圣人生欲 https://www.shuqi687.com/book/8vsmj6h/
 - 高调装神，猥琐发育 https://www.shuqi687.com/book/8vsmj6e/
+- 魔物堆里的人类幼崽 https://www.shuqi687.com/book/8vsmj4r/
 - 直男咒术师的限制级游戏 https://www.shuqi687.com/book/8vsmj4f/
 - 满级竹马从异世穿回来了 https://www.shuqi687.com/book/8vsmj3s/
 - 京秋婚约 https://www.shuqi687.com/book/8vsmj2o/
-- 阴郁路人不想被喜欢 https://www.shuqi687.com/book/8vsmj26/
 - 求生游戏：当邪神成为生活玩家后 https://www.shuqi687.com/book/8vsmj15/
 - 昭暮 https://www.shuqi687.com/book/8vsm87g/
 - 修仙界都为我神魂颠倒 https://www.shuqi687.com/book/8vslu01/
@@ -203,7 +203,6 @@
 - 开局一间小卖部[经营] https://www.shuqi687.com/book/spaoms/
 - 万人迷误入炮灰片场 https://www.shuqi687.com/book/spaoih/
 - 帝国唯一雄虫长官[虫族] https://www.shuqi687.com/book/spaof9/
-- 沈助理又在隐藏他的超能力 https://www.shuqi687.com/book/spao95/
 - 全星际捧我当神明 https://www.shuqi687.com/book/spao59/
 - 沉烟 https://www.shuqi687.com/book/spao1u/
 - 在猫猫星当珍稀动物 https://www.shuqi687.com/book/spanuu/
@@ -410,7 +409,6 @@
 - 老公是松散生命体 https://www.shuqi687.com/book/sp9sc6/
 - 青空来信 https://www.shuqi687.com/book/sp9qru/
 - 我最讨厌打球了！ https://www.shuqi687.com/book/sp9k0n/
-- 误入反派培养直播后 https://www.shuqi687.com/book/sp9hda/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.shuqi687.com/book/sp9gj5/
 - [足球]罗蜜第一志愿 https://www.shuqi687.com/book/sp9eq7/
 - 哥你不能不要我 https://www.shuqi687.com/book/sp8qs9/

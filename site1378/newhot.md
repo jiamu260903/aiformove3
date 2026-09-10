@@ -1,7 +1,7 @@
 
 # 灌南华侨小说网笔趣阁_书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-08 03:29:41
+更新时间：2026-09-09 03:29:47
 
 灌南华侨小说网笔趣阁海量免费小说在线阅读平台，汇聚玄幻、都市、言情、科幻、悬疑等全品类热门小说，实时更新全网爆款佳作。无广告干扰，支持缓存离线看，让你随时随地沉浸阅读世界，找书看书就来笔趣阁，满足你的所有阅读渴望。 https://www.gnhqbs.com
 
@@ -32,7 +32,6 @@
 - [崩铁]这丰饶孽物我当定了！ https://www.gnhqbs.com/book/1cqmgp1/
 - [综英美]蝙蝠崽但脆皮 https://www.gnhqbs.com/book/1cqmf0v/
 - 我拿的可是反派剧本 https://www.gnhqbs.com/book/1cqmevu/
-- 阴郁路人不想被喜欢 https://www.gnhqbs.com/book/1cqmegl/
 - 我有嘉宾 https://www.gnhqbs.com/book/1cqme6v/
 - 氪成酒厂股东了怎么办 https://www.gnhqbs.com/book/1cqmcvi/
 - [综武侠]风流 https://www.gnhqbs.com/book/1cqmc51/
@@ -100,7 +99,6 @@
 - 期春思 https://www.gnhqbs.com/book/1cqkmpd/
 - 嗲精人设走偏啦［穿书］ https://www.gnhqbs.com/book/1cqkmci/
 - 万人迷绑定美强惨系统后 https://www.gnhqbs.com/book/1cqkmbp/
-- 被鬼怪宠爱的漂亮书生 https://www.gnhqbs.com/book/1cqkm91/
 - 当抠搜总裁被人读心[穿书] https://www.gnhqbs.com/book/1cqkm2c/
 - 好巧，我爸也是狗血文男主 https://www.gnhqbs.com/book/1cqklui/
 - [综英美]怎么就蝙蝠崽文学了 https://www.gnhqbs.com/book/1cqklt8/
@@ -168,7 +166,6 @@
 - 当然是拿世界冠军啦![短道速滑] https://www.gnhqbs.com/book/1cqk8lo/
 - ƽ��С����(�崩) https://www.gnhqbs.com/book/1cqk8kj/
 - 普通人的乙女RPG[西幻] https://www.gnhqbs.com/book/1cqk7vk/
-- 沈助理又在隐藏他的超能力 https://www.gnhqbs.com/book/1cqk7e2/
 - [全职高手]小船 https://www.gnhqbs.com/book/1cqk71h/
 - 纨绔渣A拒绝入赘长公主府 https://www.gnhqbs.com/book/1cqk6ia/
 - 逃妾 https://www.gnhqbs.com/book/1cqk6g6/
@@ -268,7 +265,6 @@
 - 重回被拐那一天[千禧年代] https://www.gnhqbs.com/book/1cqjo10/
 - 这谁的沙雕二次元心声！ https://www.gnhqbs.com/book/1cqjo03/
 - 当魔修反派穿成治愈系[穿书] https://www.gnhqbs.com/book/1cqjnqd/
-- 炮灰的我该如何上位？ https://www.gnhqbs.com/book/1cqjnml/
 - 我被厉鬼盯上了 https://www.gnhqbs.com/book/1cqjni3/
 - 小亲王他不是吉祥物 https://www.gnhqbs.com/book/1cqjnf1/
 - 忍界修罗金屋藏娇了？ https://www.gnhqbs.com/book/1cqjncq/
@@ -429,6 +425,7 @@
 - [足球]小小鸟堂堂来袭 https://www.gnhqbs.com/book/1cqj6qd/
 - 撕毁女配剧本的我被神之子读心了 https://www.gnhqbs.com/book/1cqj698/
 - 好巧，你也是妹控？[综崩铁] https://www.gnhqbs.com/book/1cqj5u4/
+- 魔物堆里的人类幼崽 https://www.gnhqbs.com/book/1cqj524/
 - 矩阵干扰 https://www.gnhqbs.com/book/1cqj3ri/
 - 柯学剧本杀，但恋爱流打法 https://www.gnhqbs.com/book/1cqj3k2/
 - 法外狂猫 https://www.gnhqbs.com/book/1cqj2qm/
@@ -448,7 +445,6 @@
 - [封神]圣人生欲 https://www.gnhqbs.com/book/1cqha6t/
 - 高调装神，猥琐发育 https://www.gnhqbs.com/book/1cqh9jg/
 - 朕看上的少年是侠女 https://www.gnhqbs.com/book/1cqh8kc/
-- 误入反派培养直播后 https://www.gnhqbs.com/book/1cqh7uj/
 - 你，后室管理员 https://www.gnhqbs.com/book/1cqh7ij/
 ## 相关内容
 - [README](/README.md)
