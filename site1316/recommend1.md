@@ -1,7 +1,7 @@
 
 # 创意小说网 - 最热门的小说在线阅读
 
-更新时间：2026-09-08 03:26:59
+更新时间：2026-09-09 03:27:09
 
 创意小说网是一个广大书友喜欢的小说网，免费为您提供热门小说无弹窗在线阅读和txt下载。 https://www.chuangyi1687.com
 
@@ -108,7 +108,6 @@
 - 巨物致富：回乡开钓场 https://www.chuangyi1687.com/book/1hvdhup/
 - 让你们无剧本可走（快穿） https://www.chuangyi1687.com/book/1hvdeur/
 - [足球]我的游戏存档成真了？！ https://www.chuangyi1687.com/book/1hvdehe/
-- 寡妇美人模拟器 https://www.chuangyi1687.com/book/1hvdd5b/
 - 趁她之危 https://www.chuangyi1687.com/book/1hvda2g/
 - 起初，我只是想找个冤大头 https://www.chuangyi1687.com/book/1hvd7r1/
 - 摄政王家的咸鱼夫郎 https://www.chuangyi1687.com/book/1hvd5sh/

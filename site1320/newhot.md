@@ -1,7 +1,7 @@
 
 # 故事文学网 - 精彩小说尽在其中
 
-更新时间：2026-09-08 03:30:12
+更新时间：2026-09-09 03:30:17
 
 故事文学网是一个专注于小说创作与阅读的网站，汇聚了众多优秀作品，为读者提供精彩的文学体验。欢迎您来到故事文学网，发现阅读的乐趣！ https://www.gushi1314.com
 
@@ -35,7 +35,7 @@
 - 直男咒术师的限制级游戏 https://www.gushi1314.com/book/8m9ju1p/
 - 满级竹马从异世穿回来了 https://www.gushi1314.com/book/8m9ju06/
 - 京秋婚约 https://www.gushi1314.com/book/8m9jtvc/
-- 阴郁路人不想被喜欢 https://www.gushi1314.com/book/8m9jtv0/
+- 魔物堆里的人类幼崽 https://www.gushi1314.com/book/8m9jtuf/
 - 求生游戏：当邪神成为生活玩家后 https://www.gushi1314.com/book/8m9jtt4/
 - 昭暮 https://www.gushi1314.com/book/8m9jj3h/
 - 修仙界都为我神魂颠倒 https://www.gushi1314.com/book/8m9j7s2/
@@ -202,7 +202,6 @@
 - 恶劣大佬爆改黑月光[快穿] https://www.gushi1314.com/book/rqk3g1/
 - 伟大航路万人迷游戏中 https://www.gushi1314.com/book/rqk3f5/
 - 骄纵漂亮万人嫌被觊觎后［快穿］ https://www.gushi1314.com/book/rqk37n/
-- 沈助理又在隐藏他的超能力 https://www.gushi1314.com/book/rqk36j/
 - 反派师尊又在迫害主角了 https://www.gushi1314.com/book/rqk2qs/
 - 暗堕本丸，在线直播 https://www.gushi1314.com/book/rqk2pj/
 - 围观吃瓜却发现老公和别人在一起 https://www.gushi1314.com/book/rqk2o6/
@@ -408,7 +407,6 @@
 - 青空来信 https://www.gushi1314.com/book/rqj87r/
 - 老公是松散生命体 https://www.gushi1314.com/book/rqj719/
 - 我最讨厌打球了！ https://www.gushi1314.com/book/rqiuv5/
-- 误入反派培养直播后 https://www.gushi1314.com/book/rqitan/
 - [足球]罗蜜第一志愿 https://www.gushi1314.com/book/rqirav/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.gushi1314.com/book/rqiors/
 - 哥你不能不要我 https://www.gushi1314.com/book/rqi56o/

@@ -1,7 +1,7 @@
 
 # 泡泡中文书社-无弹窗书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-08 03:41:04
+更新时间：2026-09-09 03:41:03
 
 泡泡中文书社是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。 https://www.shushe818.com
 
@@ -161,14 +161,12 @@
 - 被迫扮演病娇以后[快穿] https://www.shushe818.com/book/29b9i82/
 - [全职高手]小船 https://www.shushe818.com/book/29b9i1d/
 - 沉烟 https://www.shushe818.com/book/29b9hus/
-- 被鬼怪宠爱的漂亮书生 https://www.shushe818.com/book/29b9huc/
 - 老公是松散生命体 https://www.shushe818.com/book/29b9htf/
 - 普通人的乙女RPG[西幻] https://www.shushe818.com/book/29b9hf0/
 - 渣攻试图洗白[快穿] https://www.shushe818.com/book/29b9h1q/
 - 忍界有文学 https://www.shushe818.com/book/29b9grv/
 - 万人迷总被入侵角色觊觎[快穿] https://www.shushe818.com/book/29b9gd3/
 - 纨绔渣A拒绝入赘长公主府 https://www.shushe818.com/book/29b9fq7/
-- 沈助理又在隐藏他的超能力 https://www.shushe818.com/book/29b9fq5/
 - 苗疆蛊女模拟器 https://www.shushe818.com/book/29b9fgv/
 - [足球]那个德国队新皇 https://www.shushe818.com/book/29b9evk/
 - 微臣怜惜公主 https://www.shushe818.com/book/29b9ese/
@@ -231,7 +229,6 @@
 - 强爱清冷O后她上瘾了[快穿] https://www.shushe818.com/book/29b96d1/
 - 掉马后成了奥特带恶人 https://www.shushe818.com/book/29b966k/
 - 一见倾心[快穿] https://www.shushe818.com/book/29b962r/
-- 误入反派培养直播后 https://www.shushe818.com/book/29b961s/
 - 都说了我很娇纵了 https://www.shushe818.com/book/29b95nm/
 - 人外收集录［快穿］ https://www.shushe818.com/book/29b95km/
 - 反派的病弱白月光重生了 https://www.shushe818.com/book/29b95g7/
@@ -275,7 +272,6 @@
 - 好好做1 https://www.shushe818.com/book/29b90e2/
 - 与前妻上了同档综艺 https://www.shushe818.com/book/29b9062/
 - 哥你不能不要我 https://www.shushe818.com/book/29b905u/
-- 炮灰的我该如何上位？ https://www.shushe818.com/book/29b8vua/
 - [综武侠]万人迷小姐想要富贵荣华 https://www.shushe818.com/book/29b8vt8/
 - 奶奶蛋糕店[美食] https://www.shushe818.com/book/29b8vr0/
 - 修仙回来后开了间民宿 https://www.shushe818.com/book/29b8voc/
@@ -436,7 +432,7 @@
 - 和室友他爸恋爱后 https://www.shushe818.com/book/29b7pmk/
 - 满级竹马从异世穿回来了 https://www.shushe818.com/book/29b7if6/
 - 直男咒术师的限制级游戏 https://www.shushe818.com/book/29b6jqj/
-- 阴郁路人不想被喜欢 https://www.shushe818.com/book/29b6j7m/
+- 魔物堆里的人类幼崽 https://www.shushe818.com/book/29b6jb6/
 - 京秋婚约 https://www.shushe818.com/book/29b6i7p/
 ## 相关内容
 - [README](/README.md)

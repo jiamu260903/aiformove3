@@ -1,11 +1,12 @@
 
 # 书社1687小说免费-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-09-08 03:40:49
+更新时间：2026-09-09 03:40:48
 
 书社1687小说免费提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏书社1687小说，享受便捷的小说阅读体验。 https://www.shushe1687.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.shushe1687.com/book/489h9hs/
 - 好心的俄罗斯人 https://www.shushe1687.com/book/489h9ho/
 - 末世八年春，游戏降临 https://www.shushe1687.com/book/489h9hn/
 - [综英美]哥谭市民，在线抽卡 https://www.shushe1687.com/book/489h9hi/
@@ -81,8 +82,8 @@
 - 昭暮 https://www.shushe1687.com/book/489g1n0/
 - 十九世纪贵族厨房（美食） https://www.shushe1687.com/book/489funq/
 - 原配夫人 https://www.shushe1687.com/book/489fumg/
-- 星际团宠小人鱼 https://www.shushe1687.com/book/489fuk7/
 - 始乱终弃清冷首辅后 https://www.shushe1687.com/book/489fudm/
+- 我只梦你一页 https://www.shushe1687.com/book/489fni5/
 - 完蛋！被恨孕男包围了！ https://www.shushe1687.com/book/489fnef/
 - 高调装神，猥琐发育 https://www.shushe1687.com/book/489fnds/
 - 食明 https://www.shushe1687.com/book/489fklh/
@@ -91,7 +92,6 @@
 - 专业女配的自我修养（快穿） https://www.shushe1687.com/book/489fdne/
 - [足球]我的游戏存档成真了？！ https://www.shushe1687.com/book/489f7v6/
 - 让你们无剧本可走（快穿） https://www.shushe1687.com/book/489f7fq/
-- 摄政王家的咸鱼夫郎 https://www.shushe1687.com/book/489f60q/
 - 我与龙傲天寿命共享 https://www.shushe1687.com/book/489f5hj/
 - 如何正确哄睡暴君 https://www.shushe1687.com/book/489f3st/
 - 我骗家里的钱养你啊 https://www.shushe1687.com/book/489eutr/
@@ -107,6 +107,7 @@
 - 开局绑定郭奉孝，谋定三国风云 https://www.shushe1687.com/book/489ed9h/
 - 韩团绿卡不想忍了 https://www.shushe1687.com/book/489ecn2/
 - 路人攻了主角攻［快穿］ https://www.shushe1687.com/book/489ebbu/
+- 月亮上的大筒木 https://www.shushe1687.com/book/489eavc/
 - 我有一座地下城 https://www.shushe1687.com/book/489eae8/
 - 苏娘子汴京摆摊日常（美食） https://www.shushe1687.com/book/489e9a4/
 - 漂亮女配是万人迷［快穿］ https://www.shushe1687.com/book/489e8iq/
@@ -143,9 +144,7 @@
 - 权宋一只统 https://www.shushe1687.com/book/489cqs3/
 - 爱好和平但狂拆机甲 https://www.shushe1687.com/book/489cjn7/
 - 成为养成系练习生后 https://www.shushe1687.com/book/489bocp/
-- 仙门透明人被迫万人迷 https://www.shushe1687.com/book/489bobv/
 - 我有一座安全城 https://www.shushe1687.com/book/489bo57/
-- 寡妇美人模拟器 https://www.shushe1687.com/book/489bo1b/
 - 清澈女大的六零年代 https://www.shushe1687.com/book/489bnub/
 - 老公对不起 https://www.shushe1687.com/book/489bnqi/
 - 我是唯一地上神国 https://www.shushe1687.com/book/489bnog/

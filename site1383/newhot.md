@@ -1,7 +1,7 @@
 
 # 紫竹原始小说 - 最新最全的小说文学网站
 
-更新时间：2026-09-08 03:27:35
+更新时间：2026-09-09 03:27:44
 
 紫竹原始小说是一个专注于分享最新、最全的小说文学作品的网站。我们致力于为读者带来全新的阅读体验，欢迎访问我们的网站，尽情享受文学的魅力。 https://www.cnysxc.com
 
@@ -34,7 +34,6 @@
 - 娇气点怎么啦？［快穿］ https://www.cnysxc.com/book/8ee0c9a/
 - [崩铁]这丰饶孽物我当定了！ https://www.cnysxc.com/book/8ee0bg9/
 - 不义世界都是我马甲[综英美] https://www.cnysxc.com/book/8ee0bb8/
-- 阴郁路人不想被喜欢 https://www.cnysxc.com/book/8ee0a6m/
 - 我有嘉宾 https://www.cnysxc.com/book/8ee09rk/
 - [综武侠]风流 https://www.cnysxc.com/book/8ee09on/
 - 孤独症崽崽穿越到狗血爽文里[穿书] https://www.cnysxc.com/book/8ee08jj/
@@ -73,7 +72,6 @@
 - 我当县令那些年 https://www.cnysxc.com/book/8eduvlk/
 - 五美元在哥谭活一月 https://www.cnysxc.com/book/8eduv5k/
 - 我骗家里的钱养你啊 https://www.cnysxc.com/book/8eduusj/
-- 被鬼怪宠爱的漂亮书生 https://www.cnysxc.com/book/8edutu8/
 - [足球]听克圣的话，成了米兰金童 https://www.cnysxc.com/book/8edutn6/
 - 可怜的天然呆直男[快穿] https://www.cnysxc.com/book/8edut0g/
 - [综英美]flash小游戏，哥谭出品 https://www.cnysxc.com/book/8edusus/
@@ -166,7 +164,6 @@
 - 带着刀剑穿越伟大航路后，你当上了五皇 https://www.cnysxc.com/book/8eduabv/
 - 全世界名为爱的恶意 https://www.cnysxc.com/book/8edua79/
 - ƽ��С����(�崩) https://www.cnysxc.com/book/8edua6a/
-- 沈助理又在隐藏他的超能力 https://www.cnysxc.com/book/8edua3s/
 - 同时扮演贵族学院F4和平民校花 https://www.cnysxc.com/book/8edu9th/
 - [全职高手]小船 https://www.cnysxc.com/book/8edu9dq/
 - 哥你不能不要我 https://www.cnysxc.com/book/8edu9dg/
@@ -265,7 +262,6 @@
 - 社畜，但是天才魔导师 https://www.cnysxc.com/book/8edtqnd/
 - 小亲王他不是吉祥物 https://www.cnysxc.com/book/8edtqn9/
 - 假如樱是砂忍 https://www.cnysxc.com/book/8edtqki/
-- 炮灰的我该如何上位？ https://www.cnysxc.com/book/8edtqiv/
 - 挚友和我穿越后分了阵营 https://www.cnysxc.com/book/8edtqhn/
 - 娇气包在无限游戏被坏男人骗 https://www.cnysxc.com/book/8edtqfj/
 - 与清冷O协议结婚后她失忆了 https://www.cnysxc.com/book/8edtqe7/
@@ -429,6 +425,7 @@
 - 和室友他爸恋爱后 https://www.cnysxc.com/book/8edtat8/
 - 青城玩家明明超强却过分谨慎 https://www.cnysxc.com/book/8edta9u/
 - 刀子精手心的人偶崽崽 https://www.cnysxc.com/book/8edta7g/
+- 魔物堆里的人类幼崽 https://www.cnysxc.com/book/8edt823/
 - 和港城大小姐先婚后爱了 https://www.cnysxc.com/book/8edt81h/
 - 好巧，你也是妹控？[综崩铁] https://www.cnysxc.com/book/8edt7vt/
 - 欢迎来到重生点 https://www.cnysxc.com/book/8edt7nj/
@@ -448,7 +445,6 @@
 - 你，后室管理员 https://www.cnysxc.com/book/8edrauk/
 - [封神]圣人生欲 https://www.cnysxc.com/book/8edrare/
 - 高调装神，猥琐发育 https://www.cnysxc.com/book/8edraiu/
-- 误入反派培养直播后 https://www.cnysxc.com/book/8edr9od/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1383/index.md)

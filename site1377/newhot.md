@@ -1,7 +1,7 @@
 
 # 牛魔王JJ电子书 - 小说阅读网, 全本免费完结小说在线阅读及下载
 
-更新时间：2026-09-08 03:36:17
+更新时间：2026-09-09 03:36:19
 
 牛魔王JJ电子书提供精彩小说阅读服务，包括各种类型的小说排行榜、免费好看的小说等。涵盖穿越小说、都市小说、言情小说、玄幻小说等多种类别，支持全本全集完结小说在线阅读以及TXT下载。 https://www.nmwjj.com
 
@@ -32,7 +32,6 @@
 - 我比反派先崩坏[快穿] https://www.nmwjj.com/book/18cjb76/
 - cos温迪后玩到真崩铁了 https://www.nmwjj.com/book/18cj6ru/
 - 娇气点怎么啦？［快穿］ https://www.nmwjj.com/book/18cj6d1/
-- 阴郁路人不想被喜欢 https://www.nmwjj.com/book/18cj698/
 - [崩铁]这丰饶孽物我当定了！ https://www.nmwjj.com/book/18cj5jg/
 - 不义世界都是我马甲[综英美] https://www.nmwjj.com/book/18cj5ba/
 - 我有嘉宾 https://www.nmwjj.com/book/18cj4ir/
@@ -104,7 +103,6 @@
 - 七零年代闺蜜团的奋斗 https://www.nmwjj.com/book/18chgfj/
 - 嗲精人设走偏啦［穿书］ https://www.nmwjj.com/book/18chgcr/
 - 全世界都靠我吃瓜 https://www.nmwjj.com/book/18chgam/
-- 被鬼怪宠爱的漂亮书生 https://www.nmwjj.com/book/18chg2q/
 - 我不想当男太后[穿书] https://www.nmwjj.com/book/18chf74/
 - 无趣的我，今天也在选秀中断层第一 https://www.nmwjj.com/book/18chf61/
 - 为了抢走贵妃我造反了 https://www.nmwjj.com/book/18chf5t/
@@ -168,7 +166,6 @@
 - 忍界有文学 https://www.nmwjj.com/book/18ch306/
 - 万人迷总被入侵角色觊觎[快穿] https://www.nmwjj.com/book/18ch2m3/
 - 咦？我爸爸复活啦 https://www.nmwjj.com/book/18ch2f5/
-- 沈助理又在隐藏他的超能力 https://www.nmwjj.com/book/18ch2ej/
 - 普通人的乙女RPG[西幻] https://www.nmwjj.com/book/18ch289/
 - 苗疆蛊女模拟器 https://www.nmwjj.com/book/18ch20e/
 - [全职高手]小船 https://www.nmwjj.com/book/18ch1c4/
@@ -257,7 +254,6 @@
 - 在立海大玩网球模拟器 https://www.nmwjj.com/book/18cgl8t/
 - 揍敌客大小姐好难攻略 https://www.nmwjj.com/book/18cgl4b/
 - 当魔修反派穿成治愈系[穿书] https://www.nmwjj.com/book/18cgl3s/
-- 炮灰的我该如何上位？ https://www.nmwjj.com/book/18cgl0v/
 - 三代单传妈宝女[七零] https://www.nmwjj.com/book/18cgkr8/
 - [综英美]小玉有话说 https://www.nmwjj.com/book/18cgko1/
 - 恶毒女配是绝色美人[快穿] https://www.nmwjj.com/book/18cgkd9/
@@ -419,6 +415,7 @@
 - 刀子精手心的人偶崽崽 https://www.nmwjj.com/book/18cg5cm/
 - 求生游戏：当邪神成为生活玩家后 https://www.nmwjj.com/book/18cg4bi/
 - 吐槽役审神者会爆改幕后大boss吗 https://www.nmwjj.com/book/18cg49u/
+- 魔物堆里的人类幼崽 https://www.nmwjj.com/book/18cg377/
 - 青城玩家明明超强却过分谨慎 https://www.nmwjj.com/book/18cg33t/
 - 撕毁女配剧本的我被神之子读心了 https://www.nmwjj.com/book/18cg33l/
 - 好巧，你也是妹控？[综崩铁] https://www.nmwjj.com/book/18cg269/
@@ -440,7 +437,6 @@
 - 满级竹马从异世穿回来了 https://www.nmwjj.com/book/18cf7hj/
 - 你，后室管理员 https://www.nmwjj.com/book/18ce6ep/
 - [封神]圣人生欲 https://www.nmwjj.com/book/18ce5p4/
-- 误入反派培养直播后 https://www.nmwjj.com/book/18ce594/
 - 朕看上的少年是侠女 https://www.nmwjj.com/book/18ce51i/
 - 高调装神，猥琐发育 https://www.nmwjj.com/book/18ce4lp/
 - 被四皇错看成小动物后 https://www.nmwjj.com/book/18ce4g3/

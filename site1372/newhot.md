@@ -1,7 +1,7 @@
 
 # 落秋文学网 - 免费全本小说阅读,最新章节更新,无弹窗广告
 
-更新时间：2026-09-08 03:44:12
+更新时间：2026-09-09 03:44:15
 
 落秋文学网提供最快最新的网络小说更新服务，推荐最好看的网络小说排行榜。全站支持无弹窗广告阅读体验，全本小说均可免费在线阅读。 https://www.wenxue868.com
 
@@ -159,14 +159,12 @@
 - ƽ��С����(�崩) https://www.wenxue868.com/book/rla4o7/
 - 巨龙宝藏是个小社恐 https://www.wenxue868.com/book/rla4h5/
 - [综武侠]换装之江湖遍地是小号 https://www.wenxue868.com/book/rla49i/
-- 沈助理又在隐藏他的超能力 https://www.wenxue868.com/book/rla3a1/
 - 忍界有文学 https://www.wenxue868.com/book/rla2j7/
 - 沉烟 https://www.wenxue868.com/book/rla2j2/
 - 万人迷总被入侵角色觊觎[快穿] https://www.wenxue868.com/book/rla2e3/
 - 纨绔渣A拒绝入赘长公主府 https://www.wenxue868.com/book/rla2cv/
 - 老公是松散生命体 https://www.wenxue868.com/book/rla1v9/
 - [全职高手]小船 https://www.wenxue868.com/book/rla1qs/
-- 被鬼怪宠爱的漂亮书生 https://www.wenxue868.com/book/rla1jg/
 - 苗疆蛊女模拟器 https://www.wenxue868.com/book/rla1hv/
 - 普通人的乙女RPG[西幻] https://www.wenxue868.com/book/rla1fh/
 - 渣攻试图洗白[快穿] https://www.wenxue868.com/book/rla11s/
@@ -244,7 +242,6 @@
 - 少女妄想症 https://www.wenxue868.com/book/rl9ls7/
 - 父皇，我是gay https://www.wenxue868.com/book/rl9lq0/
 - 一见倾心[快穿] https://www.wenxue868.com/book/rl9lp5/
-- 误入反派培养直播后 https://www.wenxue868.com/book/rl9ldi/
 - 社畜，但是天才魔导师 https://www.wenxue868.com/book/rl9l6n/
 - 在立海大玩网球模拟器 https://www.wenxue868.com/book/rl9l5d/
 - 三代单传妈宝女[七零] https://www.wenxue868.com/book/rl9l59/
@@ -284,7 +281,6 @@
 - 与前妻上了同档综艺 https://www.wenxue868.com/book/rl9h1s/
 - 捡到一条许愿龙 https://www.wenxue868.com/book/rl9h18/
 - 月光白 https://www.wenxue868.com/book/rl9gtt/
-- 炮灰的我该如何上位？ https://www.wenxue868.com/book/rl9gti/
 - 异种大食堂[无限] https://www.wenxue868.com/book/rl9gs7/
 - [综英美]如何获得地球户口 https://www.wenxue868.com/book/rl9gs3/
 - 拯救美强惨女主进行时[快穿] https://www.wenxue868.com/book/rl9gr6/
@@ -435,7 +431,7 @@
 - 暴君偏头痛 https://www.wenxue868.com/book/rl8cvv/
 - 和室友他爸恋爱后 https://www.wenxue868.com/book/rl89vo/
 - 满级竹马从异世穿回来了 https://www.wenxue868.com/book/rl83n7/
-- 阴郁路人不想被喜欢 https://www.wenxue868.com/book/rl74j0/
+- 魔物堆里的人类幼崽 https://www.wenxue868.com/book/rl75tv/
 - 直男咒术师的限制级游戏 https://www.wenxue868.com/book/rl7471/
 - 京秋婚约 https://www.wenxue868.com/book/rl73tu/
 ## 相关内容

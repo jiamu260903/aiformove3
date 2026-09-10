@@ -1,11 +1,12 @@
 
 # 文学小说网手机版_好看的文学小说TXT下载,无弹窗手机小说网
 
-更新时间：2026-09-08 03:43:38
+更新时间：2026-09-09 03:43:42
 
 文学小说网收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者最值得收藏的网络小说阅读网,精彩小说尽在文学小说网(无弹窗小说网)。 https://www.wenxue521.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.wenxue521.com/book/93olskl/
 - 欲加之罪 https://www.wenxue521.com/book/93olskh/
 - 占有欲Daddy是我老公？ https://www.wenxue521.com/book/93olskg/
 - 禁止继承限制级雌君 https://www.wenxue521.com/book/93olskf/
@@ -78,12 +79,12 @@
 - 烈火焚身[巴黎圣母院] https://www.wenxue521.com/book/93olsib/
 - [足球]小小鸟堂堂来袭 https://www.wenxue521.com/book/93olsi9/
 - 清穿女回来后[天幕] https://www.wenxue521.com/book/93olsi8/
-- 星际团宠小人鱼 https://www.wenxue521.com/book/93olsc5/
 - 十九世纪贵族厨房（美食） https://www.wenxue521.com/book/93olsc4/
 - 始乱终弃清冷首辅后 https://www.wenxue521.com/book/93olsbs/
 - [封神]圣人生欲 https://www.wenxue521.com/book/93olsba/
 - 原配夫人 https://www.wenxue521.com/book/93olsb6/
 - 高调装神，猥琐发育 https://www.wenxue521.com/book/93olsaf/
+- 我只梦你一页 https://www.wenxue521.com/book/93olsad/
 - 直男咒术师的限制级游戏 https://www.wenxue521.com/book/93ols9s/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.wenxue521.com/book/93ols76/
 - 六零之成了卷王的妹妹 https://www.wenxue521.com/book/93olqu6/
@@ -101,7 +102,6 @@
 - 食明 https://www.wenxue521.com/book/93oj3g5/
 - 诡话第一boss https://www.wenxue521.com/book/93oj05u/
 - 让暴君Alpha怀崽后 https://www.wenxue521.com/book/93oiriv/
-- 仙门透明人被迫万人迷 https://www.wenxue521.com/book/93oiq21/
 - 老实人妻，但顶级魅魔 https://www.wenxue521.com/book/93oinrc/
 - 专业女配的自我修养（快穿） https://www.wenxue521.com/book/93oinhl/
 - 日化人生[科研] https://www.wenxue521.com/book/93oinc0/
@@ -109,9 +109,7 @@
 - [足球]我的游戏存档成真了？！ https://www.wenxue521.com/book/93oiiu8/
 - 让你们无剧本可走（快穿） https://www.wenxue521.com/book/93oihd1/
 - 趁她之危 https://www.wenxue521.com/book/93oigd7/
-- 寡妇美人模拟器 https://www.wenxue521.com/book/93oig97/
 - 起初，我只是想找个冤大头 https://www.wenxue521.com/book/93oid5n/
-- 摄政王家的咸鱼夫郎 https://www.wenxue521.com/book/93oi8no/
 - 死遁的亡夫们都回来了 https://www.wenxue521.com/book/t5nj9p/
 - 沈助理又在隐藏他的超能力 https://www.wenxue521.com/book/t5nj0r/
 - 天幕今天也在直播我搞基建 https://www.wenxue521.com/book/t5ngeu/
@@ -158,6 +156,7 @@
 - 大瑛弟国 https://www.wenxue521.com/book/2tbn77/
 - 五十年代港城日常 https://www.wenxue521.com/book/2tbn0f/
 - 95美国贵族高中模拟 https://www.wenxue521.com/book/2tbmv1/
+- 月亮上的大筒木 https://www.wenxue521.com/book/2tbmpd/
 - 在魔法贵族学院当白月光 https://www.wenxue521.com/book/2tbmo3/
 - 我是唯一地上神国 https://www.wenxue521.com/book/9ap7r/
 - 苏娘子汴京摆摊日常（美食） https://www.wenxue521.com/book/9aop5/

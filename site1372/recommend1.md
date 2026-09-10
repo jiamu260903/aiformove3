@@ -1,11 +1,12 @@
 
 # 落秋文学网 - 免费全本小说阅读,最新章节更新,无弹窗广告
 
-更新时间：2026-09-08 03:44:12
+更新时间：2026-09-09 03:44:15
 
 落秋文学网提供最快最新的网络小说更新服务，推荐最好看的网络小说排行榜。全站支持无弹窗广告阅读体验，全本小说均可免费在线阅读。 https://www.wenxue868.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.wenxue868.com/book/rlcn87/
 - 魔改剧本后我爆火了[娱乐圈] https://www.wenxue868.com/book/rlcn81/
 - 人，今晚土拨鼠站岗 https://www.wenxue868.com/book/rlcn80/
 - 在中世纪做奴隶 https://www.wenxue868.com/book/rlcn7v/
@@ -80,9 +81,9 @@
 - 从维多利亚时代开始 https://www.wenxue868.com/book/rlbh90/
 - 昭暮 https://www.wenxue868.com/book/rlbf34/
 - 原配夫人 https://www.wenxue868.com/book/rlbbh7/
-- 星际团宠小人鱼 https://www.wenxue868.com/book/rlbbgl/
 - 十九世纪贵族厨房（美食） https://www.wenxue868.com/book/rlbbeh/
 - 始乱终弃清冷首辅后 https://www.wenxue868.com/book/rlbbc1/
+- 我只梦你一页 https://www.wenxue868.com/book/rlb4d4/
 - 完蛋！被恨孕男包围了！ https://www.wenxue868.com/book/rlb4cl/
 - 高调装神，猥琐发育 https://www.wenxue868.com/book/rlb4cb/
 - 食明 https://www.wenxue868.com/book/rlb2cn/
@@ -90,7 +91,6 @@
 - 老实人妻，但顶级魅魔 https://www.wenxue868.com/book/rlat3r/
 - 专业女配的自我修养（快穿） https://www.wenxue868.com/book/rlasic/
 - [足球]我的游戏存档成真了？！ https://www.wenxue868.com/book/rlao1o/
-- 摄政王家的咸鱼夫郎 https://www.wenxue868.com/book/rlalf9/
 - 让你们无剧本可走（快穿） https://www.wenxue868.com/book/rlak0j/
 - 我与龙傲天寿命共享 https://www.wenxue868.com/book/rlaip9/
 - 如何正确哄睡暴君 https://www.wenxue868.com/book/rlahgo/
@@ -107,6 +107,7 @@
 - 从童星开始杀穿港娱 https://www.wenxue868.com/book/rl9sn5/
 - 开局绑定郭奉孝，谋定三国风云 https://www.wenxue868.com/book/rl9ptc/
 - 路人攻了主角攻［快穿］ https://www.wenxue868.com/book/rl9oe4/
+- 月亮上的大筒木 https://www.wenxue868.com/book/rl9o9j/
 - 苏娘子汴京摆摊日常（美食） https://www.wenxue868.com/book/rl9nkk/
 - 我有一座地下城 https://www.wenxue868.com/book/rl9mr4/
 - 漂亮女配是万人迷［快穿］ https://www.wenxue868.com/book/rl9laa/
@@ -145,7 +146,6 @@
 - 大瑛弟国 https://www.wenxue868.com/book/rl7650/
 - 老公对不起 https://www.wenxue868.com/book/rl75ke/
 - 六零之成了卷王的妹妹 https://www.wenxue868.com/book/rl75g4/
-- 寡妇美人模拟器 https://www.wenxue868.com/book/rl755n/
 - 清澈女大的六零年代 https://www.wenxue868.com/book/rl74so/
 - 95美国贵族高中模拟 https://www.wenxue868.com/book/rl74kj/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.wenxue868.com/book/rl74il/
@@ -161,7 +161,6 @@
 - 天幕今天也在直播我搞基建 https://www.wenxue868.com/book/rl730n/
 - 巨物致富：回乡开钓场 https://www.wenxue868.com/book/rl730l/
 - [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.wenxue868.com/book/rl72uu/
-- 仙门透明人被迫万人迷 https://www.wenxue868.com/book/rl72sn/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1372/index.md)

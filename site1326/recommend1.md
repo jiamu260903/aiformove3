@@ -1,11 +1,12 @@
 
 # 欣怡书屋 - 免费最新章节小说阅读,全本无弹窗
 
-更新时间：2026-09-08 03:50:14
+更新时间：2026-09-09 03:50:34
 
 欣怡书屋是最值得收藏的小说阅读网之一，提供大量热门网络小说的免费阅读服务。所有小说均为高质量，并且支持最新章节即时更新与全本无弹窗浏览体验。 https://www.znenghs.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.znenghs.com/book/5n2k96m/
 - [全职高手]治疗什么的不干了！ https://www.znenghs.com/book/5n2k96i/
 - 魔法种田，从退队经营农场开始 https://www.znenghs.com/book/5n2k96h/
 - 魔尊闭关十年连生十一子？！ https://www.znenghs.com/book/5n2k96g/
@@ -80,9 +81,9 @@
 - 恶毒男配只想躺平 https://www.znenghs.com/book/5n2k949/
 - [封神]圣人生欲 https://www.znenghs.com/book/5n2k8uq/
 - 始乱终弃清冷首辅后 https://www.znenghs.com/book/5n2k8up/
-- 星际团宠小人鱼 https://www.znenghs.com/book/5n2k8ss/
 - 原配夫人 https://www.znenghs.com/book/5n2k8sp/
 - 十九世纪贵族厨房（美食） https://www.znenghs.com/book/5n2k8sj/
+- 我只梦你一页 https://www.znenghs.com/book/5n2k8sg/
 - 高调装神，猥琐发育 https://www.znenghs.com/book/5n2k8sf/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.znenghs.com/book/5n2k8qh/
 - 直男咒术师的限制级游戏 https://www.znenghs.com/book/5n2k8nt/
@@ -100,7 +101,6 @@
 - 如何嫁给当朝首辅 https://www.znenghs.com/book/5n2hecj/
 - 食明 https://www.znenghs.com/book/5n2hdl3/
 - 诡话第一boss https://www.znenghs.com/book/5n2ha9a/
-- 仙门透明人被迫万人迷 https://www.znenghs.com/book/5n2h8f7/
 - 日化人生[科研] https://www.znenghs.com/book/5n2h5tp/
 - 让暴君Alpha怀崽后 https://www.znenghs.com/book/5n2h44u/
 - 专业女配的自我修养（快穿） https://www.znenghs.com/book/5n2h426/
@@ -108,10 +108,8 @@
 - 老实人妻，但顶级魅魔 https://www.znenghs.com/book/5n2h3f0/
 - [足球]我的游戏存档成真了？！ https://www.znenghs.com/book/5n2gufv/
 - 让你们无剧本可走（快穿） https://www.znenghs.com/book/5n2gtup/
-- 寡妇美人模拟器 https://www.znenghs.com/book/5n2gseb/
 - 趁她之危 https://www.znenghs.com/book/5n2gs9s/
 - 起初，我只是想找个冤大头 https://www.znenghs.com/book/5n2gmpe/
-- 摄政王家的咸鱼夫郎 https://www.znenghs.com/book/5n2glmf/
 - 死遁的亡夫们都回来了 https://www.znenghs.com/book/i9ttde/
 - 沈助理又在隐藏他的超能力 https://www.znenghs.com/book/i9tpf4/
 - 天幕今天也在直播我搞基建 https://www.znenghs.com/book/i9tooc/
@@ -162,6 +160,7 @@
 - [娱乐圈]过分美丽的她 https://www.znenghs.com/book/5rfhr/
 - 苏娘子汴京摆摊日常（美食） https://www.znenghs.com/book/5rfh0/
 - 清澈女大的六零年代 https://www.znenghs.com/book/5rfcn/
+- 月亮上的大筒木 https://www.znenghs.com/book/5rf6m/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1326/index.md)

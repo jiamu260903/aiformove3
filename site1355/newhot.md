@@ -1,7 +1,7 @@
 
 # 梦翔橙子小说网-全本小说最值得收藏的在线阅读平台
 
-更新时间：2026-09-08 03:35:47
+更新时间：2026-09-09 03:35:49
 
 梦翔橙子小说网为您提供最新、最热门的小说资源，拥有全网最全面的小说库。无论是全本还是连载中，都能在这里找到。是解决书荒问题的理想选择，让您的阅读体验更加流畅愉快。 https://www.mengxiang668.com
 
@@ -164,8 +164,6 @@
 - 纨绔渣A拒绝入赘长公主府 https://www.mengxiang668.com/book/2nrnjos/
 - 沉烟 https://www.mengxiang668.com/book/2nrnjm8/
 - 忍界有文学 https://www.mengxiang668.com/book/2nrnjgk/
-- 沈助理又在隐藏他的超能力 https://www.mengxiang668.com/book/2nrnj3n/
-- 被鬼怪宠爱的漂亮书生 https://www.mengxiang668.com/book/2nrnido/
 - 老公是松散生命体 https://www.mengxiang668.com/book/2nrnicd/
 - 万人迷总被入侵角色觊觎[快穿] https://www.mengxiang668.com/book/2nrni2f/
 - 渣攻试图洗白[快穿] https://www.mengxiang668.com/book/2nrnhsc/
@@ -242,7 +240,6 @@
 - 父皇，我是gay https://www.mengxiang668.com/book/2nrn6ka/
 - 摆烂后我成了邪神学院大佬 https://www.mengxiang668.com/book/2nrn6d8/
 - 都说了我很娇纵了 https://www.mengxiang668.com/book/2nrn6ca/
-- 误入反派培养直播后 https://www.mengxiang668.com/book/2nrn63m/
 - 荒谬神父是个渣 https://www.mengxiang668.com/book/2nrn5kv/
 - 少女妄想症 https://www.mengxiang668.com/book/2nrn5hv/
 - 退圈后，我靠职场综艺火爆全网 https://www.mengxiang668.com/book/2nrn5av/
@@ -282,7 +279,6 @@
 - 侦探小说的大忌[福尔摩斯] https://www.mengxiang668.com/book/2nrn1o0/
 - 主角对你极度痴迷 https://www.mengxiang668.com/book/2nrn1nr/
 - [封神]圣人生欲 https://www.mengxiang668.com/book/2nrn1cc/
-- 炮灰的我该如何上位？ https://www.mengxiang668.com/book/2nrn19v/
 - 如何在玛丽苏包围圈中生存 https://www.mengxiang668.com/book/2nrn158/
 - 一觉醒来老公变男大了 https://www.mengxiang668.com/book/2nrn14m/
 - 佐久早才不是洁癖！ https://www.mengxiang668.com/book/2nrn11b/
@@ -436,7 +432,7 @@
 - 和室友他爸恋爱后 https://www.mengxiang668.com/book/2nrlrur/
 - 满级竹马从异世穿回来了 https://www.mengxiang668.com/book/2nrlmbd/
 - 京秋婚约 https://www.mengxiang668.com/book/2nrkm92/
-- 阴郁路人不想被喜欢 https://www.mengxiang668.com/book/2nrkkbs/
+- 魔物堆里的人类幼崽 https://www.mengxiang668.com/book/2nrkk1c/
 - 直男咒术师的限制级游戏 https://www.mengxiang668.com/book/2nrkjf6/
 ## 相关内容
 - [README](/README.md)

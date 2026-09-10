@@ -1,7 +1,7 @@
 
 # 曹操SPA小说 - 小说的海洋，文学的殿堂 | 在线阅读与下载原创小说
 
-更新时间：2026-09-08 03:26:26
+更新时间：2026-09-09 03:26:36
 
 曹操SPA小说是一个专注于优质小说和文学创作的网站，这里是书迷们的天堂，提供丰富的原创网络小说、经典文学作品在线阅读与下载，致力于打造一个充满灵感与创意的文学世界。 https://www.caocaospa.com
 
@@ -144,7 +144,6 @@
 - 老公对不起 https://www.caocaospa.com/book/8q1p7h7/
 - 我是唯一地上神国 https://www.caocaospa.com/book/8q1p7ab/
 - 成为养成系练习生后 https://www.caocaospa.com/book/8q1p7a7/
-- 寡妇美人模拟器 https://www.caocaospa.com/book/8q1p70p/
 - [娱乐圈]过分美丽的她 https://www.caocaospa.com/book/8q1p6ls/
 - 五十年代港城日常 https://www.caocaospa.com/book/8q1p6lc/
 - 95美国贵族高中模拟 https://www.caocaospa.com/book/8q1p6b5/

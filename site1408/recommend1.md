@@ -1,11 +1,12 @@
 
 # 顶点小说 - 无广告无弹窗在线小说阅读网站
 
-更新时间：2026-09-08 03:42:52
+更新时间：2026-09-09 03:42:51
 
 顶点小说致力于提供一个无广告、无弹窗干扰的高质量在线小说阅读体验。支持多种类型的小说在线阅读与TXT格式下载，界面设计简洁友好。 https://www.wangrn.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.wangrn.com/book/4bboeb0/
 - 星露谷，但日本战国 https://www.wangrn.com/book/4bbo2nl/
 - 强取师尊后 https://www.wangrn.com/book/4bbo2ni/
 - 我只想上京赶考啊[聊斋] https://www.wangrn.com/book/4bbo2nh/
@@ -67,7 +68,6 @@
 - 好心的俄罗斯人 https://www.wangrn.com/book/4bbo2im/
 - 天幕今天也在直播我搞基建 https://www.wangrn.com/book/4bbo2e2/
 - 起初，我只是想找个冤大头 https://www.wangrn.com/book/4bbo2cp/
-- 仙门透明人被迫万人迷 https://www.wangrn.com/book/4bbnu12/
 - 上个鬼班[无限] https://www.wangrn.com/book/4bbnr47/
 - [足球]足坛人生模拟器 https://www.wangrn.com/book/4bbnqff/
 - 让暴君Alpha怀崽后 https://www.wangrn.com/book/4bbnlb8/
@@ -84,7 +84,6 @@
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.wangrn.com/book/4bbmk0n/
 - 如何正确哄睡暴君 https://www.wangrn.com/book/4bbmjig/
 - [足球]我的游戏存档成真了？！ https://www.wangrn.com/book/4bbmji2/
-- 摄政王家的咸鱼夫郎 https://www.wangrn.com/book/4bbmj9f/
 - 死遁的亡夫们都回来了 https://www.wangrn.com/book/4bbmg6v/
 - 让你们无剧本可走（快穿） https://www.wangrn.com/book/4bbmg4c/
 - 韩团绿卡不想忍了 https://www.wangrn.com/book/4bbm8vn/
@@ -94,6 +93,7 @@
 - 同时扮演贵族学院F4和平民校花 https://www.wangrn.com/book/4bbm1ki/
 - 沈助理又在隐藏他的超能力 https://www.wangrn.com/book/4bbm0ao/
 - 路人攻了主角攻［快穿］ https://www.wangrn.com/book/4bbm070/
+- 月亮上的大筒木 https://www.wangrn.com/book/4bbm01f/
 - 从童星开始杀穿港娱 https://www.wangrn.com/book/4bblv99/
 - 开局绑定郭奉孝，谋定三国风云 https://www.wangrn.com/book/4bbluop/
 - 死对头又在挑衅我 https://www.wangrn.com/book/4bblulo/
@@ -112,6 +112,7 @@
 - 在魔法贵族学院当白月光 https://www.wangrn.com/book/4bblcbn/
 - 我187了，你敢见我吗？ https://www.wangrn.com/book/4bbl9hh/
 - 和姐姐的前女友欢愉后 https://www.wangrn.com/book/4bbl6l8/
+- 我只梦你一页 https://www.wangrn.com/book/4bbl5se/
 - 心动嫌疑人 https://www.wangrn.com/book/4bbkv90/
 - 等我吃腻了再倒闭可以吗 https://www.wangrn.com/book/4bbkv7u/
 - 朕也要被强制吗？ https://www.wangrn.com/book/4bbkv16/
@@ -158,10 +159,8 @@
 - 我有一座安全城 https://www.wangrn.com/book/4bbivvc/
 - 高调装神，猥琐发育 https://www.wangrn.com/book/4bbivq7/
 - 完蛋！被恨孕男包围了！ https://www.wangrn.com/book/4bbivl8/
-- 寡妇美人模拟器 https://www.wangrn.com/book/4bbivkp/
 - 巨物致富：回乡开钓场 https://www.wangrn.com/book/4bbivj3/
 - 在民俗惊悚片被诸神庇护 https://www.wangrn.com/book/4bbivgg/
-- 星际团宠小人鱼 https://www.wangrn.com/book/4bbivbk/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1408/index.md)
