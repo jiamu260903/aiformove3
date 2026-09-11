@@ -1,7 +1,7 @@
 
 # 牛魔王JJ电子书 - 小说阅读网, 全本免费完结小说在线阅读及下载
 
-更新时间：2026-09-09 03:36:19
+更新时间：2026-09-10 03:36:30
 
 牛魔王JJ电子书提供精彩小说阅读服务，包括各种类型的小说排行榜、免费好看的小说等。涵盖穿越小说、都市小说、言情小说、玄幻小说等多种类别，支持全本全集完结小说在线阅读以及TXT下载。 https://www.nmwjj.com
 
@@ -41,6 +41,7 @@
 - 开局给李世民盘点安史之乱 https://www.nmwjj.com/book/18cj1g6/
 - 怪谈小镇游玩指南[无限] https://www.nmwjj.com/book/18cj0fd/
 - 离开那个混蛋后 https://www.nmwjj.com/book/18civmg/
+- 痴情女配开始放手了（快穿） https://www.nmwjj.com/book/18citpj/
 - 渡鬼 https://www.nmwjj.com/book/18citmt/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.nmwjj.com/book/18citjm/
 - 穿成反派的亡夫后[虫族] https://www.nmwjj.com/book/18cise1/
@@ -337,7 +338,6 @@
 - 豪门狗血文里的天才后妈 https://www.nmwjj.com/book/18cgdec/
 - 我让人生赢家俯首称臣的那些年 https://www.nmwjj.com/book/18cgdeb/
 - 娇婚惯养 https://www.nmwjj.com/book/18cgde1/
-- 冷傲上司绑定娇妻系统后 https://www.nmwjj.com/book/18cgdcr/
 - 太子妃她不干了 https://www.nmwjj.com/book/18cgdcn/
 - 下堂驸马追妻实录 https://www.nmwjj.com/book/18cgd3c/
 - 摄政长公主穿成炮灰女配[七零] https://www.nmwjj.com/book/18cgd1f/
@@ -412,7 +412,6 @@
 - 每天都在和太宰互换身体 https://www.nmwjj.com/book/18cg76m/
 - 某柯学的正义伙伴 https://www.nmwjj.com/book/18cg6u5/
 - 幼崽假少爷选择回归寒门 https://www.nmwjj.com/book/18cg6mf/
-- 刀子精手心的人偶崽崽 https://www.nmwjj.com/book/18cg5cm/
 - 求生游戏：当邪神成为生活玩家后 https://www.nmwjj.com/book/18cg4bi/
 - 吐槽役审神者会爆改幕后大boss吗 https://www.nmwjj.com/book/18cg49u/
 - 魔物堆里的人类幼崽 https://www.nmwjj.com/book/18cg377/
@@ -437,6 +436,7 @@
 - 满级竹马从异世穿回来了 https://www.nmwjj.com/book/18cf7hj/
 - 你，后室管理员 https://www.nmwjj.com/book/18ce6ep/
 - [封神]圣人生欲 https://www.nmwjj.com/book/18ce5p4/
+- 我不是正夫吗？ https://www.nmwjj.com/book/18ce56a/
 - 朕看上的少年是侠女 https://www.nmwjj.com/book/18ce51i/
 - 高调装神，猥琐发育 https://www.nmwjj.com/book/18ce4lp/
 - 被四皇错看成小动物后 https://www.nmwjj.com/book/18ce4g3/

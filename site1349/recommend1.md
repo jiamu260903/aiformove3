@@ -1,12 +1,11 @@
 
 # 文学小说668 - 全球最新最热的小说阅读平台
 
-更新时间：2026-09-09 03:44:00
+更新时间：2026-09-10 03:44:14
 
 文学小说668是全球最新、最热的小说阅读网站之一，汇集了包括言情小说、玄幻小说、穿越小说在内的各类优质小说资源，让读者能够尽情享受阅读的乐趣。 https://www.wenxue668.com
 
 ## 最新小说
-- 入梦修罗场，但我脸盲 https://www.wenxue668.com/book/44ff1ho/
 - 我们小区穿末世 https://www.wenxue668.com/book/44ff1hl/
 - 乖乖女的杂货铺[八零] https://www.wenxue668.com/book/44ff1hj/
 - 欲加之罪 https://www.wenxue668.com/book/44ff1hg/
@@ -35,7 +34,6 @@
 - 夫人每天都在伪装 https://www.wenxue668.com/book/44ff1fs/
 - 从1951开始 https://www.wenxue668.com/book/44ff1fr/
 - 娘娘扶摇直上 https://www.wenxue668.com/book/44ff1fq/
-- 欲和离？夫君他目不识丁 https://www.wenxue668.com/book/44ff1fn/
 - [洪荒]成为太清妹妹后 https://www.wenxue668.com/book/44ff1fk/
 - 暗恋的价格是三万块 https://www.wenxue668.com/book/44ff1fi/
 - 爱情的肯定句 https://www.wenxue668.com/book/44ff1fh/
@@ -66,7 +64,7 @@
 - 恐游里的邻居们[万人迷] https://www.wenxue668.com/book/44ff1d9/
 - 恐游作精女配求生指南 https://www.wenxue668.com/book/44ff1d8/
 - 二次分化后他怀了死对头的崽 https://www.wenxue668.com/book/44ff1d7/
-- 人，今晚土拨鼠站岗 https://www.wenxue668.com/book/44ff1ct/
+- 笨蛋土拨鼠站岗日志 https://www.wenxue668.com/book/44ff1ct/
 - [综英美]哥谭市民，在线抽卡 https://www.wenxue668.com/book/44ff1cm/
 - 康熙宠妃日常 https://www.wenxue668.com/book/44ff1cl/
 - 世界伏于她刀下[无限] https://www.wenxue668.com/book/44ff1cj/
@@ -74,17 +72,19 @@
 - 起初，我只是想找个冤大头 https://www.wenxue668.com/book/44fenc8/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.wenxue668.com/book/44fel9v/
 - 上个鬼班[无限] https://www.wenxue668.com/book/44feglq/
+- 限制文女王[快穿] https://www.wenxue668.com/book/44feb52/
 - 九零重组小家庭 https://www.wenxue668.com/book/44fe9tb/
 - 让暴君Alpha怀崽后 https://www.wenxue668.com/book/44fe9id/
 - [足球]足坛人生模拟器 https://www.wenxue668.com/book/44fe8tn/
+- 直播忏悔室，吃瓜养宠圈 https://www.wenxue668.com/book/44fe2sk/
 - 在卷王和废物之间选择做吉祥物 https://www.wenxue668.com/book/44fduql/
 - 从维多利亚时代开始 https://www.wenxue668.com/book/44fdrid/
 - 昭暮 https://www.wenxue668.com/book/44fdpo2/
 - 原配夫人 https://www.wenxue668.com/book/44fdmi7/
 - 十九世纪贵族厨房（美食） https://www.wenxue668.com/book/44fdmfg/
+- 恶犬品德 https://www.wenxue668.com/book/44fdmdt/
 - 始乱终弃清冷首辅后 https://www.wenxue668.com/book/44fdmca/
 - 高调装神，猥琐发育 https://www.wenxue668.com/book/44fdfj3/
-- 我只梦你一页 https://www.wenxue668.com/book/44fdff0/
 - 完蛋！被恨孕男包围了！ https://www.wenxue668.com/book/44fdfem/
 - 食明 https://www.wenxue668.com/book/44fdcde/
 - 诡话第一boss https://www.wenxue668.com/book/44fd9ab/
@@ -98,7 +98,6 @@
 - 我骗家里的钱养你啊 https://www.wenxue668.com/book/44fcl1f/
 - 死遁的亡夫们都回来了 https://www.wenxue668.com/book/44fckoh/
 - 死对头又在挑衅我 https://www.wenxue668.com/book/44fcdrm/
-- 在民俗惊悚片被诸神庇护 https://www.wenxue668.com/book/44fccqp/
 - 沈助理又在隐藏他的超能力 https://www.wenxue668.com/book/44fcbnr/
 - 被天使之王骗婚后[诡秘之主] https://www.wenxue668.com/book/44fc9de/
 - 从童星开始杀穿港娱 https://www.wenxue668.com/book/44fc7p2/
@@ -125,13 +124,13 @@
 - 朕也要被强制吗？ https://www.wenxue668.com/book/44fbalg/
 - 在重生文里考科举 https://www.wenxue668.com/book/44fb94q/
 - 大唐守军家属 https://www.wenxue668.com/book/44fb87o/
+- 和小肥啾的海岛经营游戏 https://www.wenxue668.com/book/44fb85a/
 - [足球]小小鸟堂堂来袭 https://www.wenxue668.com/book/44fb7i3/
 - 妻主风流（女尊） https://www.wenxue668.com/book/44fb53c/
 - 心动嫌疑人 https://www.wenxue668.com/book/44fb4vj/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.wenxue668.com/book/44fb2ms/
 - 死亡悖论[无限流] https://www.wenxue668.com/book/44fb2gi/
 - 趁她之危 https://www.wenxue668.com/book/44fb1of/
-- 这个位面归我了！[经营] https://www.wenxue668.com/book/44fb127/
 - 带清冷女主回乡养螃蟹[种田] https://www.wenxue668.com/book/44favog/
 - 清冷丞相怀了死对头的崽 https://www.wenxue668.com/book/44fav5o/
 - [崩铁]请给玩家一个准确的血条！ https://www.wenxue668.com/book/44faui4/
@@ -140,7 +139,6 @@
 - 被糟蹋的老实人决定反击 https://www.wenxue668.com/book/44fasau/
 - 和山神搭伙开农场的日子 https://www.wenxue668.com/book/44faps5/
 - 假意逢承 https://www.wenxue668.com/book/44fapea/
-- 恶犬攻绑定上司的乖狗系统 https://www.wenxue668.com/book/44fame8/
 - 权宋一只统 https://www.wenxue668.com/book/44fah45/
 - 爱好和平但狂拆机甲 https://www.wenxue668.com/book/44fad2g/
 - 95美国贵族高中模拟 https://www.wenxue668.com/book/44f9gdd/
@@ -157,6 +155,7 @@
 - [娱乐圈]过分美丽的她 https://www.wenxue668.com/book/44f9ef1/
 - 全民求生:从小木屋到魔法农场 https://www.wenxue668.com/book/44f9ee3/
 - 成为养成系练习生后 https://www.wenxue668.com/book/44f9eb0/
+- 千禧年，拆迁分了十栋楼！ https://www.wenxue668.com/book/44f9e92/
 - 日化人生[科研] https://www.wenxue668.com/book/44f9dtc/
 - 天幕今天也在直播我搞基建 https://www.wenxue668.com/book/44f9dgh/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.wenxue668.com/book/44f9dcn/

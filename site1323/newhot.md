@@ -1,7 +1,7 @@
 
 # 阅读小说网-免费分享优质完结小说下载阅读平台
 
-更新时间：2026-09-09 03:48:46
+更新时间：2026-09-10 03:49:14
 
 阅读小说网为广大读者提供丰富多样的网络免费小说资源，包括但不限于完本小说、玄幻小说、言情小说、耽美小说以及各种经典名著。支持小说上传、下载和在线免费阅读服务。 https://www.yuedu687.com
 
@@ -21,6 +21,7 @@
 - 清穿女回来后[天幕] https://www.yuedu687.com/book/2bu5iuj/
 - [足球]小小鸟堂堂来袭 https://www.yuedu687.com/book/2bu5iug/
 - 大佬的漂亮老婆回来带崽了[八零] https://www.yuedu687.com/book/2bu5iuf/
+- 痴情女配开始放手了（快穿） https://www.yuedu687.com/book/2bu5itc/
 - [综英美]让我统治哥谭！！！ https://www.yuedu687.com/book/2bu5it6/
 - 渡鬼 https://www.yuedu687.com/book/2bu5ist/
 - 青城玩家明明超强却过分谨慎 https://www.yuedu687.com/book/2bu5is8/
@@ -30,6 +31,7 @@
 - 被四皇错看成小动物后 https://www.yuedu687.com/book/2bu5ip0/
 - 你，后室管理员 https://www.yuedu687.com/book/2bu5ioo/
 - [封神]圣人生欲 https://www.yuedu687.com/book/2bu5ine/
+- 我不是正夫吗？ https://www.yuedu687.com/book/2bu5in6/
 - 朕看上的少年是侠女 https://www.yuedu687.com/book/2bu5in3/
 - 高调装神，猥琐发育 https://www.yuedu687.com/book/2bu5imi/
 - 京秋婚约 https://www.yuedu687.com/book/2bu5img/
@@ -337,7 +339,6 @@
 - 这死beta老说我们不可能 https://www.yuedu687.com/book/7j25cp/
 - [足球]德意志小比也能拿冠军吗 https://www.yuedu687.com/book/7j259l/
 - 逆序布鲁斯的好大儿 https://www.yuedu687.com/book/7j258i/
-- 冷傲上司绑定娇妻系统后 https://www.yuedu687.com/book/7j254a/
 - 从伟大航道到黑暗大陆 https://www.yuedu687.com/book/7j253o/
 - 银发死鱼眼也要打排球 https://www.yuedu687.com/book/7j253n/
 - 太子妃她不干了 https://www.yuedu687.com/book/7j250q/

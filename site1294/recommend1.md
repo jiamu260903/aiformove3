@@ -1,12 +1,13 @@
 
 # 思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-09-09 03:25:18
+更新时间：2026-09-10 03:25:30
 
 思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,包括但不限于全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等类型的小说供用户免费阅读。 https://www.968577.com
 
 ## 最新小说
-- 人，今晚土拨鼠站岗 https://www.968577.com/book/1b28mih/
+- 入梦修罗场，但我脸盲 https://www.968577.com/book/1b28mil/
+- 笨蛋土拨鼠站岗日志 https://www.968577.com/book/1b28mih/
 - 恐游作精女配求生指南 https://www.968577.com/book/1b28mig/
 - 大佬的漂亮老婆回来带崽了[八零] https://www.968577.com/book/1b28mif/
 - 仙尊心尖宠，但被魔尊抢了 https://www.968577.com/book/1b28mie/
@@ -64,7 +65,6 @@
 - 夫人每天都在伪装 https://www.968577.com/book/1b28mgp/
 - [综英美]和亲友群穿哥谭以后 https://www.968577.com/book/1b28mgo/
 - ［综英美］蝙蝠崽？我不是啊！ https://www.968577.com/book/1b28mgn/
-- 欲和离？夫君他目不识丁 https://www.968577.com/book/1b28mgm/
 - 双生子反派的端水抑郁妈[九零] https://www.968577.com/book/1b28mgl/
 - 爱情的肯定句 https://www.968577.com/book/1b28mgk/
 - [原神]魔法使恋爱指南 https://www.968577.com/book/1b28mgj/
@@ -79,11 +79,11 @@
 - 我们小区穿末世 https://www.968577.com/book/1b28mg9/
 - 娘娘扶摇直上 https://www.968577.com/book/1b28mg8/
 - 始乱终弃清冷首辅后 https://www.968577.com/book/1b28ma0/
-- 星际团宠小人鱼 https://www.968577.com/book/1b28m9j/
 - [封神]圣人生欲 https://www.968577.com/book/1b28m9c/
 - 原配夫人 https://www.968577.com/book/1b28m90/
 - 十九世纪贵族厨房（美食） https://www.968577.com/book/1b28m8h/
 - 高调装神，猥琐发育 https://www.968577.com/book/1b28m8g/
+- 我只梦你一页 https://www.968577.com/book/1b28m8d/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.968577.com/book/1b28m62/
 - 直男咒术师的限制级游戏 https://www.968577.com/book/1b28m3a/
 - 六零之成了卷王的妹妹 https://www.968577.com/book/1b28krb/
@@ -100,7 +100,6 @@
 - 如何嫁给当朝首辅 https://www.968577.com/book/1b25tj9/
 - 食明 https://www.968577.com/book/1b25sh5/
 - 诡话第一boss https://www.968577.com/book/1b25p60/
-- 仙门透明人被迫万人迷 https://www.968577.com/book/1b25n6t/
 - 让暴君Alpha怀崽后 https://www.968577.com/book/1b25jhu/
 - 专业女配的自我修养（快穿） https://www.968577.com/book/1b25ia6/
 - 老实人妻，但顶级魅魔 https://www.968577.com/book/1b25hul/
@@ -110,7 +109,6 @@
 - 趁她之危 https://www.968577.com/book/1b25bv4/
 - 让你们无剧本可走（快穿） https://www.968577.com/book/1b25ado/
 - 起初，我只是想找个冤大头 https://www.968577.com/book/1b256hp/
-- 摄政王家的咸鱼夫郎 https://www.968577.com/book/1b252bh/
 - 天幕今天也在直播我搞基建 https://www.968577.com/book/49sn8e/
 - 死遁的亡夫们都回来了 https://www.968577.com/book/49skq2/
 - 沈助理又在隐藏他的超能力 https://www.968577.com/book/49sk3i/
@@ -134,7 +132,6 @@
 - 逃出金丝笼，我力挽山河开国称帝 https://www.968577.com/book/49r8oe/
 - 被糟蹋的老实人决定反击 https://www.968577.com/book/49r7qg/
 - 韩团绿卡不想忍了 https://www.968577.com/book/49r7a9/
-- 这个位面归我了！[经营] https://www.968577.com/book/49r5f2/
 - 清冷丞相怀了死对头的崽 https://www.968577.com/book/49r4pc/
 - 村霸非要入赘受气包 https://www.968577.com/book/49r464/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.968577.com/book/49r3nr/
@@ -156,6 +153,7 @@
 - 95美国贵族高中模拟 https://www.968577.com/book/dp0du/
 - 我是唯一地上神国 https://www.968577.com/book/dp0a8/
 - 开局绑定郭奉孝，谋定三国风云 https://www.968577.com/book/1c435/
+- 月亮上的大筒木 https://www.968577.com/book/1c3sp/
 - [娱乐圈]过分美丽的她 https://www.968577.com/book/1c3oi/
 - 苏娘子汴京摆摊日常（美食） https://www.968577.com/book/1c3l6/
 - 在魔法贵族学院当白月光 https://www.968577.com/book/1c3in/

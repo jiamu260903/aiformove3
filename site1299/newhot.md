@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-09 03:45:07
+更新时间：2026-09-10 03:45:25
 
 速阅阁小说网是专为书友们打造的最佳网络小说阅读与收藏平台，提供海量优质小说资源，满足您的各种阅读需求。 https://www.wsfsx.com
 
@@ -26,8 +26,10 @@
 - [综英美]让我统治哥谭！！！ https://www.wsfsx.com/book/5ts2999/
 - 青城玩家明明超强却过分谨慎 https://www.wsfsx.com/book/5ts2996/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.wsfsx.com/book/5ts2992/
+- 痴情女配开始放手了（快穿） https://www.wsfsx.com/book/5ts297d/
 - 暴君偏头痛 https://www.wsfsx.com/book/5ts2975/
 - 朕看上的少年是侠女 https://www.wsfsx.com/book/5ts2959/
+- 我不是正夫吗？ https://www.wsfsx.com/book/5ts2953/
 - 你，后室管理员 https://www.wsfsx.com/book/5ts2951/
 - 被四皇错看成小动物后 https://www.wsfsx.com/book/5ts294t/
 - [封神]圣人生欲 https://www.wsfsx.com/book/5ts294m/
@@ -332,7 +334,6 @@
 - 樋口干部不干了 https://www.wsfsx.com/book/ivl1ck/
 - [崩铁]自恋值拉满穿越被水仙了 https://www.wsfsx.com/book/ivl19b/
 - 汉武帝戾太子什么含金量 https://www.wsfsx.com/book/ivl15m/
-- 冷傲上司绑定娇妻系统后 https://www.wsfsx.com/book/ivl139/
 - 师妹为何要如此 https://www.wsfsx.com/book/ivl100/
 - 破戒[娱乐圈] https://www.wsfsx.com/book/ivl0v0/
 - 逆序布鲁斯的好大儿 https://www.wsfsx.com/book/ivl0uc/

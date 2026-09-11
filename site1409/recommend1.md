@@ -1,11 +1,12 @@
 
 # 瑞文文学网 - 最新穿越小说大全及热门小说排行榜
 
-更新时间：2026-09-09 03:24:57
+更新时间：2026-09-10 03:25:04
 
 瑞文文学网提供多种类型的小说推荐，包括最新的都市、玄幻、武侠等多种类别。无论您是喜欢穿越还是重生故事，或是对其他风格如历史、科幻感兴趣，在这里都能找到心仪的作品！ https://www.49ig.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.49ig.com/book/436ek4j/
 - 魔改剧本后我爆火了[娱乐圈] https://www.49ig.com/book/436e8jg/
 - 恐游里的邻居们[万人迷] https://www.49ig.com/book/436e8je/
 - 魔咒请说普通话[西幻] https://www.49ig.com/book/436e8j8/
@@ -22,7 +23,6 @@
 - 死遁APP https://www.49ig.com/book/436e8i5/
 - 双生子反派的端水抑郁妈[九零] https://www.49ig.com/book/436e8i2/
 - 世界伏于她刀下[无限] https://www.49ig.com/book/436e8i0/
-- 欲和离？夫君他目不识丁 https://www.49ig.com/book/436e8hv/
 - [全职高手]治疗什么的不干了！ https://www.49ig.com/book/436e8ht/
 - [原神]魔法使恋爱指南 https://www.49ig.com/book/436e8hs/
 - 强取师尊后 https://www.49ig.com/book/436e8hr/
@@ -63,11 +63,10 @@
 - 大佬的漂亮老婆回来带崽了[八零] https://www.49ig.com/book/436e8f4/
 - 从1951开始 https://www.49ig.com/book/436e8f3/
 - ［综英美］蝙蝠崽？我不是啊！ https://www.49ig.com/book/436e8eu/
-- 人，今晚土拨鼠站岗 https://www.49ig.com/book/436e8eq/
+- 笨蛋土拨鼠站岗日志 https://www.49ig.com/book/436e8eq/
 - 好心的俄罗斯人 https://www.49ig.com/book/436e8en/
 - 起初，我只是想找个冤大头 https://www.49ig.com/book/436e8b0/
 - 天幕今天也在直播我搞基建 https://www.49ig.com/book/436e8ac/
-- 仙门透明人被迫万人迷 https://www.49ig.com/book/436e3su/
 - 上个鬼班[无限] https://www.49ig.com/book/436e11a/
 - [足球]足坛人生模拟器 https://www.49ig.com/book/436e0c2/
 - 让暴君Alpha怀崽后 https://www.49ig.com/book/436dr4g/
@@ -82,7 +81,6 @@
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.49ig.com/book/436ct4h/
 - 我与龙傲天寿命共享 https://www.49ig.com/book/436csuq/
 - [足球]我的游戏存档成真了？！ https://www.49ig.com/book/436cqb4/
-- 摄政王家的咸鱼夫郎 https://www.49ig.com/book/436cq59/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.49ig.com/book/436cpin/
 - 如何正确哄睡暴君 https://www.49ig.com/book/436cntc/
 - 死遁的亡夫们都回来了 https://www.49ig.com/book/436cnic/
@@ -95,6 +93,7 @@
 - 死对头又在挑衅我 https://www.49ig.com/book/436c64t/
 - 开局绑定郭奉孝，谋定三国风云 https://www.49ig.com/book/436c61a/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.49ig.com/book/436c5ug/
+- 月亮上的大筒木 https://www.49ig.com/book/436c5pb/
 - 沈助理又在隐藏他的超能力 https://www.49ig.com/book/436c5k5/
 - 从童星开始杀穿港娱 https://www.49ig.com/book/436c4af/
 - 路人攻了主角攻［快穿］ https://www.49ig.com/book/436c3m5/
@@ -112,6 +111,7 @@
 - [足球]小小鸟堂堂来袭 https://www.49ig.com/book/436bi2v/
 - 我187了，你敢见我吗？ https://www.49ig.com/book/436bgbd/
 - 和姐姐的前女友欢愉后 https://www.49ig.com/book/436belc/
+- 我只梦你一页 https://www.49ig.com/book/436baaq/
 - 大唐守军家属 https://www.49ig.com/book/436b54m/
 - 等我吃腻了再倒闭可以吗 https://www.49ig.com/book/436b4t6/
 - 心动嫌疑人 https://www.49ig.com/book/436b4ad/
@@ -122,7 +122,6 @@
 - 死亡悖论[无限流] https://www.49ig.com/book/436b0cs/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.49ig.com/book/436atsj/
 - 带清冷女主回乡养螃蟹[种田] https://www.49ig.com/book/436asf1/
-- 这个位面归我了！[经营] https://www.49ig.com/book/436as5l/
 - 穿咒术，但杀猴现场 https://www.49ig.com/book/436arq5/
 - 妻主风流（女尊） https://www.49ig.com/book/436ar1n/
 - 清冷丞相怀了死对头的崽 https://www.49ig.com/book/436apl6/
@@ -147,7 +146,6 @@
 - 在民俗惊悚片被诸神庇护 https://www.49ig.com/book/43696ve/
 - 六零之成了卷王的妹妹 https://www.49ig.com/book/43696pr/
 - 95美国贵族高中模拟 https://www.49ig.com/book/43696pa/
-- 星际团宠小人鱼 https://www.49ig.com/book/43696p6/
 - 老公对不起 https://www.49ig.com/book/43696lq/
 - 巨物致富：回乡开钓场 https://www.49ig.com/book/43696jh/
 - [封神]圣人生欲 https://www.49ig.com/book/43696e5/

@@ -1,23 +1,109 @@
 
 # 威勇士开心读书网-最值得书友收藏的网络小说阅读平台
 
-更新时间：2026-09-09 03:43:05
+更新时间：2026-09-10 03:43:15
 
 威勇士开心读书网是广大书友最值得收藏的网络小说阅读网。网站收录了当前最火热的网络小说，平台上的所有文学作品均来源于热心用户的积极上传。分享小说，享受阅读乐趣！ https://www.weiyongshi.com
 
 ## 最新小说
+- 穿成猫的咒术高专生活 https://www.weiyongshi.com/book/4e1hdhl/
+- 暗堕本丸，在线直播 https://www.weiyongshi.com/book/4e1hdbo/
+- 渣过我的主角全都重生了[快穿] https://www.weiyongshi.com/book/4e1hcrk/
+- [足球]葡萄牙世界杯if线 https://www.weiyongshi.com/book/4e1hckq/
+- 每天回到家都看到雄虫在装死 https://www.weiyongshi.com/book/4e1hcjo/
+- 我在无限游戏里假扮NPC[无限流] https://www.weiyongshi.com/book/4e1hc8v/
+- 被欺负的老实人[快穿] https://www.weiyongshi.com/book/4e1hc4n/
+- 我于江湖已无敌 https://www.weiyongshi.com/book/4e1hbl0/
+- 和室友他爸恋爱后 https://www.weiyongshi.com/book/4e1hbfm/
+- 某横滨的时间操纵 https://www.weiyongshi.com/book/4e1hapv/
+- 伪装路人后成了反派首领 https://www.weiyongshi.com/book/4e1hamn/
+- 重组家庭，但美校搞基！ https://www.weiyongshi.com/book/4e1hagf/
+- 我当县令那些年 https://www.weiyongshi.com/book/4e1hac9/
+- 老公是松散生命体 https://www.weiyongshi.com/book/4e1h9p1/
+- 逝水 https://www.weiyongshi.com/book/4e1h9c7/
+- 我有一座城 https://www.weiyongshi.com/book/4e1h953/
+- 优质攻不做恋爱脑[快穿] https://www.weiyongshi.com/book/4e1h8p3/
+- 女装生崽，娃爹宇智波 https://www.weiyongshi.com/book/4e1h869/
+- 五美元在哥谭活一月 https://www.weiyongshi.com/book/4e1h838/
+- 我不可能舔一个漂亮捞子 https://www.weiyongshi.com/book/4e1h7s6/
+- [综英美]是谁家的小鹿 https://www.weiyongshi.com/book/4e1h772/
+- 被马甲团宠的我开启地狱模式 https://www.weiyongshi.com/book/4e1h6rt/
+- 我在虫族扮绿茶吃老虎 https://www.weiyongshi.com/book/4e1h6nb/
+- bl世界的路人不想被掰弯 https://www.weiyongshi.com/book/4e1h6bu/
+- 微臣怜惜公主 https://www.weiyongshi.com/book/4e1h6b3/
+- 作为甚尔亡妻的我变成触手了！ https://www.weiyongshi.com/book/4e1h655/
+- [综英美]flash小游戏，哥谭出品 https://www.weiyongshi.com/book/4e1h5s9/
+- [足球]听克圣的话，成了米兰金童 https://www.weiyongshi.com/book/4e1h5h7/
+- 超A奶龙饲养指南 https://www.weiyongshi.com/book/4e1h4u8/
+- 逃生游戏[无限] https://www.weiyongshi.com/book/4e1h4fg/
+- 满级后我的外挂到账了[全息] https://www.weiyongshi.com/book/4e1h3uk/
+- 七零年代闺蜜团的奋斗 https://www.weiyongshi.com/book/4e1h3rb/
+- 若清晨所见之蓝 https://www.weiyongshi.com/book/4e1h3po/
+- 被豪门封建长兄娇养了 https://www.weiyongshi.com/book/4e1h3nq/
+- 这个迫嫁我愿意的 https://www.weiyongshi.com/book/4e1h3n5/
+- 恐惧玫瑰 https://www.weiyongshi.com/book/4e1h3kr/
+- 我被一个古人教会了爱情 https://www.weiyongshi.com/book/4e1h3h7/
+- 期春思 https://www.weiyongshi.com/book/4e1h3bg/
+- 逃荒[快穿] https://www.weiyongshi.com/book/4e1h38d/
+- 反派真少爷搞了个抱错综艺后[穿书] https://www.weiyongshi.com/book/4e1h2m9/
+- 修罗场里的无能丈夫 https://www.weiyongshi.com/book/4e1h1bp/
+- 全世界都靠我吃瓜 https://www.weiyongshi.com/book/4e1h180/
+- [综英美]怎么就蝙蝠崽文学了 https://www.weiyongshi.com/book/4e1h0kh/
+- 五零之我在香江富甲一方 https://www.weiyongshi.com/book/4e1h0es/
+- 每晚在梦里当暴君 https://www.weiyongshi.com/book/4e1h030/
+- 被剧透后，五条猫猫当然要提前享受青春呀！ https://www.weiyongshi.com/book/4e1h00v/
+- 我在异世当妖精 https://www.weiyongshi.com/book/4e1gvnr/
+- 嗲精人设走偏啦［穿书］ https://www.weiyongshi.com/book/4e1gvnn/
+- 金手指随机抽取中（快穿） https://www.weiyongshi.com/book/4e1gvks/
+- 好巧，我爸也是狗血文男主 https://www.weiyongshi.com/book/4e1gvj9/
+- 疯子装什么乖 https://www.weiyongshi.com/book/4e1gvbf/
+- 当抠搜总裁被人读心[穿书] https://www.weiyongshi.com/book/4e1gv5u/
+- 万人迷绑定美强惨系统后 https://www.weiyongshi.com/book/4e1gv4c/
+- 穿成年代文里的村草 https://www.weiyongshi.com/book/4e1gurk/
+- 忍界修罗带球跑 https://www.weiyongshi.com/book/4e1guos/
+- 被公用的美人陪读/美校 https://www.weiyongshi.com/book/4e1guas/
+- [全职高手]带着魔性美貌穿越有什么用 https://www.weiyongshi.com/book/4e1gu7l/
+- 无趣的我，今天也在选秀中断层第一 https://www.weiyongshi.com/book/4e1gu6k/
+- [综英美]让我统治哥谭！！！ https://www.weiyongshi.com/book/4e1gtl5/
+- 你也没死？ https://www.weiyongshi.com/book/4e1gtgh/
+- 战死的阿爹回来了[年代] https://www.weiyongshi.com/book/4e1gt5j/
+- 魔王模拟器 https://www.weiyongshi.com/book/4e1gsv0/
+- 为了抢走贵妃我造反了 https://www.weiyongshi.com/book/4e1gst4/
+- 大美人怀了enigma上司的崽 https://www.weiyongshi.com/book/4e1gsqj/
+- 女主请自重[快穿] https://www.weiyongshi.com/book/4e1gsfi/
+- 哥你不能不要我 https://www.weiyongshi.com/book/4e1gseq/
+- 我不想当男太后[穿书] https://www.weiyongshi.com/book/4e1gs7s/
+- [综武侠]嘘！不许剧透 https://www.weiyongshi.com/book/4e1gs35/
+- 乱世奶嗝受 https://www.weiyongshi.com/book/4e1gs22/
+- 梵高夫人 https://www.weiyongshi.com/book/4e1grag/
+- [综英美]猫女士是一只猫 https://www.weiyongshi.com/book/4e1gr4l/
+- 备胎的我重生成万人迷 https://www.weiyongshi.com/book/4e1gr3s/
+- 来自深渊的救世者 https://www.weiyongshi.com/book/4e1gr0f/
+- 我妈是大佬[快穿] https://www.weiyongshi.com/book/4e1gqs9/
+- 西幻抽卡装NPC https://www.weiyongshi.com/book/4e1gpt1/
+- 堕魔 https://www.weiyongshi.com/book/4e1gpsh/
+- 东映排球部 https://www.weiyongshi.com/book/4e1gpmn/
+- 当小狗炮灰分手后 https://www.weiyongshi.com/book/4e1gpi5/
+- 漂亮作精绑定换装系统后［快穿］ https://www.weiyongshi.com/book/4e1gpfb/
+- [足球]啊我玩的原来是盗版游戏啊！？！ https://www.weiyongshi.com/book/4e1gpdk/
+- 侯府打工人 https://www.weiyongshi.com/book/4e1gp8s/
+- 在无限世界当晕倒羊 https://www.weiyongshi.com/book/4e1gp7v/
+- 陛下今天怼人了吗［快穿］ https://www.weiyongshi.com/book/4e1gp7l/
 - 被子同学 https://www.weiyongshi.com/book/4e1goqh/
 - 黑莲花在线演我 https://www.weiyongshi.com/book/4e1gopu/
 - 首辅大人怀中娇（重生） https://www.weiyongshi.com/book/4e1goou/
 - 长公主的六零年代 https://www.weiyongshi.com/book/4e1gojb/
 - 寻真 https://www.weiyongshi.com/book/4e1go93/
 - [清]给太子当姐姐那些年 https://www.weiyongshi.com/book/4e1go5s/
+- 林照娘的宗室生活手札 https://www.weiyongshi.com/book/4e1gnvn/
 - 京秋婚约 https://www.weiyongshi.com/book/4e1gna1/
 - [综崩铁]谁家小鸟掉冥河了 https://www.weiyongshi.com/book/4e1gn3n/
 - 歪剧情我是专业的[快穿] https://www.weiyongshi.com/book/4e1gn3e/
 - 巨星渡灵师 https://www.weiyongshi.com/book/4e1gn0u/
 - 灰墙之下 https://www.weiyongshi.com/book/4e1gn0i/
+- 七零丰腴美人训夫日常 https://www.weiyongshi.com/book/4e1gms0/
 - 我绝不可能是只NPC https://www.weiyongshi.com/book/4e1gmnu/
+- 不再依赖哥哥算长大吗 https://www.weiyongshi.com/book/4e1gmm6/
 - 被俄罗斯小疯子娇养了 https://www.weiyongshi.com/book/4e1gmd6/
 - 妖怪崽崽种田日常 https://www.weiyongshi.com/book/4e1gmcp/
 - ƽ��С����(�崩) https://www.weiyongshi.com/book/4e1gm2f/
@@ -224,7 +310,6 @@
 - 坏女人绑定攻略系统后 https://www.weiyongshi.com/book/4e1ftc9/
 - [足球]在比利时我们只玩天赋 https://www.weiyongshi.com/book/4e1ftbl/
 - 太子妃她不干了 https://www.weiyongshi.com/book/4e1ft7m/
-- 冷傲上司绑定娇妻系统后 https://www.weiyongshi.com/book/4e1ft73/
 - 摄政长公主穿成炮灰女配[七零] https://www.weiyongshi.com/book/4e1ft53/
 - 下堂驸马追妻实录 https://www.weiyongshi.com/book/4e1ft49/
 - 破戒[娱乐圈] https://www.weiyongshi.com/book/4e1ft3r/
@@ -247,7 +332,6 @@
 - 当烫男人走错了片场 https://www.weiyongshi.com/book/4e1frre/
 - 败类 https://www.weiyongshi.com/book/4e1fro4/
 - 校草的漂亮亲妈 https://www.weiyongshi.com/book/4e1frn4/
-- 刀子精手心的人偶崽崽 https://www.weiyongshi.com/book/4e1frfc/
 - 末世山居日常 https://www.weiyongshi.com/book/4e1frb9/
 - 渡鬼 https://www.weiyongshi.com/book/4e1fr8b/
 - 龙傲天未婚妻不退婚了 https://www.weiyongshi.com/book/4e1fr7n/
@@ -296,6 +380,7 @@
 - 顶流他姐有神豪系统 https://www.weiyongshi.com/book/4e1foam/
 - 霓虹坠落 https://www.weiyongshi.com/book/4e1foae/
 - 让我再吃一口 https://www.weiyongshi.com/book/4e1fo96/
+- 我不是正夫吗？ https://www.weiyongshi.com/book/4e1fo6t/
 - 普通高中生，但兼职咒术师 https://www.weiyongshi.com/book/4e1fo67/
 - 好巧，你也是妹控？[综崩铁] https://www.weiyongshi.com/book/4e1fo35/
 - 魔物堆里的人类幼崽 https://www.weiyongshi.com/book/4e1fo1g/
@@ -306,6 +391,7 @@
 - 癫骨 https://www.weiyongshi.com/book/4e1fnm8/
 - 高冷影后逼我标记她 https://www.weiyongshi.com/book/4e1fnkm/
 - 直播捏玩具被榜一大哥撅了 https://www.weiyongshi.com/book/4e1fnia/
+- 痴情女配开始放手了（快穿） https://www.weiyongshi.com/book/4e1fng0/
 - 放开那个黑暗哨兵！ https://www.weiyongshi.com/book/4e1fmuc/
 - 请问夫君你哪位 https://www.weiyongshi.com/book/4e1fms3/
 - 我靠玛丽苏系统伪装神女 https://www.weiyongshi.com/book/4e1fmq2/
@@ -316,6 +402,7 @@
 - 小狗向导，世界瑰宝！ https://www.weiyongshi.com/book/4e1flt0/
 - 污染来袭，我反复穿越 https://www.weiyongshi.com/book/4e1flnj/
 - 为她守节第十年 https://www.weiyongshi.com/book/4e1fio4/
+- 那什么的小蜘蛛 https://www.weiyongshi.com/book/4e1f8af/
 - [足球]小小鸟堂堂来袭 https://www.weiyongshi.com/book/4e1dlbq/
 - 全世界名为爱的恶意 https://www.weiyongshi.com/book/4e1dl54/
 - 清穿女回来后[天幕] https://www.weiyongshi.com/book/4e1dl18/

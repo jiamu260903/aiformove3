@@ -1,12 +1,11 @@
 
 # 阅读小说网-免费分享优质完结小说下载阅读平台
 
-更新时间：2026-09-09 03:48:46
+更新时间：2026-09-10 03:49:14
 
 阅读小说网为广大读者提供丰富多样的网络免费小说资源，包括但不限于完本小说、玄幻小说、言情小说、耽美小说以及各种经典名著。支持小说上传、下载和在线免费阅读服务。 https://www.yuedu687.com
 
 ## 最新小说
-- 入梦修罗场，但我脸盲 https://www.yuedu687.com/book/2bu5j0q/
 - [洪荒]成为太清妹妹后 https://www.yuedu687.com/book/2bu5j0m/
 - [足球]雏鸟 https://www.yuedu687.com/book/2bu5j0l/
 - 二次分化后他怀了死对头的崽 https://www.yuedu687.com/book/2bu5j0k/
@@ -35,7 +34,6 @@
 - 暗恋的价格是三万块 https://www.yuedu687.com/book/2bu5ivt/
 - 好心的俄罗斯人 https://www.yuedu687.com/book/2bu5ivs/
 - 末世八年春，游戏降临 https://www.yuedu687.com/book/2bu5ivr/
-- 欲和离？夫君他目不识丁 https://www.yuedu687.com/book/2bu5ivq/
 - 烈火焚身[巴黎圣母院] https://www.yuedu687.com/book/2bu5ivp/
 - 欲加之罪 https://www.yuedu687.com/book/2bu5ivo/
 - [崩铁]请给玩家一个准确的血条！ https://www.yuedu687.com/book/2bu5ivn/
@@ -70,7 +68,7 @@
 - 恐游作精女配求生指南 https://www.yuedu687.com/book/2bu5iuo/
 - 娘娘扶摇直上 https://www.yuedu687.com/book/2bu5iun/
 - [综英美]和亲友群穿哥谭以后 https://www.yuedu687.com/book/2bu5ium/
-- 人，今晚土拨鼠站岗 https://www.yuedu687.com/book/2bu5iul/
+- 笨蛋土拨鼠站岗日志 https://www.yuedu687.com/book/2bu5iul/
 - 我只想上京赶考啊[聊斋] https://www.yuedu687.com/book/2bu5iuk/
 - 清穿女回来后[天幕] https://www.yuedu687.com/book/2bu5iuj/
 - ［西幻］RPG就不要谈恋爱了吧！ https://www.yuedu687.com/book/2bu5iui/
@@ -83,17 +81,20 @@
 - 十九世纪贵族厨房（美食） https://www.yuedu687.com/book/2bu5ioa/
 - 原配夫人 https://www.yuedu687.com/book/2bu5io3/
 - [封神]圣人生欲 https://www.yuedu687.com/book/2bu5ine/
-- 我只梦你一页 https://www.yuedu687.com/book/2bu5imj/
 - 高调装神，猥琐发育 https://www.yuedu687.com/book/2bu5imi/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.yuedu687.com/book/2bu5ill/
 - 直男咒术师的限制级游戏 https://www.yuedu687.com/book/2bu5iis/
+- 千禧年，拆迁分了十栋楼！ https://www.yuedu687.com/book/2bu5iho/
 - 六零之成了卷王的妹妹 https://www.yuedu687.com/book/2bu5ha2/
 - 路人攻了主角攻［快穿］ https://www.yuedu687.com/book/2bu5h87/
 - 昭暮 https://www.yuedu687.com/book/2bu57l3/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.yuedu687.com/book/2bu4sae/
+- 恶犬品德 https://www.yuedu687.com/book/2bu4rm2/
 - 老公对不起 https://www.yuedu687.com/book/2bu4e87/
 - 九零重组小家庭 https://www.yuedu687.com/book/2bu43ua/
 - [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.yuedu687.com/book/2bu40v1/
+- 限制文女王[快穿] https://www.yuedu687.com/book/2bu3tgu/
+- 直播忏悔室，吃瓜养宠圈 https://www.yuedu687.com/book/2bu3qci/
 - [足球]足坛人生模拟器 https://www.yuedu687.com/book/2bu3j38/
 - 上个鬼班[无限] https://www.yuedu687.com/book/2bu3hbh/
 - 在卷王和废物之间选择做吉祥物 https://www.yuedu687.com/book/2bu3fls/
@@ -128,19 +129,17 @@
 - 大唐守军家属 https://www.yuedu687.com/book/7j1qd6/
 - 在重生文里考科举 https://www.yuedu687.com/book/7j1ntt/
 - 朕也要被强制吗？ https://www.yuedu687.com/book/7j1neq/
+- 和小肥啾的海岛经营游戏 https://www.yuedu687.com/book/7j1iel/
 - 妻主风流（女尊） https://www.yuedu687.com/book/7j1h6a/
 - 多梦你一会儿 https://www.yuedu687.com/book/7j1ck7/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.yuedu687.com/book/7j1cjb/
 - 韩团绿卡不想忍了 https://www.yuedu687.com/book/7j1b4j/
 - 被糟蹋的老实人决定反击 https://www.yuedu687.com/book/7j19og/
-- 这个位面归我了！[经营] https://www.yuedu687.com/book/7j18tj/
 - 卷王后妈，八零养娃 https://www.yuedu687.com/book/7j17rv/
 - 清冷丞相怀了死对头的崽 https://www.yuedu687.com/book/7j17rs/
 - 村霸非要入赘受气包 https://www.yuedu687.com/book/7j17ju/
 - 和山神搭伙开农场的日子 https://www.yuedu687.com/book/7j15l8/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.yuedu687.com/book/7j14t4/
-- 恶犬攻绑定上司的乖狗系统 https://www.yuedu687.com/book/7j121c/
-- 在民俗惊悚片被诸神庇护 https://www.yuedu687.com/book/7j11h6/
 - 心动嫌疑人 https://www.yuedu687.com/book/7j114o/
 - 带清冷女主回乡养螃蟹[种田] https://www.yuedu687.com/book/7j0vdh/
 - 死亡悖论[无限流] https://www.yuedu687.com/book/7j0ua5/

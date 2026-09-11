@@ -1,11 +1,12 @@
 
 # 灌南华侨小说网笔趣阁_书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-09 03:29:47
+更新时间：2026-09-10 03:30:05
 
 灌南华侨小说网笔趣阁海量免费小说在线阅读平台，汇聚玄幻、都市、言情、科幻、悬疑等全品类热门小说，实时更新全网爆款佳作。无广告干扰，支持缓存离线看，让你随时随地沉浸阅读世界，找书看书就来笔趣阁，满足你的所有阅读渴望。 https://www.gnhqbs.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.gnhqbs.com/book/1cqms3p/
 - 烈火焚身[巴黎圣母院] https://www.gnhqbs.com/book/1cqms3m/
 - 我们小区穿末世 https://www.gnhqbs.com/book/1cqms3l/
 - 星露谷，但日本战国 https://www.gnhqbs.com/book/1cqms3k/
@@ -16,9 +17,8 @@
 - 病美人重生日记 https://www.gnhqbs.com/book/1cqms3f/
 - 在中世纪做奴隶 https://www.gnhqbs.com/book/1cqms3e/
 - 魔法种田，从退队经营农场开始 https://www.gnhqbs.com/book/1cqms3d/
-- 人，今晚土拨鼠站岗 https://www.gnhqbs.com/book/1cqms3c/
+- 笨蛋土拨鼠站岗日志 https://www.gnhqbs.com/book/1cqms3c/
 - 谁都不爱的和亲公主 https://www.gnhqbs.com/book/1cqms3a/
-- 欲和离？夫君他目不识丁 https://www.gnhqbs.com/book/1cqms39/
 - 强取师尊后 https://www.gnhqbs.com/book/1cqms38/
 - 欲加之罪 https://www.gnhqbs.com/book/1cqms37/
 - [原神]魔法使恋爱指南 https://www.gnhqbs.com/book/1cqms36/
@@ -73,7 +73,6 @@
 - 天幕今天也在直播我搞基建 https://www.gnhqbs.com/book/1cqm5nf/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.gnhqbs.com/book/1cqm5fu/
 - 全世界名为爱的恶意 https://www.gnhqbs.com/book/1cqm3im/
-- 仙门透明人被迫万人迷 https://www.gnhqbs.com/book/1cqm3fh/
 - 九零重组小家庭 https://www.gnhqbs.com/book/1cqm0eq/
 - 起初，我只是想找个冤大头 https://www.gnhqbs.com/book/1cqlute/
 - 在卷王和废物之间选择做吉祥物 https://www.gnhqbs.com/book/1cqlo66/
@@ -85,7 +84,6 @@
 - 专业女配的自我修养（快穿） https://www.gnhqbs.com/book/1cql0mh/
 - [足球]我的游戏存档成真了？！ https://www.gnhqbs.com/book/1cqkrfe/
 - 我与龙傲天寿命共享 https://www.gnhqbs.com/book/1cqkral/
-- 摄政王家的咸鱼夫郎 https://www.gnhqbs.com/book/1cqkr4p/
 - 我骗家里的钱养你啊 https://www.gnhqbs.com/book/1cqkpbd/
 - 让你们无剧本可走（快穿） https://www.gnhqbs.com/book/1cqkoiq/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.gnhqbs.com/book/1cqkn1v/
@@ -100,8 +98,10 @@
 - 从童星开始杀穿港娱 https://www.gnhqbs.com/book/1cqk4c5/
 - 同时扮演贵族学院F4和平民校花 https://www.gnhqbs.com/book/1cqk3h7/
 - 开局绑定郭奉孝，谋定三国风云 https://www.gnhqbs.com/book/1cqk1s0/
+- 我只梦你一页 https://www.gnhqbs.com/book/1cqk1ar/
 - 苏娘子汴京摆摊日常（美食） https://www.gnhqbs.com/book/1cqk177/
 - 路人攻了主角攻［快穿］ https://www.gnhqbs.com/book/1cqk0lc/
+- 月亮上的大筒木 https://www.gnhqbs.com/book/1cqk08a/
 - 直男咒术师的限制级游戏 https://www.gnhqbs.com/book/1cqjukk/
 - 我有一座地下城 https://www.gnhqbs.com/book/1cqjs0v/
 - 漂亮女配是万人迷［快穿］ https://www.gnhqbs.com/book/1cqjqc0/
@@ -120,7 +120,6 @@
 - 心动嫌疑人 https://www.gnhqbs.com/book/1cqj2gc/
 - 在重生文里考科举 https://www.gnhqbs.com/book/1cqj284/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.gnhqbs.com/book/1cqj1tl/
-- 这个位面归我了！[经营] https://www.gnhqbs.com/book/1cqitgv/
 - 妻主风流（女尊） https://www.gnhqbs.com/book/1cqiskh/
 - 死亡悖论[无限流] https://www.gnhqbs.com/book/1cqis7v/
 - 带清冷女主回乡养螃蟹[种田] https://www.gnhqbs.com/book/1cqirjj/
@@ -139,7 +138,6 @@
 - 十九世纪贵族厨房（美食） https://www.gnhqbs.com/book/1cqha97/
 - [封神]圣人生欲 https://www.gnhqbs.com/book/1cqha6t/
 - 卷王后妈，八零养娃 https://www.gnhqbs.com/book/1cqha4m/
-- 星际团宠小人鱼 https://www.gnhqbs.com/book/1cqh9or/
 - 六零之成了卷王的妹妹 https://www.gnhqbs.com/book/1cqh9o0/
 - 高调装神，猥琐发育 https://www.gnhqbs.com/book/1cqh9jg/
 - [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.gnhqbs.com/book/1cqh9ca/

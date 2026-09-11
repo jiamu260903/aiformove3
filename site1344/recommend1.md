@@ -1,7 +1,7 @@
 
 # 国威御林小说_国威御林小说小说在线阅读
 
-更新时间：2026-09-09 03:30:02
+更新时间：2026-09-10 03:30:20
 
 国威御林小说是拥有海量的完结全本小说作品, 提供热门小说排行榜免费在线阅读, 每日更新言情、都市、穿越、青春、悬疑等作品连载。 https://www.guoweiyulin.com
 
@@ -58,13 +58,12 @@
 - 咦？我爸爸复活啦 https://www.guoweiyulin.com/book/360q2e3/
 - 我们小区穿末世 https://www.guoweiyulin.com/book/360q2du/
 - 二次分化后他怀了死对头的崽 https://www.guoweiyulin.com/book/360q2dt/
-- 欲和离？夫君他目不识丁 https://www.guoweiyulin.com/book/360q2dn/
 - 国运求生：我的金手指是生命树 https://www.guoweiyulin.com/book/360q2dm/
 - 我只想上京赶考啊[聊斋] https://www.guoweiyulin.com/book/360q2dl/
 - 你让魔王组建勇者小队？ https://www.guoweiyulin.com/book/360q2dk/
 - [足球]小小鸟堂堂来袭 https://www.guoweiyulin.com/book/360q2dj/
 - 魔法种田，从退队经营农场开始 https://www.guoweiyulin.com/book/360q2de/
-- 人，今晚土拨鼠站岗 https://www.guoweiyulin.com/book/360q2dc/
+- 笨蛋土拨鼠站岗日志 https://www.guoweiyulin.com/book/360q2dc/
 - ［西幻］RPG就不要谈恋爱了吧！ https://www.guoweiyulin.com/book/360q2da/
 - 漫画取材所引发的修罗场 https://www.guoweiyulin.com/book/360q2d8/
 - [足球]雏鸟 https://www.guoweiyulin.com/book/360q2d6/
@@ -129,7 +128,6 @@
 - 韩团绿卡不想忍了 https://www.guoweiyulin.com/book/360m60o/
 - 妻主风流（女尊） https://www.guoweiyulin.com/book/360m5ut/
 - 死亡悖论[无限流] https://www.guoweiyulin.com/book/360m2f3/
-- 这个位面归我了！[经营] https://www.guoweiyulin.com/book/360m1r4/
 - 心动嫌疑人 https://www.guoweiyulin.com/book/360m1ou/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.guoweiyulin.com/book/360lujm/
 - 带清冷女主回乡养螃蟹[种田] https://www.guoweiyulin.com/book/360ltht/

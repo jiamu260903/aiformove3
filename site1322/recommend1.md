@@ -1,12 +1,11 @@
 
 # 文学小说网手机版_好看的文学小说TXT下载,无弹窗手机小说网
 
-更新时间：2026-09-09 03:43:42
+更新时间：2026-09-10 03:43:56
 
 文学小说网收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者最值得收藏的网络小说阅读网,精彩小说尽在文学小说网(无弹窗小说网)。 https://www.wenxue521.com
 
 ## 最新小说
-- 入梦修罗场，但我脸盲 https://www.wenxue521.com/book/93olskl/
 - 欲加之罪 https://www.wenxue521.com/book/93olskh/
 - 占有欲Daddy是我老公？ https://www.wenxue521.com/book/93olskg/
 - 禁止继承限制级雌君 https://www.wenxue521.com/book/93olskf/
@@ -38,7 +37,6 @@
 - 双生子反派的端水抑郁妈[九零] https://www.wenxue521.com/book/93olsjk/
 - 炮灰的海外亲戚回国啦！ https://www.wenxue521.com/book/93olsjj/
 - 恐游作精女配求生指南 https://www.wenxue521.com/book/93olsji/
-- 欲和离？夫君他目不识丁 https://www.wenxue521.com/book/93olsjh/
 - [原神]魔法使恋爱指南 https://www.wenxue521.com/book/93olsjg/
 - 万人嫌从末世回来了 https://www.wenxue521.com/book/93olsjf/
 - 魔尊闭关十年连生十一子？！ https://www.wenxue521.com/book/93olsje/
@@ -48,7 +46,7 @@
 - 夫人每天都在伪装 https://www.wenxue521.com/book/93olsja/
 - 热恋过期需重追 https://www.wenxue521.com/book/93olsj9/
 - [综英美]和亲友群穿哥谭以后 https://www.wenxue521.com/book/93olsj8/
-- 人，今晚土拨鼠站岗 https://www.wenxue521.com/book/93olsj7/
+- 笨蛋土拨鼠站岗日志 https://www.wenxue521.com/book/93olsj7/
 - 八零法医，带全家致富 https://www.wenxue521.com/book/93olsj6/
 - 咦？我爸爸复活啦 https://www.wenxue521.com/book/93olsj5/
 - 乖乖女的杂货铺[八零] https://www.wenxue521.com/book/93olsj4/
@@ -84,18 +82,21 @@
 - [封神]圣人生欲 https://www.wenxue521.com/book/93olsba/
 - 原配夫人 https://www.wenxue521.com/book/93olsb6/
 - 高调装神，猥琐发育 https://www.wenxue521.com/book/93olsaf/
-- 我只梦你一页 https://www.wenxue521.com/book/93olsad/
+- 千禧年，拆迁分了十栋楼！ https://www.wenxue521.com/book/93olsa8/
 - 直男咒术师的限制级游戏 https://www.wenxue521.com/book/93ols9s/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.wenxue521.com/book/93ols76/
 - 六零之成了卷王的妹妹 https://www.wenxue521.com/book/93olqu6/
 - 路人攻了主角攻［快穿］ https://www.wenxue521.com/book/93olqrg/
 - 昭暮 https://www.wenxue521.com/book/93olh8o/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.wenxue521.com/book/93ol5q3/
+- 恶犬品德 https://www.wenxue521.com/book/93ol56q/
 - 老公对不起 https://www.wenxue521.com/book/93oknqe/
+- 限制文女王[快穿] https://www.wenxue521.com/book/93ok8j9/
 - [足球]足坛人生模拟器 https://www.wenxue521.com/book/93ok7mu/
 - [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.wenxue521.com/book/93ok66f/
 - 九零重组小家庭 https://www.wenxue521.com/book/93ok5l1/
 - 上个鬼班[无限] https://www.wenxue521.com/book/93ok53g/
+- 直播忏悔室，吃瓜养宠圈 https://www.wenxue521.com/book/93ojtdg/
 - 在卷王和废物之间选择做吉祥物 https://www.wenxue521.com/book/93ojp67/
 - 从维多利亚时代开始 https://www.wenxue521.com/book/93ojidq/
 - 如何嫁给当朝首辅 https://www.wenxue521.com/book/93oj3kk/
@@ -128,6 +129,7 @@
 - 大唐守军家属 https://www.wenxue521.com/book/t5mja5/
 - 朕也要被强制吗？ https://www.wenxue521.com/book/t5mi6v/
 - 在重生文里考科举 https://www.wenxue521.com/book/t5mfng/
+- 和小肥啾的海岛经营游戏 https://www.wenxue521.com/book/t5mcue/
 - 妻主风流（女尊） https://www.wenxue521.com/book/t5mcgp/
 - 多梦你一会儿 https://www.wenxue521.com/book/t5m9h9/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.wenxue521.com/book/t5m7kc/
@@ -136,12 +138,9 @@
 - 清冷丞相怀了死对头的崽 https://www.wenxue521.com/book/t5m3io/
 - 村霸非要入赘受气包 https://www.wenxue521.com/book/t5m313/
 - 卷王后妈，八零养娃 https://www.wenxue521.com/book/t5m1ph/
-- 这个位面归我了！[经营] https://www.wenxue521.com/book/t5m1ek/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.wenxue521.com/book/t5lutq/
 - 和山神搭伙开农场的日子 https://www.wenxue521.com/book/t5lufh/
 - 心动嫌疑人 https://www.wenxue521.com/book/t5lssh/
-- 恶犬攻绑定上司的乖狗系统 https://www.wenxue521.com/book/t5lskm/
-- 在民俗惊悚片被诸神庇护 https://www.wenxue521.com/book/t5ls19/
 - 死亡悖论[无限流] https://www.wenxue521.com/book/t5lq19/
 - 带清冷女主回乡养螃蟹[种田] https://www.wenxue521.com/book/t5lq00/
 - 假意逢承 https://www.wenxue521.com/book/t5lpu4/

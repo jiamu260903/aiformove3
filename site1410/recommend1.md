@@ -1,12 +1,11 @@
 
 # 新华 MBA雷火小说网 - 最新最全的小说阅读平台
 
-更新时间：2026-09-09 03:46:17
+更新时间：2026-09-10 03:46:39
 
 新华 MBA雷火小说网提供海量正版小说资源，在线免费阅读最新热门小说，支持手机电脑多端同步阅读，是书友们值得收藏的优质小说阅读网站。 https://www.xhmba.com
 
 ## 最新小说
-- 入梦修罗场，但我脸盲 https://www.xhmba.com/book/7mj2jqm/
 - 天幕今天也在直播我搞基建 https://www.xhmba.com/book/7mj2a7o/
 - 谁都不爱的和亲公主 https://www.xhmba.com/book/7mj27ir/
 - 恐游里的邻居们[万人迷] https://www.xhmba.com/book/7mj27ij/
@@ -36,9 +35,8 @@
 - 八零法医，带全家致富 https://www.xhmba.com/book/7mj27fl/
 - 病美人重生日记 https://www.xhmba.com/book/7mj27fi/
 - 在中世纪做奴隶 https://www.xhmba.com/book/7mj27fc/
-- 人，今晚土拨鼠站岗 https://www.xhmba.com/book/7mj27f9/
+- 笨蛋土拨鼠站岗日志 https://www.xhmba.com/book/7mj27f9/
 - 星露谷，但日本战国 https://www.xhmba.com/book/7mj27f7/
-- 欲和离？夫君他目不识丁 https://www.xhmba.com/book/7mj27f4/
 - 恶毒男配只想躺平 https://www.xhmba.com/book/7mj27f0/
 - ［综英美］蝙蝠崽？我不是啊！ https://www.xhmba.com/book/7mj27et/
 - 谁说踢球就不能成为名侦探[足球] https://www.xhmba.com/book/7mj27es/
@@ -68,9 +66,11 @@
 - 乖乖女的杂货铺[八零] https://www.xhmba.com/book/7mj27b3/
 - 夫人每天都在伪装 https://www.xhmba.com/book/7mj27ar/
 - 世界伏于她刀下[无限] https://www.xhmba.com/book/7mj27ap/
+- 限制文女王[快穿] https://www.xhmba.com/book/7mj24iq/
 - [足球]足坛人生模拟器 https://www.xhmba.com/book/7mj1tq1/
 - 上个鬼班[无限] https://www.xhmba.com/book/7mj1tpl/
 - 让暴君Alpha怀崽后 https://www.xhmba.com/book/7mj1st6/
+- 直播忏悔室，吃瓜养宠圈 https://www.xhmba.com/book/7mj1skd/
 - 在卷王和废物之间选择做吉祥物 https://www.xhmba.com/book/7mj1o8c/
 - 老公对不起 https://www.xhmba.com/book/7mj1o63/
 - 完蛋！被恨孕男包围了！ https://www.xhmba.com/book/7mj1nnf/
@@ -114,10 +114,10 @@
 - 我187了，你敢见我吗？ https://www.xhmba.com/book/7mivhvp/
 - [综英美]和亲友群穿哥谭以后 https://www.xhmba.com/book/7mivgdj/
 - 和姐姐的前女友欢愉后 https://www.xhmba.com/book/7mive8b/
-- 我只梦你一页 https://www.xhmba.com/book/7mivb1m/
 - 心动嫌疑人 https://www.xhmba.com/book/7miv7rc/
 - [崩铁]请给玩家一个准确的血条！ https://www.xhmba.com/book/7miv747/
 - 大唐守军家属 https://www.xhmba.com/book/7miv71n/
+- 和小肥啾的海岛经营游戏 https://www.xhmba.com/book/7miv6n0/
 - 朕也要被强制吗？ https://www.xhmba.com/book/7miv6h2/
 - 等我吃腻了再倒闭可以吗 https://www.xhmba.com/book/7miv5n9/
 - 在重生文里考科举 https://www.xhmba.com/book/7miv46s/
@@ -126,17 +126,16 @@
 - 穿咒术，但杀猴现场 https://www.xhmba.com/book/7miuv2l/
 - 妻主风流（女尊） https://www.xhmba.com/book/7miuun8/
 - 带清冷女主回乡养螃蟹[种田] https://www.xhmba.com/book/7miuuca/
-- 这个位面归我了！[经营] https://www.xhmba.com/book/7miut3r/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.xhmba.com/book/7miur2p/
 - 清冷丞相怀了死对头的崽 https://www.xhmba.com/book/7miupnk/
 - 村霸非要入赘受气包 https://www.xhmba.com/book/7miupdj/
 - 和山神搭伙开农场的日子 https://www.xhmba.com/book/7miuopq/
 - 假意逢承 https://www.xhmba.com/book/7miuo8s/
 - 被糟蹋的老实人决定反击 https://www.xhmba.com/book/7miuo3b/
+- 千禧年，拆迁分了十栋楼！ https://www.xhmba.com/book/7miuksr/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.xhmba.com/book/7miukpa/
 - 娘娘扶摇直上 https://www.xhmba.com/book/7miuhoq/
 - 权宋一只统 https://www.xhmba.com/book/7miug7s/
-- 恶犬攻绑定上司的乖狗系统 https://www.xhmba.com/book/7miue2p/
 - 爱好和平但狂拆机甲 https://www.xhmba.com/book/7miuaai/
 - 你让魔王组建勇者小队？ https://www.xhmba.com/book/7miu6hi/
 - 大瑛弟国 https://www.xhmba.com/book/7mitaec/
@@ -150,13 +149,13 @@
 - 海岛求生：生活玩家种田囤货 https://www.xhmba.com/book/7mit913/
 - [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.xhmba.com/book/7mit90p/
 - 我是唯一地上神国 https://www.xhmba.com/book/7mit8k3/
+- 恶犬品德 https://www.xhmba.com/book/7mit8gh/
 - 巨物致富：回乡开钓场 https://www.xhmba.com/book/7mit8ej/
 - 六零之成了卷王的妹妹 https://www.xhmba.com/book/7mit8cd/
 - [封神]圣人生欲 https://www.xhmba.com/book/7mit8aj/
 - 全民求生:从小木屋到魔法农场 https://www.xhmba.com/book/7mit82n/
 - 清澈女大的六零年代 https://www.xhmba.com/book/7mit7vm/
 - 五十年代港城日常 https://www.xhmba.com/book/7mit7t5/
-- 在民俗惊悚片被诸神庇护 https://www.xhmba.com/book/7mit7q3/
 - 趁她之危 https://www.xhmba.com/book/7mit7oq/
 - 原配夫人 https://www.xhmba.com/book/7mit7it/
 - 高调装神，猥琐发育 https://www.xhmba.com/book/7mit7ee/

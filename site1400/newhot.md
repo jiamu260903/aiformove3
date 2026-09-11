@@ -1,11 +1,16 @@
 
 # 都来读小说网 - 免费电子书阅读平台
 
-更新时间：2026-09-09 03:41:48
+更新时间：2026-09-10 03:41:58
 
 都来读小说网提供快速更新的海量免费小说资源，主要以TXT格式为主，致力于为读者带来优质的阅读体验。 https://www.swazs.com
 
 ## 最新小说
+- 穿成漫画反派的我又做错了什么 https://www.swazs.com/book/1u7l0kk/
+- [综英美]蝙蝠崽但脆皮 https://www.swazs.com/book/1u7l0fp/
+- 我拿的可是反派剧本 https://www.swazs.com/book/1u7kvpu/
+- 丧尸王有什么坏心思？ https://www.swazs.com/book/1u7kv99/
+- 这个替嫁让我来！ https://www.swazs.com/book/1u7kusv/
 - 网球带给齐木的灾难 https://www.swazs.com/book/1u7ktkl/
 - 当甚尔转生成继国 https://www.swazs.com/book/1u7krnm/
 - 节能型社恐靠交友存活打排球 https://www.swazs.com/book/1u7kr08/
@@ -59,6 +64,7 @@
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.swazs.com/book/1u7j6vq/
 - 优质攻不做恋爱脑[快穿] https://www.swazs.com/book/1u7j6qk/
 - 渡鬼 https://www.swazs.com/book/1u7j6ng/
+- 痴情女配开始放手了（快穿） https://www.swazs.com/book/1u7j685/
 - 五美元在哥谭活一月 https://www.swazs.com/book/1u7j67k/
 - 可怜的天然呆直男[快穿] https://www.swazs.com/book/1u7j66f/
 - 我当县令那些年 https://www.swazs.com/book/1u7j5h6/
@@ -338,7 +344,6 @@
 - 女帝起家前录 https://www.swazs.com/book/1u7hpd0/
 - 下堂驸马追妻实录 https://www.swazs.com/book/1u7hpcb/
 - 娇嗔 https://www.swazs.com/book/1u7hp8u/
-- 冷傲上司绑定娇妻系统后 https://www.swazs.com/book/1u7hp89/
 - 女beta的星际悠闲生活 https://www.swazs.com/book/1u7hp6s/
 - 娇婚惯养 https://www.swazs.com/book/1u7hp69/
 - 破戒[娱乐圈] https://www.swazs.com/book/1u7hp60/
@@ -416,7 +421,6 @@
 - 让我再吃一口 https://www.swazs.com/book/1u7hjtl/
 - 癫骨 https://www.swazs.com/book/1u7hjk1/
 - 我靠玛丽苏系统伪装神女 https://www.swazs.com/book/1u7hjhp/
-- 刀子精手心的人偶崽崽 https://www.swazs.com/book/1u7hjfg/
 - 在女仆咖啡店兼职被校草缠上后 https://www.swazs.com/book/1u7hjf8/
 - 吐槽役审神者会爆改幕后大boss吗 https://www.swazs.com/book/1u7hje3/
 - 每天都在和太宰互换身体 https://www.swazs.com/book/1u7hjb0/
@@ -435,6 +439,7 @@
 - 丧尸老婆喂养日记 https://www.swazs.com/book/1u7ghe1/
 - 朕看上的少年是侠女 https://www.swazs.com/book/1u7fior/
 - 被四皇错看成小动物后 https://www.swazs.com/book/1u7fi8k/
+- 我不是正夫吗？ https://www.swazs.com/book/1u7fhh3/
 - 你，后室管理员 https://www.swazs.com/book/1u7fgu9/
 - [封神]圣人生欲 https://www.swazs.com/book/1u7fg6j/
 - 高调装神，猥琐发育 https://www.swazs.com/book/1u7fft4/

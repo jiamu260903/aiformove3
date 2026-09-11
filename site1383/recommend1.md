@@ -1,7 +1,7 @@
 
 # 紫竹原始小说 - 最新最全的小说文学网站
 
-更新时间：2026-09-09 03:27:44
+更新时间：2026-09-10 03:28:00
 
 紫竹原始小说是一个专注于分享最新、最全的小说文学作品的网站。我们致力于为读者带来全新的阅读体验，欢迎访问我们的网站，尽情享受文学的魅力。 https://www.cnysxc.com
 
@@ -21,10 +21,9 @@
 - 正是冬雪沸腾时 https://www.cnysxc.com/book/8ee0irb/
 - [全职高手]治疗什么的不干了！ https://www.cnysxc.com/book/8ee0ir7/
 - [洪荒]成为太清妹妹后 https://www.cnysxc.com/book/8ee0ir6/
-- 欲和离？夫君他目不识丁 https://www.cnysxc.com/book/8ee0ir2/
 - 二次分化后他怀了死对头的崽 https://www.cnysxc.com/book/8ee0iqr/
 - 我只想上京赶考啊[聊斋] https://www.cnysxc.com/book/8ee0iql/
-- 人，今晚土拨鼠站岗 https://www.cnysxc.com/book/8ee0iqi/
+- 笨蛋土拨鼠站岗日志 https://www.cnysxc.com/book/8ee0iqi/
 - 在中世纪做奴隶 https://www.cnysxc.com/book/8ee0iqf/
 - 爱情的肯定句 https://www.cnysxc.com/book/8ee0iqc/
 - 魔咒请说普通话[西幻] https://www.cnysxc.com/book/8ee0iq6/
@@ -124,7 +123,6 @@
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.cnysxc.com/book/8edt400/
 - 死亡悖论[无限流] https://www.cnysxc.com/book/8edt3mh/
 - [崩铁]请给玩家一个准确的血条！ https://www.cnysxc.com/book/8edt176/
-- 这个位面归我了！[经营] https://www.cnysxc.com/book/8edsusi/
 - 妻主风流（女尊） https://www.cnysxc.com/book/8edsulm/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.cnysxc.com/book/8edsten/
 - [综英美]和亲友群穿哥谭以后 https://www.cnysxc.com/book/8edsstu/

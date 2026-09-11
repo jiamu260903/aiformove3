@@ -1,7 +1,7 @@
 
 # 漫话乐文小说-免费小说阅读,无弹窗,最新章节更新快
 
-更新时间：2026-09-09 03:35:34
+更新时间：2026-09-10 03:35:46
 
 漫话乐文小说是广大书友最值得收藏的网络小说阅读网，提供当前最火热的网络小说免费阅读服务，高质量的小说最新章节更新快速，适合所有网络小说爱好者。 https://www.manhua958.com
 
@@ -33,6 +33,7 @@
 - 我比反派先崩坏[快穿] https://www.manhua958.com/book/17schk2/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.manhua958.com/book/17schck/
 - 渡鬼 https://www.manhua958.com/book/17schaq/
+- 痴情女配开始放手了（快穿） https://www.manhua958.com/book/17sch97/
 - cos温迪后玩到真崩铁了 https://www.manhua958.com/book/17scd4u/
 - 我有嘉宾 https://www.manhua958.com/book/17sccml/
 - 娇气点怎么啦？［快穿］ https://www.manhua958.com/book/17scck8/
@@ -57,6 +58,7 @@
 - 昭暮 https://www.manhua958.com/book/17sbln5/
 - 你，后室管理员 https://www.manhua958.com/book/17sbi58/
 - 朕看上的少年是侠女 https://www.manhua958.com/book/17sbht5/
+- 我不是正夫吗？ https://www.manhua958.com/book/17sbhsu/
 - 高调装神，猥琐发育 https://www.manhua958.com/book/17sbaq2/
 - 某横滨的时间操纵 https://www.manhua958.com/book/17sb4so/
 - 被欺负的老实人[快穿] https://www.manhua958.com/book/17sb4hf/
@@ -334,7 +336,6 @@
 - 我让人生赢家俯首称臣的那些年 https://www.manhua958.com/book/17s9jqa/
 - 从伟大航道到黑暗大陆 https://www.manhua958.com/book/17s9jpl/
 - cos穿，但美强惨刀子精 https://www.manhua958.com/book/17s9jn3/
-- 冷傲上司绑定娇妻系统后 https://www.manhua958.com/book/17s9jlg/
 - [HP]我和救世主有个约会 https://www.manhua958.com/book/17s9jkc/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.manhua958.com/book/17s9jhj/
 - 摄政长公主穿成炮灰女配[七零] https://www.manhua958.com/book/17s9jga/
@@ -413,7 +414,6 @@
 - 无能的丈夫们 https://www.manhua958.com/book/17s9db9/
 - 吐槽役审神者会爆改幕后大boss吗 https://www.manhua958.com/book/17s9cve/
 - 求生游戏：当邪神成为生活玩家后 https://www.manhua958.com/book/17s99jt/
-- 刀子精手心的人偶崽崽 https://www.manhua958.com/book/17s99gc/
 - 我最讨厌打球了！ https://www.manhua958.com/book/17s98nd/
 - [足球]小小鸟堂堂来袭 https://www.manhua958.com/book/17s93ke/
 - 幼崽假少爷选择回归寒门 https://www.manhua958.com/book/17s92q8/

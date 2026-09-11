@@ -1,7 +1,7 @@
 
 # 爱阅读-最新优质免费无弹窗小说在线阅读
 
-更新时间：2026-09-09 03:49:03
+更新时间：2026-09-10 03:49:32
 
 爱阅读提供清爽干净、页面整洁没弹窗的网络小说阅读体验。这里有大量的免费小说、完本小说供您选择，包括热门言情小说、玄幻小说、仙侠小说等多种类型。是广大书友必备的纯绿色小说阅读网站。 https://www.yuedu788.com
 
@@ -31,6 +31,7 @@
 - [足球]番外乐子集 https://www.yuedu788.com/book/1on722n/
 - 我超凶的！[快穿] https://www.yuedu788.com/book/1on706o/
 - 我比反派先崩坏[快穿] https://www.yuedu788.com/book/1on6vfr/
+- 痴情女配开始放手了（快穿） https://www.yuedu788.com/book/1on6v3f/
 - 渡鬼 https://www.yuedu788.com/book/1on6v36/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.yuedu788.com/book/1on6v27/
 - cos温迪后玩到真崩铁了 https://www.yuedu788.com/book/1on6r10/
@@ -56,6 +57,7 @@
 - 特殊魅力值，已到账 https://www.yuedu788.com/book/1on64qa/
 - 昭暮 https://www.yuedu788.com/book/1on63in/
 - 朕看上的少年是侠女 https://www.yuedu788.com/book/1on5vsn/
+- 我不是正夫吗？ https://www.yuedu788.com/book/1on5vr7/
 - 你，后室管理员 https://www.yuedu788.com/book/1on5vqp/
 - 高调装神，猥琐发育 https://www.yuedu788.com/book/1on5om4/
 - 伪装路人后成了反派首领 https://www.yuedu788.com/book/1on5ikj/
@@ -302,7 +304,6 @@
 - 侦探小说的大忌[福尔摩斯] https://www.yuedu788.com/book/1on444e/
 - 被双胞胎竹马轮番娇养 https://www.yuedu788.com/book/1on43qv/
 - 从伟大航道到黑暗大陆 https://www.yuedu788.com/book/1on43p8/
-- 冷傲上司绑定娇妻系统后 https://www.yuedu788.com/book/1on43p1/
 - 朱棣造反被朱元璋表扬这事[直播剧透] https://www.yuedu788.com/book/1on43ni/
 - 被离婚后嫁给了年代文大佬[穿书] https://www.yuedu788.com/book/1on43mn/
 - 正常人成为虫母后沦陷修罗场 https://www.yuedu788.com/book/1on43m6/
@@ -413,7 +414,6 @@
 - 请问夫君你哪位 https://www.yuedu788.com/book/1on3r24/
 - 吐槽役审神者会爆改幕后大boss吗 https://www.yuedu788.com/book/1on3qd7/
 - 我最讨厌打球了！ https://www.yuedu788.com/book/1on3n5l/
-- 刀子精手心的人偶崽崽 https://www.yuedu788.com/book/1on3mf2/
 - 求生游戏：当邪神成为生活玩家后 https://www.yuedu788.com/book/1on3ljc/
 - 幼崽假少爷选择回归寒门 https://www.yuedu788.com/book/1on3ge6/
 - [足球]小小鸟堂堂来袭 https://www.yuedu788.com/book/1on3fmp/

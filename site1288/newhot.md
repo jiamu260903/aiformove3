@@ -1,7 +1,7 @@
 
 # 读读窝小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-09 03:42:34
+更新时间：2026-09-10 03:42:43
 
 读读窝小说网提供最新最全的网络小说在线阅读服务，是广大书友寻找优质书籍、享受阅读乐趣的理想选择。 https://www.tiananfoundry.com
 
@@ -23,6 +23,7 @@
 - 全世界名为爱的恶意 https://www.tiananfoundry.com/book/1ol4n08/
 - 暴君偏头痛 https://www.tiananfoundry.com/book/1ol4mun/
 - 青城玩家明明超强却过分谨慎 https://www.tiananfoundry.com/book/1ol4mu1/
+- 痴情女配开始放手了（快穿） https://www.tiananfoundry.com/book/1ol4mt1/
 - 渡鬼 https://www.tiananfoundry.com/book/1ol4msi/
 - 躲避原书剧情五年后 https://www.tiananfoundry.com/book/1ol4mrr/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.tiananfoundry.com/book/1ol4mro/
@@ -30,6 +31,7 @@
 - 你，后室管理员 https://www.tiananfoundry.com/book/1ol4mqa/
 - [封神]圣人生欲 https://www.tiananfoundry.com/book/1ol4mq7/
 - 被四皇错看成小动物后 https://www.tiananfoundry.com/book/1ol4mpu/
+- 我不是正夫吗？ https://www.tiananfoundry.com/book/1ol4mpk/
 - 朕看上的少年是侠女 https://www.tiananfoundry.com/book/1ol4mop/
 - 高调装神，猥琐发育 https://www.tiananfoundry.com/book/1ol4moe/
 - 京秋婚约 https://www.tiananfoundry.com/book/1ol4mo3/
@@ -313,7 +315,6 @@
 - 被离婚后嫁给了年代文大佬[穿书] https://www.tiananfoundry.com/book/5lbnsi/
 - 太子妃她不干了 https://www.tiananfoundry.com/book/5lbnr1/
 - [崩铁]自恋值拉满穿越被水仙了 https://www.tiananfoundry.com/book/5lbnpk/
-- 冷傲上司绑定娇妻系统后 https://www.tiananfoundry.com/book/5lbnp1/
 - 豪门狗血文里的天才后妈 https://www.tiananfoundry.com/book/5lbnev/
 - 正常人成为虫母后沦陷修罗场 https://www.tiananfoundry.com/book/5lbne4/
 - 师妹为何要如此 https://www.tiananfoundry.com/book/5lbnat/

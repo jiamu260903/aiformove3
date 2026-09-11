@@ -1,7 +1,7 @@
 
 # 笔趣阁小说网 - 免费在线阅读百万小说
 
-更新时间：2026-09-09 03:46:31
+更新时间：2026-09-10 03:46:53
 
 笔趣阁小说网提供免费的小说在线阅读服务，包括但不限于各类热门小说、经典文学等。网站支持书架同步功能，确保用户阅读进度永不丢失。快来加入我们，享受无障碍、无广告的纯净阅读体验吧！ https://www.xiaoshuo139.com
 
@@ -35,7 +35,7 @@
 - 大佬的漂亮老婆回来带崽了[八零] https://www.xiaoshuo139.com/book/2ch7u7m/
 - 穿咒术，但杀猴现场 https://www.xiaoshuo139.com/book/2ch7u7l/
 - 魔尊闭关十年连生十一子？！ https://www.xiaoshuo139.com/book/2ch7u7k/
-- 人，今晚土拨鼠站岗 https://www.xiaoshuo139.com/book/2ch7u7j/
+- 笨蛋土拨鼠站岗日志 https://www.xiaoshuo139.com/book/2ch7u7j/
 - [崩铁]请给玩家一个准确的血条！ https://www.xiaoshuo139.com/book/2ch7u7i/
 - 热恋过期需重追 https://www.xiaoshuo139.com/book/2ch7u7h/
 - 星露谷，但日本战国 https://www.xiaoshuo139.com/book/2ch7u7g/
@@ -49,7 +49,6 @@
 - 清穿女回来后[天幕] https://www.xiaoshuo139.com/book/2ch7u78/
 - 二次分化后他怀了死对头的崽 https://www.xiaoshuo139.com/book/2ch7u77/
 - 国师 https://www.xiaoshuo139.com/book/2ch7u76/
-- 欲和离？夫君他目不识丁 https://www.xiaoshuo139.com/book/2ch7u75/
 - 爱情的肯定句 https://www.xiaoshuo139.com/book/2ch7u74/
 - SSS级异种都是我前任 https://www.xiaoshuo139.com/book/2ch7u73/
 - 万人嫌从末世回来了 https://www.xiaoshuo139.com/book/2ch7u72/
@@ -135,7 +134,6 @@
 - 韩团绿卡不想忍了 https://www.xiaoshuo139.com/book/7kuaof/
 - 清冷丞相怀了死对头的崽 https://www.xiaoshuo139.com/book/7ku9co/
 - 卷王后妈，八零养娃 https://www.xiaoshuo139.com/book/7ku873/
-- 这个位面归我了！[经营] https://www.xiaoshuo139.com/book/7ku7rv/
 - 村霸非要入赘受气包 https://www.xiaoshuo139.com/book/7ku7n7/
 - 和山神搭伙开农场的日子 https://www.xiaoshuo139.com/book/7ku6e1/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.xiaoshuo139.com/book/7ku5v2/

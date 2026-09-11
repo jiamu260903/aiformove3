@@ -1,7 +1,7 @@
 
 # 探秘笔神阁小说-好看小说快速更新,页面清新流畅的免费小说网
 
-更新时间：2026-09-09 03:42:03
+更新时间：2026-09-10 03:42:12
 
 探秘笔神阁小说收录了大量受欢迎的小说作品，以极快的速度进行更新，并且保证用户在阅读时能够享受到清新流畅的页面体验。作为一个完全免费的小说网站，它深受广大网友的喜爱。 https://www.tanmi818.com
 
@@ -33,6 +33,7 @@
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.tanmi818.com/book/977f54c/
 - 我比反派先崩坏[快穿] https://www.tanmi818.com/book/977f54b/
 - 渡鬼 https://www.tanmi818.com/book/977f54a/
+- 痴情女配开始放手了（快穿） https://www.tanmi818.com/book/977f51i/
 - cos温迪后玩到真崩铁了 https://www.tanmi818.com/book/977f0lt/
 - 我有嘉宾 https://www.tanmi818.com/book/977f06f/
 - 娇气点怎么啦？［快穿］ https://www.tanmi818.com/book/977f03j/
@@ -57,6 +58,7 @@
 - 昭暮 https://www.tanmi818.com/book/977e9hu/
 - 朕看上的少年是侠女 https://www.tanmi818.com/book/977e6hc/
 - 你，后室管理员 https://www.tanmi818.com/book/977e6e7/
+- 我不是正夫吗？ https://www.tanmi818.com/book/977e6be/
 - 高调装神，猥琐发育 https://www.tanmi818.com/book/977dv7j/
 - 伪装路人后成了反派首领 https://www.tanmi818.com/book/977docv/
 - 穿成猫的咒术高专生活 https://www.tanmi818.com/book/977do23/
@@ -307,7 +309,6 @@
 - 豪门狗血文里的天才后妈 https://www.tanmi818.com/book/977c949/
 - [HP]我和救世主有个约会 https://www.tanmi818.com/book/977c93o/
 - 破戒[娱乐圈] https://www.tanmi818.com/book/977c930/
-- 冷傲上司绑定娇妻系统后 https://www.tanmi818.com/book/977c90v/
 - 被离婚后嫁给了年代文大佬[穿书] https://www.tanmi818.com/book/977c902/
 - cos穿，但美强惨刀子精 https://www.tanmi818.com/book/977c8ua/
 - 善逸拒绝成为咒术师 https://www.tanmi818.com/book/977c8r0/
@@ -412,7 +413,6 @@
 - 神之子与排球的适配性 https://www.tanmi818.com/book/977c0pn/
 - 直播捏玩具被榜一大哥撅了 https://www.tanmi818.com/book/977c0o0/
 - 吐槽役审神者会爆改幕后大boss吗 https://www.tanmi818.com/book/977bvdr/
-- 刀子精手心的人偶崽崽 https://www.tanmi818.com/book/977bto9/
 - 我最讨厌打球了！ https://www.tanmi818.com/book/977bt6p/
 - 求生游戏：当邪神成为生活玩家后 https://www.tanmi818.com/book/977bt14/
 - [足球]小小鸟堂堂来袭 https://www.tanmi818.com/book/977bndt/

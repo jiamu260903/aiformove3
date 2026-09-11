@@ -1,7 +1,7 @@
 
 # 云南野人山野小说网 - 创意小说与文学作品分享平台
 
-更新时间：2026-09-09 03:48:09
+更新时间：2026-09-10 03:48:32
 
 欢迎来到云南野人山野小说网 - 专注于创意小说和文学作品分享的在线平台。探索精选的小说系列及文学佳作，加入我们，与众多才华横溢的作者交流心得，共同创造美好的阅读旅程。 https://www.ynyrsy.com
 
@@ -41,6 +41,7 @@
 - 开局给李世民盘点安史之乱 https://www.ynyrsy.com/book/dfdlf3/
 - 怪谈小镇游玩指南[无限] https://www.ynyrsy.com/book/dfdkft/
 - 离开那个混蛋后 https://www.ynyrsy.com/book/dfdjna/
+- 痴情女配开始放手了（快穿） https://www.ynyrsy.com/book/dfdhqe/
 - 渡鬼 https://www.ynyrsy.com/book/dfdhn8/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.ynyrsy.com/book/dfdhmj/
 - 穿成反派的亡夫后[虫族] https://www.ynyrsy.com/book/dfdgit/
@@ -324,7 +325,6 @@
 - 作家与读者 https://www.ynyrsy.com/book/dfb2m2/
 - 被离婚后嫁给了年代文大佬[穿书] https://www.ynyrsy.com/book/dfb2hj/
 - [综英美]萌萌小蜘蛛在哥谭 https://www.ynyrsy.com/book/dfb2gp/
-- 冷傲上司绑定娇妻系统后 https://www.ynyrsy.com/book/dfb2ed/
 - 这死beta老说我们不可能 https://www.ynyrsy.com/book/dfb2ct/
 - 银发死鱼眼也要打排球 https://www.ynyrsy.com/book/dfb2ca/
 - 汉武帝戾太子什么含金量 https://www.ynyrsy.com/book/dfb2bb/
@@ -412,7 +412,6 @@
 - 小狗向导，世界瑰宝！ https://www.ynyrsy.com/book/dfar20/
 - 让我再吃一口 https://www.ynyrsy.com/book/dfar19/
 - 吐槽役审神者会爆改幕后大boss吗 https://www.ynyrsy.com/book/dfaqdl/
-- 刀子精手心的人偶崽崽 https://www.ynyrsy.com/book/dfaq4i/
 - 求生游戏：当邪神成为生活玩家后 https://www.ynyrsy.com/book/dfap01/
 - 幼崽假少爷选择回归寒门 https://www.ynyrsy.com/book/dfao2f/
 - 撕毁女配剧本的我被神之子读心了 https://www.ynyrsy.com/book/dfanrk/
@@ -436,6 +435,7 @@
 - 满级竹马从异世穿回来了 https://www.ynyrsy.com/book/df9sgc/
 - 暴君偏头痛 https://www.ynyrsy.com/book/df9s6m/
 - 你，后室管理员 https://www.ynyrsy.com/book/df8q1k/
+- 我不是正夫吗？ https://www.ynyrsy.com/book/df8p91/
 - 被四皇错看成小动物后 https://www.ynyrsy.com/book/df8oq3/
 - 高调装神，猥琐发育 https://www.ynyrsy.com/book/df8olq/
 - [封神]圣人生欲 https://www.ynyrsy.com/book/df8oj6/

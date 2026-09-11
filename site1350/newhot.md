@@ -1,7 +1,7 @@
 
 # 书城小说网 - 全站免费无弹窗小说阅读平台
 
-更新时间：2026-09-09 03:40:15
+更新时间：2026-09-10 03:40:24
 
 书城小说网为您提供全站免费的小说阅读服务，支持全本小说在线浏览，承诺全程无广告弹窗干扰，是您理想的网络文学阅读选择。 https://www.shucheng518.com
 
@@ -33,6 +33,7 @@
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.shucheng518.com/book/39m3bk1/
 - 我比反派先崩坏[快穿] https://www.shucheng518.com/book/39m3bja/
 - 渡鬼 https://www.shucheng518.com/book/39m3bi7/
+- 痴情女配开始放手了（快穿） https://www.shucheng518.com/book/39m3bhs/
 - cos温迪后玩到真崩铁了 https://www.shucheng518.com/book/39m3754/
 - 我有嘉宾 https://www.shucheng518.com/book/39m36nq/
 - 娇气点怎么啦？［快穿］ https://www.shucheng518.com/book/39m36k1/
@@ -56,6 +57,7 @@
 - 特殊魅力值，已到账 https://www.shucheng518.com/book/39m2h06/
 - 昭暮 https://www.shucheng518.com/book/39m2g6t/
 - 你，后室管理员 https://www.shucheng518.com/book/39m2d0s/
+- 我不是正夫吗？ https://www.shucheng518.com/book/39m2cu7/
 - 朕看上的少年是侠女 https://www.shucheng518.com/book/39m2cqq/
 - 高调装神，猥琐发育 https://www.shucheng518.com/book/39m25r8/
 - 求求你们别吃了 https://www.shucheng518.com/book/39m1u94/
@@ -323,7 +325,6 @@
 - 在横滨横行霸道的那些年 https://www.shucheng518.com/book/39m0els/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.shucheng518.com/book/39m0ekg/
 - [足球]德意志小比也能拿冠军吗 https://www.shucheng518.com/book/39m0eje/
-- 冷傲上司绑定娇妻系统后 https://www.shucheng518.com/book/39m0ei8/
 - 银发死鱼眼也要打排球 https://www.shucheng518.com/book/39m0egs/
 - 作家与读者 https://www.shucheng518.com/book/39m0ef1/
 - 我让人生赢家俯首称臣的那些年 https://www.shucheng518.com/book/39m0ee5/
@@ -414,7 +415,6 @@
 - 吐槽役审神者会爆改幕后大boss吗 https://www.shucheng518.com/book/39m058d/
 - 求生游戏：当邪神成为生活玩家后 https://www.shucheng518.com/book/39m030c/
 - 我最讨厌打球了！ https://www.shucheng518.com/book/39m026o/
-- 刀子精手心的人偶崽崽 https://www.shucheng518.com/book/39m01ld/
 - 幼崽假少爷选择回归寒门 https://www.shucheng518.com/book/39lvrvn/
 - [足球]小小鸟堂堂来袭 https://www.shucheng518.com/book/39lvrhg/
 - 欢迎来到重生点 https://www.shucheng518.com/book/39lvpqp/

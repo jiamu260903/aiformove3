@@ -1,7 +1,7 @@
 
 # 三哥小说网 - 最热门的免费小说阅读平台
 
-更新时间：2026-09-09 03:44:30
+更新时间：2026-09-10 03:44:44
 
 三哥小说网致力于为读者提供一个无广告无弹窗的在线小说阅读环境，涵盖玄幻、网游、言情、穿越及都市等多种类型的小说资源，支持全本小说在线阅读与最新章节更新。 https://www.wkntmcb.com
 
@@ -22,6 +22,7 @@
 - 暴君偏头痛 https://www.wkntmcb.com/book/48j2e1u/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.wkntmcb.com/book/48j2e1b/
 - 渡鬼 https://www.wkntmcb.com/book/48j2dvm/
+- 痴情女配开始放手了（快穿） https://www.wkntmcb.com/book/48j2dus/
 - 修仙界都为我神魂颠倒 https://www.wkntmcb.com/book/48j2coh/
 - [足球]这只后锋小熊是你家俱乐部掉的吗？ https://www.wkntmcb.com/book/48j2cmj/
 - 穿成年代文奇葩前妻 https://www.wkntmcb.com/book/48j2ch4/
@@ -40,6 +41,7 @@
 - 我有嘉宾 https://www.wkntmcb.com/book/48j22s5/
 - 我比反派先崩坏[快穿] https://www.wkntmcb.com/book/48j22p2/
 - cos温迪后玩到真崩铁了 https://www.wkntmcb.com/book/48j1ub9/
+- 我不是正夫吗？ https://www.wkntmcb.com/book/48j1top/
 - 你，后室管理员 https://www.wkntmcb.com/book/48j1tng/
 - 娇气点怎么啦？［快穿］ https://www.wkntmcb.com/book/48j1tmj/
 - 朕看上的少年是侠女 https://www.wkntmcb.com/book/48j1tla/
@@ -301,7 +303,6 @@
 - 白月光拒绝拯救反派 https://www.wkntmcb.com/book/48iv6n0/
 - 下堂驸马追妻实录 https://www.wkntmcb.com/book/48iv6mu/
 - 我让人生赢家俯首称臣的那些年 https://www.wkntmcb.com/book/48iv6m8/
-- 冷傲上司绑定娇妻系统后 https://www.wkntmcb.com/book/48iv6l1/
 - 坏女人绑定攻略系统后 https://www.wkntmcb.com/book/48iv6jr/
 - 我养龙傲天的那些年 https://www.wkntmcb.com/book/48iv6b3/
 - [HP]我和救世主有个约会 https://www.wkntmcb.com/book/48iv69j/
@@ -416,7 +417,6 @@
 - 善逸拒绝成为咒术师 https://www.wkntmcb.com/book/48iuoi9/
 - [足球]罗蜜第一志愿 https://www.wkntmcb.com/book/48iun4t/
 - 被四皇错看成小动物后 https://www.wkntmcb.com/book/48iumvm/
-- 刀子精手心的人偶崽崽 https://www.wkntmcb.com/book/48iuibs/
 - 战死的阿爹回来了[年代] https://www.wkntmcb.com/book/48iuhnv/
 - [综英美]让我统治哥谭！！！ https://www.wkntmcb.com/book/48iuer6/
 - 魔物堆里的人类幼崽 https://www.wkntmcb.com/book/48iucnl/

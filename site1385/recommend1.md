@@ -1,7 +1,7 @@
 
 # 宁波慈绿农垦小说-全本小说最值得收藏的绿色无弹窗免费小说阅读网
 
-更新时间：2026-09-09 03:36:04
+更新时间：2026-09-10 03:36:15
 
 宁波慈绿农垦小说提供全本网文爱好者一个纯净、安全、高质量的免费小说阅读环境，支持最新章节在线阅读，所有内容均为绿色无弹窗且保证无错字。 https://www.nbcxnk.com
 
@@ -61,8 +61,7 @@
 - 八零法医，带全家致富 https://www.nbcxnk.com/book/2ss0rbj/
 - 漫画取材所引发的修罗场 https://www.nbcxnk.com/book/2ss0rbi/
 - 我们小区穿末世 https://www.nbcxnk.com/book/2ss0rbh/
-- 人，今晚土拨鼠站岗 https://www.nbcxnk.com/book/2ss0rbf/
-- 欲和离？夫君他目不识丁 https://www.nbcxnk.com/book/2ss0rbe/
+- 笨蛋土拨鼠站岗日志 https://www.nbcxnk.com/book/2ss0rbf/
 - 星露谷，但日本战国 https://www.nbcxnk.com/book/2ss0rbc/
 - 国师 https://www.nbcxnk.com/book/2ss0rb5/
 - 恶毒男配只想躺平 https://www.nbcxnk.com/book/2ss0rb4/
@@ -124,7 +123,6 @@
 - 死亡悖论[无限流] https://www.nbcxnk.com/book/2srtb21/
 - [崩铁]请给玩家一个准确的血条！ https://www.nbcxnk.com/book/2srtaql/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.nbcxnk.com/book/2srtaj5/
-- 这个位面归我了！[经营] https://www.nbcxnk.com/book/2srt9og/
 - 妻主风流（女尊） https://www.nbcxnk.com/book/2srt79o/
 - [综英美]和亲友群穿哥谭以后 https://www.nbcxnk.com/book/2srt5uf/
 - 带清冷女主回乡养螃蟹[种田] https://www.nbcxnk.com/book/2srt5la/

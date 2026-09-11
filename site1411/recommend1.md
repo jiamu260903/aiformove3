@@ -1,14 +1,17 @@
 
 # 天天书吧-免费言情小说在线阅读|最新最热网络小说大全
 
-更新时间：2026-09-09 03:45:00
+更新时间：2026-09-10 03:45:14
 
 天天书吧提供最新最热的网络小说资源，包括但不限于免费言情小说。用户可以享受无广告干扰的阅读体验，支持最新章节更新、全文流畅阅读以及保证内容准确无误的小说阅读服务。 https://www.wnebd.com
 
 ## 最新小说
+- 限制文女王[快穿] https://www.wnebd.com/book/1fjbbu6/
+- 恶犬品德 https://www.wnebd.com/book/1fjbbt7/
+- 千禧年，拆迁分了十栋楼！ https://www.wnebd.com/book/1fjbbrb/
+- 直播忏悔室，吃瓜养宠圈 https://www.wnebd.com/book/1fjbbns/
 - 月亮上的大筒木 https://www.wnebd.com/book/1fjagk4/
-- 入梦修罗场，但我脸盲 https://www.wnebd.com/book/1fjafue/
-- 我只梦你一页 https://www.wnebd.com/book/1fj9e36/
+- 和小肥啾的海岛经营游戏 https://www.wnebd.com/book/1fj9are/
 - 天幕今天也在直播我搞基建 https://www.wnebd.com/book/1fj8ais/
 - 双生子反派的端水抑郁妈[九零] https://www.wnebd.com/book/1fj7es2/
 - 带清冷女主回乡养螃蟹[种田] https://www.wnebd.com/book/1fj7erp/
@@ -32,7 +35,7 @@
 - 上个鬼班[无限] https://www.wnebd.com/book/1fj7ean/
 - 康熙宠妃日常 https://www.wnebd.com/book/1fj7ea7/
 - 如何嫁给当朝首辅 https://www.wnebd.com/book/1fj7e94/
-- 人，今晚土拨鼠站岗 https://www.wnebd.com/book/1fj7e5t/
+- 笨蛋土拨鼠站岗日志 https://www.wnebd.com/book/1fj7e5t/
 - SSS级异种都是我前任 https://www.wnebd.com/book/1fj7e57/
 - 如何正确哄睡暴君 https://www.wnebd.com/book/1fj7e51/
 - 韩团绿卡不想忍了 https://www.wnebd.com/book/1fj7e4v/
@@ -86,8 +89,6 @@
 - 漫画取材所引发的修罗场 https://www.wnebd.com/book/1fj7cvc/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.wnebd.com/book/1fj7cv5/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.wnebd.com/book/1fj7cuj/
-- 这个位面归我了！[经营] https://www.wnebd.com/book/1fj7cui/
-- 欲和离？夫君他目不识丁 https://www.wnebd.com/book/1fj7cuf/
 - 六零之成了卷王的妹妹 https://www.wnebd.com/book/1fj7cu9/
 - 直男咒术师的限制级游戏 https://www.wnebd.com/book/1fj7cr5/
 - 巨物致富：回乡开钓场 https://www.wnebd.com/book/1fj7cr3/
@@ -121,7 +122,6 @@
 - 趁她之危 https://www.wnebd.com/book/1fj7cbt/
 - 我只想上京赶考啊[聊斋] https://www.wnebd.com/book/1fj7cad/
 - 全民求生:从小木屋到魔法农场 https://www.wnebd.com/book/1fj7caa/
-- 在民俗惊悚片被诸神庇护 https://www.wnebd.com/book/1fj7c9g/
 - 昭暮 https://www.wnebd.com/book/1fj7c95/
 - 原配夫人 https://www.wnebd.com/book/1fj7c8n/
 - [封神]圣人生欲 https://www.wnebd.com/book/1fj7c89/
@@ -157,7 +157,6 @@
 - 在重生文里考科举 https://www.wnebd.com/book/1fj7bkq/
 - 魔改剧本后我爆火了[娱乐圈] https://www.wnebd.com/book/1fj7bk4/
 - 我有一座安全城 https://www.wnebd.com/book/1fj7bju/
-- 恶犬攻绑定上司的乖狗系统 https://www.wnebd.com/book/1fj7bj5/
 - 世界伏于她刀下[无限] https://www.wnebd.com/book/1fj7bj1/
 - 五条老师与他的封建妻子 https://www.wnebd.com/book/1fj7bhk/
 - 魔法种田，从退队经营农场开始 https://www.wnebd.com/book/1fj7bhd/

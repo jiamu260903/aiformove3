@@ -1,7 +1,7 @@
 
 # 阿舍岛小说 - 章节最新最全免费的小说阅读网
 
-更新时间：2026-09-09 03:25:35
+更新时间：2026-09-10 03:25:48
 
 阿舍岛小说提供数万本经典热门小说免费阅读服务，包括但不限于玄幻、言情、网游、穿越等多种类型。网站内容丰富，章节更新及时全面，致力于为读者打造最佳的免费小说阅读体验。 https://www.ashedao.com
 
@@ -20,6 +20,7 @@
 - [综英美]和亲友群穿哥谭以后 https://www.ashedao.com/book/99d3a54/
 - ［综英美］蝙蝠崽？我不是啊！ https://www.ashedao.com/book/99d3a4u/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.ashedao.com/book/99d39b0/
+- 痴情女配开始放手了（快穿） https://www.ashedao.com/book/99d39as/
 - 暴君偏头痛 https://www.ashedao.com/book/99d396p/
 - 渡鬼 https://www.ashedao.com/book/99d396o/
 - 修仙界都为我神魂颠倒 https://www.ashedao.com/book/99d3806/
@@ -42,6 +43,7 @@
 - cos温迪后玩到真崩铁了 https://www.ashedao.com/book/99d2pki/
 - 你，后室管理员 https://www.ashedao.com/book/99d2p0a/
 - 娇气点怎么啦？［快穿］ https://www.ashedao.com/book/99d2p08/
+- 我不是正夫吗？ https://www.ashedao.com/book/99d2p06/
 - 朕看上的少年是侠女 https://www.ashedao.com/book/99d2otu/
 - [崩铁]这丰饶孽物我当定了！ https://www.ashedao.com/book/99d2o9o/
 - 不义世界都是我马甲[综英美] https://www.ashedao.com/book/99d2o35/
@@ -321,7 +323,6 @@
 - 哥你不能不要我 https://www.ashedao.com/book/99d00la/
 - 银发死鱼眼也要打排球 https://www.ashedao.com/book/99d00jf/
 - 下堂驸马追妻实录 https://www.ashedao.com/book/99d00jc/
-- 冷傲上司绑定娇妻系统后 https://www.ashedao.com/book/99d00es/
 - 白月光拒绝拯救反派 https://www.ashedao.com/book/99d00av/
 - 娇嗔 https://www.ashedao.com/book/99d00a9/
 - 娇婚惯养 https://www.ashedao.com/book/99d009p/
@@ -416,7 +417,6 @@
 - 可怜的天然呆直男[快穿] https://www.ashedao.com/book/99cvm4d/
 - 被四皇错看成小动物后 https://www.ashedao.com/book/99cvibt/
 - [足球]罗蜜第一志愿 https://www.ashedao.com/book/99cvh5s/
-- 刀子精手心的人偶崽崽 https://www.ashedao.com/book/99cvdgt/
 - 战死的阿爹回来了[年代] https://www.ashedao.com/book/99cvc85/
 - [综英美]让我统治哥谭！！！ https://www.ashedao.com/book/99cv8ni/
 - 好巧，你也是妹控？[综崩铁] https://www.ashedao.com/book/99cv7aj/

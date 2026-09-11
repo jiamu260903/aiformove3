@@ -1,7 +1,7 @@
 
 # 新乐文小说 - 最热门免费在线阅读平台 | 玄幻、网游、言情、穿越、都市全本小说
 
-更新时间：2026-09-09 03:34:23
+更新时间：2026-09-10 03:34:36
 
 新乐文小说为您提供一个无广告无弹窗的纯净阅读环境，专注于玄幻、网游、言情、穿越、都市等多种类型的小说在线阅读体验。在这里可以找到最新最热的小说章节更新，享受舒适的阅读时光。 https://www.ksqinlida.com
 
@@ -21,6 +21,7 @@
 - ［综英美］蝙蝠崽？我不是啊！ https://www.ksqinlida.com/book/1svdoij/
 - 清穿女回来后[天幕] https://www.ksqinlida.com/book/1svdoic/
 - 同时扮演贵族学院F4和平民校花 https://www.ksqinlida.com/book/1svdoia/
+- 痴情女配开始放手了（快穿） https://www.ksqinlida.com/book/1svdogl/
 - 暴君偏头痛 https://www.ksqinlida.com/book/1svdogd/
 - [综英美]让我统治哥谭！！！ https://www.ksqinlida.com/book/1svdofn/
 - 青城玩家明明超强却过分谨慎 https://www.ksqinlida.com/book/1svdofl/
@@ -28,6 +29,7 @@
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.ksqinlida.com/book/1svdof3/
 - 渡鬼 https://www.ksqinlida.com/book/1svdodq/
 - 你，后室管理员 https://www.ksqinlida.com/book/1svdocq/
+- 我不是正夫吗？ https://www.ksqinlida.com/book/1svdoc8/
 - 被四皇错看成小动物后 https://www.ksqinlida.com/book/1svdobq/
 - [封神]圣人生欲 https://www.ksqinlida.com/book/1svdobm/
 - 朕看上的少年是侠女 https://www.ksqinlida.com/book/1svdob3/
@@ -333,7 +335,6 @@
 - 破戒[娱乐圈] https://www.ksqinlida.com/book/6365p0/
 - 骑！就要骑在宿敌头上作威作福 https://www.ksqinlida.com/book/6365mi/
 - 太子妃她不干了 https://www.ksqinlida.com/book/6365gn/
-- 冷傲上司绑定娇妻系统后 https://www.ksqinlida.com/book/636587/
 - 邪神祂总被觊觎 https://www.ksqinlida.com/book/63655h/
 - [HP]我和救世主有个约会 https://www.ksqinlida.com/book/63652c/
 - 银发死鱼眼也要打排球 https://www.ksqinlida.com/book/636512/

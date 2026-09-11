@@ -1,12 +1,110 @@
 
 # 瑞文文学网 - 最新穿越小说大全及热门小说排行榜
 
-更新时间：2026-09-09 03:45:55
+更新时间：2026-09-10 03:46:13
 
 瑞文文学网提供多种类型的小说推荐，包括最新的都市、玄幻、武侠等多种类别。无论您是喜欢穿越还是重生故事，或是对其他风格如历史、科幻感兴趣，在这里都能找到心仪的作品！ https://www.wxdx2.com
 
 ## 最新小说
+- 被欺负的老实人[快穿] https://www.wxdx2.com/book/7k6nll8/
+- 某横滨的时间操纵 https://www.wxdx2.com/book/7k6nlc3/
+- 和室友他爸恋爱后 https://www.wxdx2.com/book/7k6nl94/
+- 渣过我的主角全都重生了[快穿] https://www.wxdx2.com/book/7k6nl8a/
+- [足球]葡萄牙世界杯if线 https://www.wxdx2.com/book/7k6nl73/
+- 穿成猫的咒术高专生活 https://www.wxdx2.com/book/7k6nkg4/
+- 每天回到家都看到雄虫在装死 https://www.wxdx2.com/book/7k6nkf2/
+- 伪装路人后成了反派首领 https://www.wxdx2.com/book/7k6njq2/
+- 我于江湖已无敌 https://www.wxdx2.com/book/7k6njmk/
+- 我在无限游戏里假扮NPC[无限流] https://www.wxdx2.com/book/7k6niu9/
+- 暗堕本丸，在线直播 https://www.wxdx2.com/book/7k6nita/
+- 我当县令那些年 https://www.wxdx2.com/book/7k6nidt/
+- 优质攻不做恋爱脑[快穿] https://www.wxdx2.com/book/7k6ni77/
+- 五美元在哥谭活一月 https://www.wxdx2.com/book/7k6nhm4/
+- 我不可能舔一个漂亮捞子 https://www.wxdx2.com/book/7k6nhil/
+- 逝水 https://www.wxdx2.com/book/7k6nh7q/
+- 女装生崽，娃爹宇智波 https://www.wxdx2.com/book/7k6nh56/
+- 重组家庭，但美校搞基！ https://www.wxdx2.com/book/7k6ngio/
+- 老公是松散生命体 https://www.wxdx2.com/book/7k6ngfq/
+- 我有一座城 https://www.wxdx2.com/book/7k6ng2l/
+- 我在虫族扮绿茶吃老虎 https://www.wxdx2.com/book/7k6nfu5/
+- 微臣怜惜公主 https://www.wxdx2.com/book/7k6nfm2/
+- 超A奶龙饲养指南 https://www.wxdx2.com/book/7k6neon/
+- [综英美]是谁家的小鹿 https://www.wxdx2.com/book/7k6nemd/
+- [综英美]flash小游戏，哥谭出品 https://www.wxdx2.com/book/7k6ne8n/
+- 被马甲团宠的我开启地狱模式 https://www.wxdx2.com/book/7k6ndlc/
+- 作为甚尔亡妻的我变成触手了！ https://www.wxdx2.com/book/7k6ndgr/
+- [足球]听克圣的话，成了米兰金童 https://www.wxdx2.com/book/7k6ndan/
+- bl世界的路人不想被掰弯 https://www.wxdx2.com/book/7k6nd40/
+- 我被一个古人教会了爱情 https://www.wxdx2.com/book/7k6nd0l/
+- 反派真少爷搞了个抱错综艺后[穿书] https://www.wxdx2.com/book/7k6ncvi/
+- 这个迫嫁我愿意的 https://www.wxdx2.com/book/7k6ncav/
+- 期春思 https://www.wxdx2.com/book/7k6nc33/
+- 满级后我的外挂到账了[全息] https://www.wxdx2.com/book/7k6nbnh/
+- 恐惧玫瑰 https://www.wxdx2.com/book/7k6nbgn/
+- 七零年代闺蜜团的奋斗 https://www.wxdx2.com/book/7k6naus/
+- 逃荒[快穿] https://www.wxdx2.com/book/7k6nana/
+- 被豪门封建长兄娇养了 https://www.wxdx2.com/book/7k6nam1/
+- 若清晨所见之蓝 https://www.wxdx2.com/book/7k6naj3/
+- 逃生游戏[无限] https://www.wxdx2.com/book/7k6nafd/
+- 修罗场里的无能丈夫 https://www.wxdx2.com/book/7k6n9ko/
+- 五零之我在香江富甲一方 https://www.wxdx2.com/book/7k6n99d/
+- 疯子装什么乖 https://www.wxdx2.com/book/7k6n90s/
+- 全世界都靠我吃瓜 https://www.wxdx2.com/book/7k6n8o9/
+- 万人迷绑定美强惨系统后 https://www.wxdx2.com/book/7k6n8ii/
+- [综英美]怎么就蝙蝠崽文学了 https://www.wxdx2.com/book/7k6n8dp/
+- 当抠搜总裁被人读心[穿书] https://www.wxdx2.com/book/7k6n83u/
+- 我在异世当妖精 https://www.wxdx2.com/book/7k6n80o/
+- 每晚在梦里当暴君 https://www.wxdx2.com/book/7k6n7q1/
+- 被剧透后，五条猫猫当然要提前享受青春呀！ https://www.wxdx2.com/book/7k6n7or/
+- 金手指随机抽取中（快穿） https://www.wxdx2.com/book/7k6n7if/
+- 嗲精人设走偏啦［穿书］ https://www.wxdx2.com/book/7k6n7d2/
+- 好巧，我爸也是狗血文男主 https://www.wxdx2.com/book/7k6n78f/
+- [全职高手]带着魔性美貌穿越有什么用 https://www.wxdx2.com/book/7k6n6ed/
+- 女主请自重[快穿] https://www.wxdx2.com/book/7k6n6ci/
+- 哥你不能不要我 https://www.wxdx2.com/book/7k6n688/
+- 你也没死？ https://www.wxdx2.com/book/7k6n678/
+- 乱世奶嗝受 https://www.wxdx2.com/book/7k6n5s3/
+- 被公用的美人陪读/美校 https://www.wxdx2.com/book/7k6n5rl/
+- 无趣的我，今天也在选秀中断层第一 https://www.wxdx2.com/book/7k6n5oi/
+- 我不想当男太后[穿书] https://www.wxdx2.com/book/7k6n5nd/
+- 战死的阿爹回来了[年代] https://www.wxdx2.com/book/7k6n5mp/
+- [综武侠]嘘！不许剧透 https://www.wxdx2.com/book/7k6n574/
+- 穿成年代文里的村草 https://www.wxdx2.com/book/7k6n56r/
+- [综英美]让我统治哥谭！！！ https://www.wxdx2.com/book/7k6n4v3/
+- 忍界修罗带球跑 https://www.wxdx2.com/book/7k6n4o0/
+- 为了抢走贵妃我造反了 https://www.wxdx2.com/book/7k6n4jl/
+- 魔王模拟器 https://www.wxdx2.com/book/7k6n4es/
+- 大美人怀了enigma上司的崽 https://www.wxdx2.com/book/7k6n4cq/
+- 侯府打工人 https://www.wxdx2.com/book/7k6n42c/
+- 备胎的我重生成万人迷 https://www.wxdx2.com/book/7k6n3pp/
+- 堕魔 https://www.wxdx2.com/book/7k6n3ol/
+- 陛下今天怼人了吗［快穿］ https://www.wxdx2.com/book/7k6n3fk/
+- 我妈是大佬[快穿] https://www.wxdx2.com/book/7k6n3bc/
+- 漂亮作精绑定换装系统后［快穿］ https://www.wxdx2.com/book/7k6n2q8/
+- 来自深渊的救世者 https://www.wxdx2.com/book/7k6n2q0/
+- [综英美]猫女士是一只猫 https://www.wxdx2.com/book/7k6n2ng/
+- 东映排球部 https://www.wxdx2.com/book/7k6n2mq/
+- 当小狗炮灰分手后 https://www.wxdx2.com/book/7k6n2b7/
+- 梵高夫人 https://www.wxdx2.com/book/7k6n298/
+- [足球]啊我玩的原来是盗版游戏啊！？！ https://www.wxdx2.com/book/7k6n205/
+- 在无限世界当晕倒羊 https://www.wxdx2.com/book/7k6n1jf/
+- 西幻抽卡装NPC https://www.wxdx2.com/book/7k6n1g4/
+- 巨星渡灵师 https://www.wxdx2.com/book/7k6n18h/
+- 京秋婚约 https://www.wxdx2.com/book/7k6n120/
+- 歪剧情我是专业的[快穿] https://www.wxdx2.com/book/7k6n0vt/
+- 被俄罗斯小疯子娇养了 https://www.wxdx2.com/book/7k6n0mb/
+- 长公主的六零年代 https://www.wxdx2.com/book/7k6n0as/
+- 黑莲花在线演我 https://www.wxdx2.com/book/7k6n0a2/
+- [清]给太子当姐姐那些年 https://www.wxdx2.com/book/7k6n05t/
+- [综崩铁]谁家小鸟掉冥河了 https://www.wxdx2.com/book/7k6mvtb/
+- 寻真 https://www.wxdx2.com/book/7k6mvjg/
+- 灰墙之下 https://www.wxdx2.com/book/7k6mvcj/
+- 被子同学 https://www.wxdx2.com/book/7k6mv19/
+- 首辅大人怀中娇（重生） https://www.wxdx2.com/book/7k6musn/
+- 我绝不可能是只NPC https://www.wxdx2.com/book/7k6mur5/
+- 妖怪崽崽种田日常 https://www.wxdx2.com/book/7k6mum4/
 - 巨龙宝藏是个小社恐 https://www.wxdx2.com/book/7k6mtps/
+- 七零丰腴美人训夫日常 https://www.wxdx2.com/book/7k6mtnf/
 - 带着刀剑穿越伟大航路后，你当上了五皇 https://www.wxdx2.com/book/7k6mtgu/
 - 攻五是来拆散这个家的［穿书］ https://www.wxdx2.com/book/7k6mteq/
 - 绑定惊吓系统但对象狂涨好感有救吗 https://www.wxdx2.com/book/7k6mte4/
@@ -14,6 +112,8 @@
 - 当然是拿世界冠军啦![短道速滑] https://www.wxdx2.com/book/7k6mss5/
 - 万人迷又被自己巧取豪夺了［快穿］ https://www.wxdx2.com/book/7k6msnm/
 - 恋爱脑他重生了 https://www.wxdx2.com/book/7k6msf2/
+- 不再依赖哥哥算长大吗 https://www.wxdx2.com/book/7k6ms9j/
+- 林照娘的宗室生活手札 https://www.wxdx2.com/book/7k6ms26/
 - 被迫跟死对头结婚后 https://www.wxdx2.com/book/7k6ms0p/
 - 自知之明 https://www.wxdx2.com/book/7k6mrvh/
 - [综武侠]换装之江湖遍地是小号 https://www.wxdx2.com/book/7k6mrr5/
@@ -218,7 +318,6 @@
 - 从伟大航道到黑暗大陆 https://www.wxdx2.com/book/7k6m52u/
 - 太子妃她不干了 https://www.wxdx2.com/book/7k6m513/
 - 正常人成为虫母后沦陷修罗场 https://www.wxdx2.com/book/7k6m4ti/
-- 冷傲上司绑定娇妻系统后 https://www.wxdx2.com/book/7k6m4rt/
 - 我最讨厌打球了！ https://www.wxdx2.com/book/7k6m4rn/
 - 丧尸老婆喂养日记 https://www.wxdx2.com/book/7k6m4pd/
 - 虫族治愈师，但恐虫 https://www.wxdx2.com/book/7k6m4ou/
@@ -262,7 +361,6 @@
 - 少年天师，国外爆红 https://www.wxdx2.com/book/7k6m27q/
 - 举朝上下为我的神仙人设头疼中 https://www.wxdx2.com/book/7k6m27c/
 - 小寡夫还有两幅面孔 https://www.wxdx2.com/book/7k6m259/
-- 刀子精手心的人偶崽崽 https://www.wxdx2.com/book/7k6m23t/
 - 养了一个废太子 https://www.wxdx2.com/book/7k6m230/
 - 贵族学院F4中的第四人 https://www.wxdx2.com/book/7k6m21h/
 - 苦咒琉璃 https://www.wxdx2.com/book/7k6m1u1/
@@ -279,6 +377,7 @@
 - 让我再吃一口 https://www.wxdx2.com/book/7k6m0u5/
 - 直播捏玩具被榜一大哥撅了 https://www.wxdx2.com/book/7k6m0q8/
 - 顶流他姐有神豪系统 https://www.wxdx2.com/book/7k6m0mm/
+- 我不是正夫吗？ https://www.wxdx2.com/book/7k6m0fj/
 - 癫骨 https://www.wxdx2.com/book/7k6m0ct/
 - 好巧，你也是妹控？[综崩铁] https://www.wxdx2.com/book/7k6m0c3/
 - 吐槽役审神者会爆改幕后大boss吗 https://www.wxdx2.com/book/7k6m0ao/
@@ -288,6 +387,7 @@
 - 在重男兄弟间夹缝求生 https://www.wxdx2.com/book/7k6lvpo/
 - 神之子与排球的适配性 https://www.wxdx2.com/book/7k6lvp3/
 - 救命！猫尾巴藏不住了 https://www.wxdx2.com/book/7k6lvgj/
+- 痴情女配开始放手了（快穿） https://www.wxdx2.com/book/7k6lvdi/
 - “纯黑”苏格兰的蜂蜜陷阱 https://www.wxdx2.com/book/7k6lvbh/
 - 无能的丈夫们 https://www.wxdx2.com/book/7k6lvb0/
 - 朕看上的少年是侠女 https://www.wxdx2.com/book/7k6lvak/
@@ -302,6 +402,7 @@
 - 放开那个黑暗哨兵！ https://www.wxdx2.com/book/7k6lu5j/
 - 污染来袭，我反复穿越 https://www.wxdx2.com/book/7k6lrjk/
 - 为她守节第十年 https://www.wxdx2.com/book/7k6lq7l/
+- 那什么的小蜘蛛 https://www.wxdx2.com/book/7k6lgof/
 - [崩铁]请给玩家一个准确的血条！ https://www.wxdx2.com/book/7k6jthc/
 - 清穿女回来后[天幕] https://www.wxdx2.com/book/7k6jth4/
 - [综英美]和亲友群穿哥谭以后 https://www.wxdx2.com/book/7k6jta5/

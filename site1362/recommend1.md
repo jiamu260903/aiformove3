@@ -1,7 +1,7 @@
 
 # 漫话乐文小说-免费小说阅读,无弹窗,最新章节更新快
 
-更新时间：2026-09-09 03:35:34
+更新时间：2026-09-10 03:35:46
 
 漫话乐文小说是广大书友最值得收藏的网络小说阅读网，提供当前最火热的网络小说免费阅读服务，高质量的小说最新章节更新快速，适合所有网络小说爱好者。 https://www.manhua958.com
 
@@ -9,7 +9,6 @@
 - 入梦修罗场，但我脸盲 https://www.manhua958.com/book/17scts2/
 - 烈火焚身[巴黎圣母院] https://www.manhua958.com/book/17sctrs/
 - 康熙宠妃日常 https://www.manhua958.com/book/17sctrq/
-- 欲和离？夫君他目不识丁 https://www.manhua958.com/book/17sctrl/
 - 病美人重生日记 https://www.manhua958.com/book/17sctrk/
 - 我只想上京赶考啊[聊斋] https://www.manhua958.com/book/17sctrh/
 - [原神]魔法使恋爱指南 https://www.manhua958.com/book/17sctrf/
@@ -42,7 +41,7 @@
 - 在中世纪做奴隶 https://www.manhua958.com/book/17sctpl/
 - 魔法种田，从退队经营农场开始 https://www.manhua958.com/book/17sctpk/
 - 欲加之罪 https://www.manhua958.com/book/17sctpi/
-- 人，今晚土拨鼠站岗 https://www.manhua958.com/book/17sctph/
+- 笨蛋土拨鼠站岗日志 https://www.manhua958.com/book/17sctph/
 - 占有欲Daddy是我老公？ https://www.manhua958.com/book/17sctpg/
 - 从1951开始 https://www.manhua958.com/book/17sctpf/
 - 万人嫌从末世回来了 https://www.manhua958.com/book/17sctpa/
@@ -130,7 +129,6 @@
 - 死亡悖论[无限流] https://www.manhua958.com/book/17s8vns/
 - 心动嫌疑人 https://www.manhua958.com/book/17s8vmc/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.manhua958.com/book/17s8uso/
-- 这个位面归我了！[经营] https://www.manhua958.com/book/17s8u8i/
 - 带清冷女主回乡养螃蟹[种田] https://www.manhua958.com/book/17s8u38/
 - 清冷丞相怀了死对头的崽 https://www.manhua958.com/book/17s8rcb/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.manhua958.com/book/17s8qqe/

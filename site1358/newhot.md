@@ -1,7 +1,7 @@
 
 # 哲理书客吧-全本小说免费阅读及txt下载,最新章节无弹窗
 
-更新时间：2026-09-09 03:50:01
+更新时间：2026-09-10 03:50:33
 
 哲理书客吧提供最快更新的热门网络小说最新章节，支持全本小说在线免费阅读与txt电子书打包下载服务。收录多本经典好看的小说，并承诺无广告弹窗清爽阅读体验，是小说爱好者的理想选择。 https://www.zheli518.com
 
@@ -32,6 +32,7 @@
 - 我超凶的！[快穿] https://www.zheli518.com/book/4taqb7e/
 - 我比反派先崩坏[快穿] https://www.zheli518.com/book/4taqad8/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.zheli518.com/book/4taqa6q/
+- 痴情女配开始放手了（快穿） https://www.zheli518.com/book/4taqa59/
 - 渡鬼 https://www.zheli518.com/book/4taqa28/
 - cos温迪后玩到真崩铁了 https://www.zheli518.com/book/4taq614/
 - 我有嘉宾 https://www.zheli518.com/book/4taq5hf/
@@ -57,6 +58,7 @@
 - 昭暮 https://www.zheli518.com/book/4tapelp/
 - 朕看上的少年是侠女 https://www.zheli518.com/book/4tapavd/
 - 你，后室管理员 https://www.zheli518.com/book/4tapam7/
+- 我不是正夫吗？ https://www.zheli518.com/book/4tapal6/
 - 高调装神，猥琐发育 https://www.zheli518.com/book/4tap3nr/
 - [足球]葡萄牙世界杯if线 https://www.zheli518.com/book/4taotm9/
 - 每天回到家都看到雄虫在装死 https://www.zheli518.com/book/4taotho/
@@ -305,7 +307,6 @@
 - 从伟大航道到黑暗大陆 https://www.zheli518.com/book/4tanene/
 - 师妹为何要如此 https://www.zheli518.com/book/4tanem6/
 - [综英美]忠诚的地球迎来了伟大的开拓者 https://www.zheli518.com/book/4tanele/
-- 冷傲上司绑定娇妻系统后 https://www.zheli518.com/book/4tanek3/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.zheli518.com/book/4tanehh/
 - 魔尊他邪得发正 https://www.zheli518.com/book/4tanecs/
 - 瓮中惊春 https://www.zheli518.com/book/4tanebv/
@@ -413,7 +414,6 @@
 - 司寝宫女 https://www.zheli518.com/book/4tan65p/
 - 吐槽役审神者会爆改幕后大boss吗 https://www.zheli518.com/book/4tan41k/
 - 我最讨厌打球了！ https://www.zheli518.com/book/4tan345/
-- 刀子精手心的人偶崽崽 https://www.zheli518.com/book/4tan23b/
 - 求生游戏：当邪神成为生活玩家后 https://www.zheli518.com/book/4tan0o7/
 - 幼崽假少爷选择回归寒门 https://www.zheli518.com/book/4tamst4/
 - [足球]小小鸟堂堂来袭 https://www.zheli518.com/book/4tamr7j/

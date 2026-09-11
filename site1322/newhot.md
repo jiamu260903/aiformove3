@@ -1,7 +1,7 @@
 
 # 文学小说网手机版_好看的文学小说TXT下载,无弹窗手机小说网
 
-更新时间：2026-09-09 03:43:42
+更新时间：2026-09-10 03:43:56
 
 文学小说网收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者最值得收藏的网络小说阅读网,精彩小说尽在文学小说网(无弹窗小说网)。 https://www.wenxue521.com
 
@@ -21,6 +21,7 @@
 - 大佬的漂亮老婆回来带崽了[八零] https://www.wenxue521.com/book/93olsil/
 - [足球]小小鸟堂堂来袭 https://www.wenxue521.com/book/93olsi9/
 - 清穿女回来后[天幕] https://www.wenxue521.com/book/93olsi8/
+- 痴情女配开始放手了（快穿） https://www.wenxue521.com/book/93olsht/
 - 躲避原书剧情五年后 https://www.wenxue521.com/book/93olshp/
 - 渡鬼 https://www.wenxue521.com/book/93olshk/
 - 青城玩家明明超强却过分谨慎 https://www.wenxue521.com/book/93olsg6/
@@ -29,6 +30,7 @@
 - 暴君偏头痛 https://www.wenxue521.com/book/93olsev/
 - 你，后室管理员 https://www.wenxue521.com/book/93olscq/
 - 被四皇错看成小动物后 https://www.wenxue521.com/book/93olsci/
+- 我不是正夫吗？ https://www.wenxue521.com/book/93olsc2/
 - [封神]圣人生欲 https://www.wenxue521.com/book/93olsba/
 - 朕看上的少年是侠女 https://www.wenxue521.com/book/93olsap/
 - 高调装神，猥琐发育 https://www.wenxue521.com/book/93olsaf/
@@ -328,7 +330,6 @@
 - 师妹为何要如此 https://www.wenxue521.com/book/t5n0eu/
 - 骑！就要骑在宿敌头上作威作福 https://www.wenxue521.com/book/t5n03o/
 - 女帝起家前录 https://www.wenxue521.com/book/t5n03m/
-- 冷傲上司绑定娇妻系统后 https://www.wenxue521.com/book/t5n02n/
 - 被离婚后嫁给了年代文大佬[穿书] https://www.wenxue521.com/book/t5mvuo/
 - 女beta的星际悠闲生活 https://www.wenxue521.com/book/t5mvun/
 - 白月光拒绝拯救反派 https://www.wenxue521.com/book/t5mvrg/

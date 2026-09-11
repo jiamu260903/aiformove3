@@ -1,11 +1,12 @@
 
 # 燃文故事小说网 - 无弹窗全本小说免费阅读
 
-更新时间：2026-09-09 03:30:35
+更新时间：2026-09-10 03:30:54
 
 燃文故事小说网提供无弹窗干扰的小说阅读体验，支持全本小说在线免费阅读。 https://www.gushi687.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.gushi687.com/book/63qvddg/
 - 恐游作精女配求生指南 https://www.gushi687.com/book/63qvddd/
 - [洪荒]成为太清妹妹后 https://www.gushi687.com/book/63qvdd9/
 - 魔法种田，从退队经营农场开始 https://www.gushi687.com/book/63qvdd7/
@@ -39,7 +40,6 @@
 - 在年代文里跑运输 https://www.gushi687.com/book/63qvdb0/
 - [全职高手]治疗什么的不干了！ https://www.gushi687.com/book/63qvdat/
 - 星露谷，但日本战国 https://www.gushi687.com/book/63qvdar/
-- 欲和离？夫君他目不识丁 https://www.gushi687.com/book/63qvdap/
 - 穿咒术，但杀猴现场 https://www.gushi687.com/book/63qvdan/
 - 我只想上京赶考啊[聊斋] https://www.gushi687.com/book/63qvdam/
 - 双生子反派的端水抑郁妈[九零] https://www.gushi687.com/book/63qvdaj/
@@ -50,7 +50,7 @@
 - 谁说踢球就不能成为名侦探[足球] https://www.gushi687.com/book/63qvda9/
 - 欲加之罪 https://www.gushi687.com/book/63qvda8/
 - 病美人重生日记 https://www.gushi687.com/book/63qvda7/
-- 人，今晚土拨鼠站岗 https://www.gushi687.com/book/63qvda6/
+- 笨蛋土拨鼠站岗日志 https://www.gushi687.com/book/63qvda6/
 - 全民求生，但剑三 https://www.gushi687.com/book/63qvda2/
 - 前妻她肯定会后悔 https://www.gushi687.com/book/63qvda1/
 - 失忆后和死对头有了崽 https://www.gushi687.com/book/63qvd9u/
@@ -80,17 +80,16 @@
 - 从维多利亚时代开始 https://www.gushi687.com/book/63qu7il/
 - 昭暮 https://www.gushi687.com/book/63qu5ci/
 - 十九世纪贵族厨房（美食） https://www.gushi687.com/book/63qu1lv/
-- 星际团宠小人鱼 https://www.gushi687.com/book/63qu1ll/
 - 原配夫人 https://www.gushi687.com/book/63qu1ip/
 - 始乱终弃清冷首辅后 https://www.gushi687.com/book/63qu1hn/
 - 高调装神，猥琐发育 https://www.gushi687.com/book/63qtqic/
 - 完蛋！被恨孕男包围了！ https://www.gushi687.com/book/63qtqdm/
+- 我只梦你一页 https://www.gushi687.com/book/63qtqav/
 - 食明 https://www.gushi687.com/book/63qtoe2/
 - 诡话第一boss https://www.gushi687.com/book/63qtl3d/
 - 老实人妻，但顶级魅魔 https://www.gushi687.com/book/63qtid1/
 - 专业女配的自我修养（快穿） https://www.gushi687.com/book/63qti8v/
 - [足球]我的游戏存档成真了？！ https://www.gushi687.com/book/63qtdop/
-- 摄政王家的咸鱼夫郎 https://www.gushi687.com/book/63qta4s/
 - 我与龙傲天寿命共享 https://www.gushi687.com/book/63qt9ts/
 - 让你们无剧本可走（快穿） https://www.gushi687.com/book/63qt9ag/
 - 如何正确哄睡暴君 https://www.gushi687.com/book/63qt77t/
@@ -107,6 +106,7 @@
 - 同时扮演贵族学院F4和平民校花 https://www.gushi687.com/book/63qshh4/
 - 路人攻了主角攻［快穿］ https://www.gushi687.com/book/63qsgd6/
 - 开局绑定郭奉孝，谋定三国风云 https://www.gushi687.com/book/63qsf8m/
+- 月亮上的大筒木 https://www.gushi687.com/book/63qsen5/
 - 苏娘子汴京摆摊日常（美食） https://www.gushi687.com/book/63qsck5/
 - 漂亮女配是万人迷［快穿］ https://www.gushi687.com/book/63qschs/
 - 我有一座地下城 https://www.gushi687.com/book/63qsbrp/
@@ -129,7 +129,6 @@
 - 妻主风流（女尊） https://www.gushi687.com/book/63qrgop/
 - 死亡悖论[无限流] https://www.gushi687.com/book/63qrg72/
 - 心动嫌疑人 https://www.gushi687.com/book/63qreb7/
-- 这个位面归我了！[经营] https://www.gushi687.com/book/63qrdbi/
 - 带清冷女主回乡养螃蟹[种田] https://www.gushi687.com/book/63qrcfp/
 - 村霸非要入赘受气包 https://www.gushi687.com/book/63qrb33/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.gushi687.com/book/63qr942/
@@ -151,7 +150,6 @@
 - 我是唯一地上神国 https://www.gushi687.com/book/63qpqir/
 - 我有一座安全城 https://www.gushi687.com/book/63qpqi3/
 - 直男咒术师的限制级游戏 https://www.gushi687.com/book/63qpqgi/
-- 仙门透明人被迫万人迷 https://www.gushi687.com/book/63qpqa5/
 - 天幕今天也在直播我搞基建 https://www.gushi687.com/book/63qpq5i/
 - 海岛求生：生活玩家种田囤货 https://www.gushi687.com/book/63qpq56/
 - 五十年代港城日常 https://www.gushi687.com/book/63qppp5/

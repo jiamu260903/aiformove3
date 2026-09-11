@@ -1,7 +1,7 @@
 
 # 看剧文学网 - 书友最值得收藏的小说阅读网
 
-更新时间：2026-09-09 03:32:46
+更新时间：2026-09-10 03:33:03
 
 看剧文学网，精选最好看的小说推荐给大家在线阅读。这里有网络小说大全，包括最火、最热门的小说最新章节，是书友最值得收藏的免费小说阅读网。 https://www.kanju788.com
 
@@ -32,6 +32,7 @@
 - 我超凶的！[快穿] https://www.kanju788.com/book/to4j5j/
 - 我比反派先崩坏[快穿] https://www.kanju788.com/book/to4id5/
 - 渡鬼 https://www.kanju788.com/book/to4id4/
+- 痴情女配开始放手了（快穿） https://www.kanju788.com/book/to4icu/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.kanju788.com/book/to4ico/
 - cos温迪后玩到真崩铁了 https://www.kanju788.com/book/to4du3/
 - 我有嘉宾 https://www.kanju788.com/book/to4dfb/
@@ -55,6 +56,7 @@
 - 侦探立于百万生命之上 https://www.kanju788.com/book/to3od1/
 - 特殊魅力值，已到账 https://www.kanju788.com/book/to3nmb/
 - 昭暮 https://www.kanju788.com/book/to3ms7/
+- 我不是正夫吗？ https://www.kanju788.com/book/to3jir/
 - 朕看上的少年是侠女 https://www.kanju788.com/book/to3jfv/
 - 你，后室管理员 https://www.kanju788.com/book/to3jeb/
 - 高调装神，猥琐发育 https://www.kanju788.com/book/to3ckd/
@@ -341,7 +343,6 @@
 - [足球]德意志小比也能拿冠军吗 https://www.kanju788.com/book/to1k05/
 - 女帝起家前录 https://www.kanju788.com/book/to1k00/
 - 师妹为何要如此 https://www.kanju788.com/book/to1jvq/
-- 冷傲上司绑定娇妻系统后 https://www.kanju788.com/book/to1ju5/
 - 在横滨横行霸道的那些年 https://www.kanju788.com/book/to1ju3/
 - 豪门狗血文里的天才后妈 https://www.kanju788.com/book/to1jtc/
 - 败类 https://www.kanju788.com/book/to1jl4/
@@ -414,7 +415,6 @@
 - 吐槽役审神者会爆改幕后大boss吗 https://www.kanju788.com/book/to1c67/
 - 我最讨厌打球了！ https://www.kanju788.com/book/to1aih/
 - 求生游戏：当邪神成为生活玩家后 https://www.kanju788.com/book/to18jh/
-- 刀子精手心的人偶崽崽 https://www.kanju788.com/book/to18f3/
 - 幼崽假少爷选择回归寒门 https://www.kanju788.com/book/to13lj/
 - [足球]小小鸟堂堂来袭 https://www.kanju788.com/book/to12el/
 - 青城玩家明明超强却过分谨慎 https://www.kanju788.com/book/to114t/

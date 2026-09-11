@@ -1,7 +1,7 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-09 03:27:59
+更新时间：2026-09-10 03:28:15
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。 https://www.cq082.com
 
@@ -20,6 +20,7 @@
 - 穿为龙傲天发妻后 https://www.cq082.com/book/1sdfh5n/
 - 欲加之罪 https://www.cq082.com/book/1sdfh55/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.cq082.com/book/1sdfgag/
+- 痴情女配开始放手了（快穿） https://www.cq082.com/book/1sdfgaf/
 - 渡鬼 https://www.cq082.com/book/1sdfg94/
 - 暴君偏头痛 https://www.cq082.com/book/1sdfg7t/
 - 修仙界都为我神魂颠倒 https://www.cq082.com/book/1sdff05/
@@ -43,6 +44,7 @@
 - 你，后室管理员 https://www.cq082.com/book/1sdf02p/
 - 朕看上的少年是侠女 https://www.cq082.com/book/1sdf01j/
 - 娇气点怎么啦？［快穿］ https://www.cq082.com/book/1sdevur/
+- 我不是正夫吗？ https://www.cq082.com/book/1sdevum/
 - [崩铁]这丰饶孽物我当定了！ https://www.cq082.com/book/1sdev9t/
 - 不义世界都是我马甲[综英美] https://www.cq082.com/book/1sdev3j/
 - [综武侠]风流 https://www.cq082.com/book/1sdet6h/
@@ -329,7 +331,6 @@
 - 微臣怜惜公主 https://www.cq082.com/book/1sdc6r4/
 - 下堂驸马追妻实录 https://www.cq082.com/book/1sdc6p7/
 - 当烫男人走错了片场 https://www.cq082.com/book/1sdc6n4/
-- 冷傲上司绑定娇妻系统后 https://www.cq082.com/book/1sdc6mi/
 - [全职高手]问就是没钱 https://www.cq082.com/book/1sdc6lo/
 - 白月光拒绝拯救反派 https://www.cq082.com/book/1sdc6i1/
 - 汉武帝戾太子什么含金量 https://www.cq082.com/book/1sdc6hf/
@@ -416,7 +417,6 @@
 - 善逸拒绝成为咒术师 https://www.cq082.com/book/1sdbspf/
 - [足球]罗蜜第一志愿 https://www.cq082.com/book/1sdbpej/
 - 被四皇错看成小动物后 https://www.cq082.com/book/1sdbodm/
-- 刀子精手心的人偶崽崽 https://www.cq082.com/book/1sdbks8/
 - 战死的阿爹回来了[年代] https://www.cq082.com/book/1sdbk81/
 - [综英美]让我统治哥谭！！！ https://www.cq082.com/book/1sdbfm2/
 - 欢迎来到重生点 https://www.cq082.com/book/1sdbeus/

@@ -1,7 +1,7 @@
 
 # 创意小说网 - 最热门的小说在线阅读
 
-更新时间：2026-09-09 03:27:09
+更新时间：2026-09-10 03:27:24
 
 创意小说网是一个广大书友喜欢的小说网，免费为您提供热门小说无弹窗在线阅读和txt下载。 https://www.chuangyi1687.com
 
@@ -21,6 +21,7 @@
 - 全世界名为爱的恶意 https://www.chuangyi1687.com/book/1hvgp0o/
 - [崩铁]请给玩家一个准确的血条！ https://www.chuangyi1687.com/book/1hvgp0j/
 - ［综英美］蝙蝠崽？我不是啊！ https://www.chuangyi1687.com/book/1hvgp0d/
+- 痴情女配开始放手了（快穿） https://www.chuangyi1687.com/book/1hvgp03/
 - 渡鬼 https://www.chuangyi1687.com/book/1hvgoun/
 - 躲避原书剧情五年后 https://www.chuangyi1687.com/book/1hvgotm/
 - [综英美]让我统治哥谭！！！ https://www.chuangyi1687.com/book/1hvgota/
@@ -28,6 +29,7 @@
 - 暴君偏头痛 https://www.chuangyi1687.com/book/1hvgorj/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.chuangyi1687.com/book/1hvgor5/
 - 被四皇错看成小动物后 https://www.chuangyi1687.com/book/1hvgoqo/
+- 我不是正夫吗？ https://www.chuangyi1687.com/book/1hvgoqk/
 - 朕看上的少年是侠女 https://www.chuangyi1687.com/book/1hvgoqc/
 - [封神]圣人生欲 https://www.chuangyi1687.com/book/1hvgoq7/
 - 你，后室管理员 https://www.chuangyi1687.com/book/1hvgop8/
@@ -341,7 +343,6 @@
 - [HP]我和救世主有个约会 https://www.chuangyi1687.com/book/5002h6/
 - 养了一个废太子 https://www.chuangyi1687.com/book/5002gt/
 - 骑！就要骑在宿敌头上作威作福 https://www.chuangyi1687.com/book/5002gm/
-- 冷傲上司绑定娇妻系统后 https://www.chuangyi1687.com/book/5002ds/
 - 樋口干部不干了 https://www.chuangyi1687.com/book/50027e/
 - [全职高手]问就是没钱 https://www.chuangyi1687.com/book/5001su/
 - 摄政长公主穿成炮灰女配[七零] https://www.chuangyi1687.com/book/5001q7/

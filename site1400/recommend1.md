@@ -1,12 +1,11 @@
 
 # 都来读小说网 - 免费电子书阅读平台
 
-更新时间：2026-09-09 03:41:48
+更新时间：2026-09-10 03:41:58
 
 都来读小说网提供快速更新的海量免费小说资源，主要以TXT格式为主，致力于为读者带来优质的阅读体验。 https://www.swazs.com
 
 ## 最新小说
-- 入梦修罗场，但我脸盲 https://www.swazs.com/book/1u7kuie/
 - 我们小区穿末世 https://www.swazs.com/book/1u7kiv2/
 - 夫人每天都在伪装 https://www.swazs.com/book/1u7kiv1/
 - 在年代文里跑运输 https://www.swazs.com/book/1u7kiuv/
@@ -27,7 +26,6 @@
 - [原神]魔法使恋爱指南 https://www.swazs.com/book/1u7kitq/
 - 末世八年春，游戏降临 https://www.swazs.com/book/1u7kitp/
 - 暗恋的价格是三万块 https://www.swazs.com/book/1u7kito/
-- 欲和离？夫君他目不识丁 https://www.swazs.com/book/1u7kitn/
 - ［综英美］蝙蝠崽？我不是啊！ https://www.swazs.com/book/1u7kitl/
 - 仙尊心尖宠，但被魔尊抢了 https://www.swazs.com/book/1u7kitj/
 - 漫画取材所引发的修罗场 https://www.swazs.com/book/1u7kiti/
@@ -57,7 +55,7 @@
 - 好心的俄罗斯人 https://www.swazs.com/book/1u7kira/
 - 禁止继承限制级雌君 https://www.swazs.com/book/1u7kir7/
 - 我只想上京赶考啊[聊斋] https://www.swazs.com/book/1u7kir6/
-- 人，今晚土拨鼠站岗 https://www.swazs.com/book/1u7kiqv/
+- 笨蛋土拨鼠站岗日志 https://www.swazs.com/book/1u7kiqv/
 - 魔咒请说普通话[西幻] https://www.swazs.com/book/1u7kiqt/
 - 全民求生，但剑三 https://www.swazs.com/book/1u7kiqr/
 - [全职高手]治疗什么的不干了！ https://www.swazs.com/book/1u7kiql/
@@ -68,9 +66,11 @@
 - 穿为龙傲天发妻后 https://www.swazs.com/book/1u7kiq3/
 - 起初，我只是想找个冤大头 https://www.swazs.com/book/1u7kilo/
 - 天幕今天也在直播我搞基建 https://www.swazs.com/book/1u7kila/
+- 限制文女王[快穿] https://www.swazs.com/book/1u7kcrc/
 - 上个鬼班[无限] https://www.swazs.com/book/1u7kb9e/
 - [足球]足坛人生模拟器 https://www.swazs.com/book/1u7kapv/
 - 让暴君Alpha怀崽后 https://www.swazs.com/book/1u7k5ei/
+- 直播忏悔室，吃瓜养宠圈 https://www.swazs.com/book/1u7k516/
 - 在卷王和废物之间选择做吉祥物 https://www.swazs.com/book/1u7k0j5/
 - 从维多利亚时代开始 https://www.swazs.com/book/1u7jtiv/
 - 昭暮 https://www.swazs.com/book/1u7jp19/
@@ -112,7 +112,7 @@
 - 五条老师与他的封建妻子 https://www.swazs.com/book/1u7hs37/
 - 我187了，你敢见我吗？ https://www.swazs.com/book/1u7hro1/
 - 和姐姐的前女友欢愉后 https://www.swazs.com/book/1u7hmga/
-- 我只梦你一页 https://www.swazs.com/book/1u7hlv7/
+- 和小肥啾的海岛经营游戏 https://www.swazs.com/book/1u7hg67/
 - 等我吃腻了再倒闭可以吗 https://www.swazs.com/book/1u7heun/
 - 大唐守军家属 https://www.swazs.com/book/1u7hece/
 - 朕也要被强制吗？ https://www.swazs.com/book/1u7hdtp/
@@ -125,14 +125,12 @@
 - 穿咒术，但杀猴现场 https://www.swazs.com/book/1u7h6ss/
 - 带清冷女主回乡养螃蟹[种田] https://www.swazs.com/book/1u7h53s/
 - 妻主风流（女尊） https://www.swazs.com/book/1u7h51j/
-- 这个位面归我了！[经营] https://www.swazs.com/book/1u7h4na/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.swazs.com/book/1u7h3j3/
 - 清冷丞相怀了死对头的崽 https://www.swazs.com/book/1u7h3cu/
 - 村霸非要入赘受气包 https://www.swazs.com/book/1u7h020/
 - 假意逢承 https://www.swazs.com/book/1u7gvd6/
 - 被糟蹋的老实人决定反击 https://www.swazs.com/book/1u7gv4g/
 - 和山神搭伙开农场的日子 https://www.swazs.com/book/1u7guqk/
-- 恶犬攻绑定上司的乖狗系统 https://www.swazs.com/book/1u7go2k/
 - 娘娘扶摇直上 https://www.swazs.com/book/1u7gme3/
 - 权宋一只统 https://www.swazs.com/book/1u7gm24/
 - 爱好和平但狂拆机甲 https://www.swazs.com/book/1u7ggii/
@@ -141,6 +139,7 @@
 - 海岛求生：生活玩家种田囤货 https://www.swazs.com/book/1u7fia2/
 - 清澈女大的六零年代 https://www.swazs.com/book/1u7fi1e/
 - 完蛋！被恨孕男包围了！ https://www.swazs.com/book/1u7fhon/
+- 千禧年，拆迁分了十栋楼！ https://www.swazs.com/book/1u7fhib/
 - 始乱终弃清冷首辅后 https://www.swazs.com/book/1u7fhho/
 - 趁她之危 https://www.swazs.com/book/1u7fhf1/
 - 原配夫人 https://www.swazs.com/book/1u7fhel/
@@ -148,12 +147,12 @@
 - [娱乐圈]过分美丽的她 https://www.swazs.com/book/1u7fh4o/
 - 六零之成了卷王的妹妹 https://www.swazs.com/book/1u7fguu/
 - 95美国贵族高中模拟 https://www.swazs.com/book/1u7fgsk/
-- 在民俗惊悚片被诸神庇护 https://www.swazs.com/book/1u7fgme/
 - 五十年代港城日常 https://www.swazs.com/book/1u7fgm8/
 - 日化人生[科研] https://www.swazs.com/book/1u7fgm3/
 - 全民求生:从小木屋到魔法农场 https://www.swazs.com/book/1u7fgkr/
 - [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.swazs.com/book/1u7fgb4/
 - 卷王后妈，八零养娃 https://www.swazs.com/book/1u7fg9v/
+- 恶犬品德 https://www.swazs.com/book/1u7fg81/
 - [封神]圣人生欲 https://www.swazs.com/book/1u7fg6j/
 - 十九世纪贵族厨房（美食） https://www.swazs.com/book/1u7fg5k/
 - 巨物致富：回乡开钓场 https://www.swazs.com/book/1u7ffvg/

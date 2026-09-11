@@ -1,12 +1,11 @@
 
 # 泡泡中文小说-无弹窗书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-09 03:46:49
+更新时间：2026-09-10 03:47:11
 
 泡泡中文小说是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。 https://www.xiaoshuo288.com
 
 ## 最新小说
-- 入梦修罗场，但我脸盲 https://www.xiaoshuo288.com/book/dm3vdf/
 - 在中世纪做奴隶 https://www.xiaoshuo288.com/book/dm3vdb/
 - ［西幻］RPG就不要谈恋爱了吧！ https://www.xiaoshuo288.com/book/dm3vda/
 - 双生子反派的端水抑郁妈[九零] https://www.xiaoshuo288.com/book/dm3vd6/
@@ -15,10 +14,9 @@
 - 炮灰的海外亲戚回国啦！ https://www.xiaoshuo288.com/book/dm3vct/
 - 国运求生：我的金手指是生命树 https://www.xiaoshuo288.com/book/dm3vcr/
 - SSS级异种都是我前任 https://www.xiaoshuo288.com/book/dm3vck/
-- 欲和离？夫君他目不识丁 https://www.xiaoshuo288.com/book/dm3vcj/
 - 清穿女回来后[天幕] https://www.xiaoshuo288.com/book/dm3vch/
 - 全世界名为爱的恶意 https://www.xiaoshuo288.com/book/dm3vcg/
-- 人，今晚土拨鼠站岗 https://www.xiaoshuo288.com/book/dm3vcf/
+- 笨蛋土拨鼠站岗日志 https://www.xiaoshuo288.com/book/dm3vcf/
 - 恐游里的邻居们[万人迷] https://www.xiaoshuo288.com/book/dm3vcb/
 - [足球]雏鸟 https://www.xiaoshuo288.com/book/dm3vc7/
 - 等我吃腻了再倒闭可以吗 https://www.xiaoshuo288.com/book/dm3vc5/
@@ -74,18 +72,20 @@
 - 起初，我只是想找个冤大头 https://www.xiaoshuo288.com/book/dm3l70/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.xiaoshuo288.com/book/dm3j42/
 - 上个鬼班[无限] https://www.xiaoshuo288.com/book/dm3ei4/
+- 限制文女王[快穿] https://www.xiaoshuo288.com/book/dm38s1/
 - 九零重组小家庭 https://www.xiaoshuo288.com/book/dm37lf/
 - 让暴君Alpha怀崽后 https://www.xiaoshuo288.com/book/dm37aq/
 - [足球]足坛人生模拟器 https://www.xiaoshuo288.com/book/dm36ra/
+- 直播忏悔室，吃瓜养宠圈 https://www.xiaoshuo288.com/book/dm30n5/
 - 在卷王和废物之间选择做吉祥物 https://www.xiaoshuo288.com/book/dm2sgs/
 - 从维多利亚时代开始 https://www.xiaoshuo288.com/book/dm2p9s/
 - 昭暮 https://www.xiaoshuo288.com/book/dm2nph/
 - 始乱终弃清冷首辅后 https://www.xiaoshuo288.com/book/dm2kg8/
 - 十九世纪贵族厨房（美食） https://www.xiaoshuo288.com/book/dm2ken/
 - 原配夫人 https://www.xiaoshuo288.com/book/dm2kbs/
+- 恶犬品德 https://www.xiaoshuo288.com/book/dm2kan/
 - 完蛋！被恨孕男包围了！ https://www.xiaoshuo288.com/book/dm2dba/
 - 高调装神，猥琐发育 https://www.xiaoshuo288.com/book/dm2dan/
-- 我只梦你一页 https://www.xiaoshuo288.com/book/dm2d71/
 - 食明 https://www.xiaoshuo288.com/book/dm2af1/
 - 诡话第一boss https://www.xiaoshuo288.com/book/dm278n/
 - 老实人妻，但顶级魅魔 https://www.xiaoshuo288.com/book/dm26de/
@@ -99,7 +99,6 @@
 - 我骗家里的钱养你啊 https://www.xiaoshuo288.com/book/dm1i3h/
 - 死对头又在挑衅我 https://www.xiaoshuo288.com/book/dm1anu/
 - 沈助理又在隐藏他的超能力 https://www.xiaoshuo288.com/book/dm1a9c/
-- 在民俗惊悚片被诸神庇护 https://www.xiaoshuo288.com/book/dm1a5f/
 - 被天使之王骗婚后[诡秘之主] https://www.xiaoshuo288.com/book/dm17ub/
 - 从童星开始杀穿港娱 https://www.xiaoshuo288.com/book/dm14bo/
 - 咦？我爸爸复活啦 https://www.xiaoshuo288.com/book/dm144h/
@@ -125,12 +124,12 @@
 - 朕也要被强制吗？ https://www.xiaoshuo288.com/book/dm080n/
 - 在重生文里考科举 https://www.xiaoshuo288.com/book/dm07of/
 - 大唐守军家属 https://www.xiaoshuo288.com/book/dm07mp/
+- 和小肥啾的海岛经营游戏 https://www.xiaoshuo288.com/book/dm06bs/
 - [足球]小小鸟堂堂来袭 https://www.xiaoshuo288.com/book/dm03uc/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.xiaoshuo288.com/book/dm02lg/
 - 死亡悖论[无限流] https://www.xiaoshuo288.com/book/dm01ko/
 - 心动嫌疑人 https://www.xiaoshuo288.com/book/dm01h4/
 - 妻主风流（女尊） https://www.xiaoshuo288.com/book/dm00vq/
-- 这个位面归我了！[经营] https://www.xiaoshuo288.com/book/dlvv5i/
 - 带清冷女主回乡养螃蟹[种田] https://www.xiaoshuo288.com/book/dlvuh1/
 - 趁她之危 https://www.xiaoshuo288.com/book/dlvu8e/
 - [崩铁]请给玩家一个准确的血条！ https://www.xiaoshuo288.com/book/dlvrvl/
@@ -140,7 +139,6 @@
 - 被糟蹋的老实人决定反击 https://www.xiaoshuo288.com/book/dlvoi7/
 - 和山神搭伙开农场的日子 https://www.xiaoshuo288.com/book/dlvnsc/
 - 假意逢承 https://www.xiaoshuo288.com/book/dlvle3/
-- 恶犬攻绑定上司的乖狗系统 https://www.xiaoshuo288.com/book/dlvik3/
 - 权宋一只统 https://www.xiaoshuo288.com/book/dlvgbh/
 - 爱好和平但狂拆机甲 https://www.xiaoshuo288.com/book/dlva49/
 - 成为养成系练习生后 https://www.xiaoshuo288.com/book/dlue8s/
@@ -153,6 +151,7 @@
 - 95美国贵族高中模拟 https://www.xiaoshuo288.com/book/dlucmf/
 - 直男咒术师的限制级游戏 https://www.xiaoshuo288.com/book/dlucec/
 - 五十年代港城日常 https://www.xiaoshuo288.com/book/dlucdh/
+- 千禧年，拆迁分了十栋楼！ https://www.xiaoshuo288.com/book/dlubvh/
 - 巨物致富：回乡开钓场 https://www.xiaoshuo288.com/book/dlubuf/
 - 清澈女大的六零年代 https://www.xiaoshuo288.com/book/dlubqs/
 - 我是唯一地上神国 https://www.xiaoshuo288.com/book/dlubor/

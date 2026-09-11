@@ -1,17 +1,19 @@
 
 # 瑞文文学网 - 最新穿越小说大全及热门小说排行榜
 
-更新时间：2026-09-09 03:45:55
+更新时间：2026-09-10 03:46:13
 
 瑞文文学网提供多种类型的小说推荐，包括最新的都市、玄幻、武侠等多种类别。无论您是喜欢穿越还是重生故事，或是对其他风格如历史、科幻感兴趣，在这里都能找到心仪的作品！ https://www.wxdx2.com
 
 ## 最新小说
+- 千禧年，拆迁分了十栋楼！ https://www.wxdx2.com/book/7k6nqc6/
+- 限制文女王[快穿] https://www.wxdx2.com/book/7k6nqaj/
+- 恶犬品德 https://www.wxdx2.com/book/7k6nqaa/
+- 直播忏悔室，吃瓜养宠圈 https://www.wxdx2.com/book/7k6nq8g/
 - 月亮上的大筒木 https://www.wxdx2.com/book/7k6mtkt/
-- 入梦修罗场，但我脸盲 https://www.wxdx2.com/book/7k6ms3t/
-- 我只梦你一页 https://www.wxdx2.com/book/7k6lrm0/
+- 和小肥啾的海岛经营游戏 https://www.wxdx2.com/book/7k6loq0/
 - 天幕今天也在直播我搞基建 https://www.wxdx2.com/book/7k6knlm/
 - 热恋过期需重追 https://www.wxdx2.com/book/7k6jtmg/
-- 这个位面归我了！[经营] https://www.wxdx2.com/book/7k6jtm3/
 - 二次分化后他怀了死对头的崽 https://www.wxdx2.com/book/7k6jtl5/
 - 被糟蹋的老实人决定反击 https://www.wxdx2.com/book/7k6jtkp/
 - 五十年代港城日常 https://www.wxdx2.com/book/7k6jtj5/
@@ -29,12 +31,11 @@
 - 十九世纪贵族厨房（美食） https://www.wxdx2.com/book/7k6jteq/
 - 如何正确哄睡暴君 https://www.wxdx2.com/book/7k6jtel/
 - 始乱终弃清冷首辅后 https://www.wxdx2.com/book/7k6jtec/
-- 人，今晚土拨鼠站岗 https://www.wxdx2.com/book/7k6jtea/
+- 笨蛋土拨鼠站岗日志 https://www.wxdx2.com/book/7k6jtea/
 - 正是冬雪沸腾时 https://www.wxdx2.com/book/7k6jte2/
 - 卷王后妈，八零养娃 https://www.wxdx2.com/book/7k6jtdb/
 - 爱情的肯定句 https://www.wxdx2.com/book/7k6jtc8/
 - 开局绑定郭奉孝，谋定三国风云 https://www.wxdx2.com/book/7k6jtbq/
-- 恶犬攻绑定上司的乖狗系统 https://www.wxdx2.com/book/7k6jtat/
 - [综英美]和亲友群穿哥谭以后 https://www.wxdx2.com/book/7k6jta5/
 - 穿咒术，但杀猴现场 https://www.wxdx2.com/book/7k6jta2/
 - [原神]魔法使恋爱指南 https://www.wxdx2.com/book/7k6jt9k/
@@ -88,7 +89,6 @@
 - 谁说踢球就不能成为名侦探[足球] https://www.wxdx2.com/book/7k6jrum/
 - 让暴君Alpha怀崽后 https://www.wxdx2.com/book/7k6jrti/
 - 病美人重生日记 https://www.wxdx2.com/book/7k6jrt2/
-- 欲和离？夫君他目不识丁 https://www.wxdx2.com/book/7k6jrs3/
 - 95美国贵族高中模拟 https://www.wxdx2.com/book/7k6jrre/
 - 老公对不起 https://www.wxdx2.com/book/7k6jrqr/
 - 让你们无剧本可走（快穿） https://www.wxdx2.com/book/7k6jrpm/
@@ -104,7 +104,6 @@
 - 恐游里的邻居们[万人迷] https://www.wxdx2.com/book/7k6jrk0/
 - 烈火焚身[巴黎圣母院] https://www.wxdx2.com/book/7k6jrjl/
 - 完蛋！被恨孕男包围了！ https://www.wxdx2.com/book/7k6jrin/
-- 在民俗惊悚片被诸神庇护 https://www.wxdx2.com/book/7k6jrih/
 - 昭暮 https://www.wxdx2.com/book/7k6jri6/
 - 我有一座地下城 https://www.wxdx2.com/book/7k6jrhq/
 - 你让魔王组建勇者小队？ https://www.wxdx2.com/book/7k6jrho/

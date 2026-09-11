@@ -1,7 +1,7 @@
 
 # 速阅阁小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-09-09 03:26:51
+更新时间：2026-09-10 03:27:06
 
 速阅阁小说网为您提供最新、最全的网络小说资源，在线阅读无限制，支持多种格式下载，打造书友们最爱的小说阅读体验。 https://www.ccccenergy.com
 
@@ -26,8 +26,10 @@
 - 躲避原书剧情五年后 https://www.ccccenergy.com/book/7car66c/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.ccccenergy.com/book/7car668/
 - [综英美]让我统治哥谭！！！ https://www.ccccenergy.com/book/7car660/
+- 痴情女配开始放手了（快穿） https://www.ccccenergy.com/book/7car65s/
 - 渡鬼 https://www.ccccenergy.com/book/7car65c/
 - [封神]圣人生欲 https://www.ccccenergy.com/book/7car64n/
+- 我不是正夫吗？ https://www.ccccenergy.com/book/7car647/
 - 你，后室管理员 https://www.ccccenergy.com/book/7car635/
 - 被四皇错看成小动物后 https://www.ccccenergy.com/book/7car634/
 - 朕看上的少年是侠女 https://www.ccccenergy.com/book/7car62o/
@@ -309,7 +311,6 @@
 - 你猜 https://www.ccccenergy.com/book/nkaou8/
 - [西汉]我打工给全家改命 https://www.ccccenergy.com/book/nkaoqf/
 - 娇嗔 https://www.ccccenergy.com/book/nkaoq6/
-- 冷傲上司绑定娇妻系统后 https://www.ccccenergy.com/book/nkaoop/
 - 我让人生赢家俯首称臣的那些年 https://www.ccccenergy.com/book/nkaooj/
 - 我养龙傲天的那些年 https://www.ccccenergy.com/book/nkaon4/
 - [足球]德意志小比也能拿冠军吗 https://www.ccccenergy.com/book/nkaoks/

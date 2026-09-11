@@ -1,7 +1,7 @@
 
 # 零点看书吧-书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-09 03:29:32
+更新时间：2026-09-10 03:29:50
 
 零点看书吧是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节。作为无弹窗的小说阅读平台，零点看书吧成为网络小说爱好者必备的选择。 https://www.gjnbgb.com
 
@@ -41,6 +41,7 @@
 - 开局给李世民盘点安史之乱 https://www.gjnbgb.com/book/2s9sld1/
 - 怪谈小镇游玩指南[无限] https://www.gjnbgb.com/book/2s9skbk/
 - 离开那个混蛋后 https://www.gjnbgb.com/book/2s9sjfe/
+- 痴情女配开始放手了（快穿） https://www.gjnbgb.com/book/2s9shkm/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.gjnbgb.com/book/2s9shih/
 - 渡鬼 https://www.gjnbgb.com/book/2s9shfh/
 - 穿成反派的亡夫后[虫族] https://www.gjnbgb.com/book/2s9sge2/
@@ -331,7 +332,6 @@
 - 这死beta老说我们不可能 https://www.gjnbgb.com/book/2s9q1g6/
 - 娇嗔 https://www.gjnbgb.com/book/2s9q1es/
 - 在横滨横行霸道的那些年 https://www.gjnbgb.com/book/2s9q1el/
-- 冷傲上司绑定娇妻系统后 https://www.gjnbgb.com/book/2s9q1e5/
 - 娇婚惯养 https://www.gjnbgb.com/book/2s9q1dt/
 - [综英美]萌萌小蜘蛛在哥谭 https://www.gjnbgb.com/book/2s9q1dd/
 - 汉武帝戾太子什么含金量 https://www.gjnbgb.com/book/2s9q1db/
@@ -411,7 +411,6 @@
 - 顶流他姐有神豪系统 https://www.gjnbgb.com/book/2s9pr0b/
 - 我靠玛丽苏系统伪装神女 https://www.gjnbgb.com/book/2s9pqtj/
 - 青山不渡 https://www.gjnbgb.com/book/2s9pqrs/
-- 刀子精手心的人偶崽崽 https://www.gjnbgb.com/book/2s9pq6d/
 - 吐槽役审神者会爆改幕后大boss吗 https://www.gjnbgb.com/book/2s9ppfc/
 - 幼崽假少爷选择回归寒门 https://www.gjnbgb.com/book/2s9ppev/
 - 求生游戏：当邪神成为生活玩家后 https://www.gjnbgb.com/book/2s9pp6i/
@@ -435,6 +434,7 @@
 - 自大狂 https://www.gjnbgb.com/book/2s9p0vg/
 - 暴君偏头痛 https://www.gjnbgb.com/book/2s9ot0a/
 - 满级竹马从异世穿回来了 https://www.gjnbgb.com/book/2s9osg0/
+- 我不是正夫吗？ https://www.gjnbgb.com/book/2s9npst/
 - 高调装神，猥琐发育 https://www.gjnbgb.com/book/2s9np4t/
 - 朕看上的少年是侠女 https://www.gjnbgb.com/book/2s9noqp/
 - [封神]圣人生欲 https://www.gjnbgb.com/book/2s9nom2/

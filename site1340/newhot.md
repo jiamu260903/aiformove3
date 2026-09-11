@@ -1,7 +1,7 @@
 
 # 时光树园-热门小说大全-小说排行榜-好看的小说推荐-热门小说推荐
 
-更新时间：2026-09-09 03:33:50
+更新时间：2026-09-10 03:34:04
 
 时光树园是一个热门小说推荐网站，这里有热门全本小说大全、好看的小说推荐、小说排行榜等。您可以在这里无广告在线阅读优质的豪门总裁小说、现代言情小说、古代言情小说、都市小说、穿越小说、玄幻小说、武侠仙侠等各类热门小说。 https://www.kltbl.com
 
@@ -19,6 +19,7 @@
 - 这个替嫁让我来！ https://www.kltbl.com/book/5achcpb/
 - 咦？我爸爸复活啦 https://www.kltbl.com/book/5achcp0/
 - 穿为龙傲天发妻后 https://www.kltbl.com/book/5achco3/
+- 痴情女配开始放手了（快穿） https://www.kltbl.com/book/5achbuj/
 - 暴君偏头痛 https://www.kltbl.com/book/5achbrs/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.kltbl.com/book/5achbrc/
 - 渡鬼 https://www.kltbl.com/book/5achbqc/
@@ -41,6 +42,7 @@
 - 我比反派先崩坏[快穿] https://www.kltbl.com/book/5ach0ir/
 - cos温迪后玩到真崩铁了 https://www.kltbl.com/book/5acgs72/
 - 你，后室管理员 https://www.kltbl.com/book/5acgrll/
+- 我不是正夫吗？ https://www.kltbl.com/book/5acgrku/
 - 娇气点怎么啦？［快穿］ https://www.kltbl.com/book/5acgrke/
 - 朕看上的少年是侠女 https://www.kltbl.com/book/5acgri4/
 - [崩铁]这丰饶孽物我当定了！ https://www.kltbl.com/book/5acgqt4/
@@ -315,7 +317,6 @@
 - 这死beta老说我们不可能 https://www.kltbl.com/book/5ace3ha/
 - 太子妃她不干了 https://www.kltbl.com/book/5ace3af/
 - 逆序布鲁斯的好大儿 https://www.kltbl.com/book/5ace36r/
-- 冷傲上司绑定娇妻系统后 https://www.kltbl.com/book/5ace35s/
 - 师妹为何要如此 https://www.kltbl.com/book/5ace34t/
 - 瓮中惊春 https://www.kltbl.com/book/5ace343/
 - 哥你不能不要我 https://www.kltbl.com/book/5ace2up/
@@ -416,7 +417,6 @@
 - 善逸拒绝成为咒术师 https://www.kltbl.com/book/5acdna1/
 - 被四皇错看成小动物后 https://www.kltbl.com/book/5acdlif/
 - [足球]罗蜜第一志愿 https://www.kltbl.com/book/5acdk9c/
-- 刀子精手心的人偶崽崽 https://www.kltbl.com/book/5acdee8/
 - 战死的阿爹回来了[年代] https://www.kltbl.com/book/5acde4e/
 - [综英美]让我统治哥谭！！！ https://www.kltbl.com/book/5acdb7r/
 - 魔物堆里的人类幼崽 https://www.kltbl.com/book/5acda9q/

@@ -1,7 +1,7 @@
 
 # 耽美小说网 - 最热门的耽美小说在线阅读
 
-更新时间：2026-09-09 03:36:35
+更新时间：2026-09-10 03:36:45
 
 耽美小说网是一个广大书友喜欢的小说网，免费为您提供热门耽美小说、女生小说、都市言情小说无弹窗在线阅读和txt下载。 https://www.nvwagen.com
 
@@ -12,7 +12,6 @@
 - [全职高手]治疗什么的不干了！ https://www.nvwagen.com/book/8u4j50p/
 - 谁说踢球就不能成为名侦探[足球] https://www.nvwagen.com/book/8u4j50m/
 - 魔咒请说普通话[西幻] https://www.nvwagen.com/book/8u4j50l/
-- 欲和离？夫君他目不识丁 https://www.nvwagen.com/book/8u4j50j/
 - 双生子反派的端水抑郁妈[九零] https://www.nvwagen.com/book/8u4j50e/
 - 末世八年春，游戏降临 https://www.nvwagen.com/book/8u4j50c/
 - 失忆后和死对头有了崽 https://www.nvwagen.com/book/8u4j509/
@@ -61,7 +60,7 @@
 - 大佬的漂亮老婆回来带崽了[八零] https://www.nvwagen.com/book/8u4j4t6/
 - 八零法医，带全家致富 https://www.nvwagen.com/book/8u4j4t4/
 - 二次分化后他怀了死对头的崽 https://www.nvwagen.com/book/8u4j4t2/
-- 人，今晚土拨鼠站岗 https://www.nvwagen.com/book/8u4j4t1/
+- 笨蛋土拨鼠站岗日志 https://www.nvwagen.com/book/8u4j4t1/
 - 恐游里的邻居们[万人迷] https://www.nvwagen.com/book/8u4j4sp/
 - 全民求生，但剑三 https://www.nvwagen.com/book/8u4j4sd/
 - 禁止继承限制级雌君 https://www.nvwagen.com/book/8u4j4s8/
@@ -125,7 +124,6 @@
 - 穿咒术，但杀猴现场 https://www.nvwagen.com/book/8u4fomv/
 - 妻主风流（女尊） https://www.nvwagen.com/book/8u4fne6/
 - 带清冷女主回乡养螃蟹[种田] https://www.nvwagen.com/book/8u4fmro/
-- 这个位面归我了！[经营] https://www.nvwagen.com/book/8u4fmpl/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.nvwagen.com/book/8u4fm9s/
 - 清冷丞相怀了死对头的崽 https://www.nvwagen.com/book/8u4flud/
 - 被糟蹋的老实人决定反击 https://www.nvwagen.com/book/8u4fih3/

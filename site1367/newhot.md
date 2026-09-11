@@ -1,7 +1,7 @@
 
 # 奇幻笔趣屋 - 书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-09 03:37:51
+更新时间：2026-09-10 03:38:01
 
 奇幻笔趣屋收录整理最新最全的热门网络小说，提供所有小说首发最新章节免费阅读服务，是书友们最值得收藏的小说阅读网站。 https://www.qihuan958.com
 
@@ -33,6 +33,7 @@
 - 我比反派先崩坏[快穿] https://www.qihuan958.com/book/4ratkpb/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.qihuan958.com/book/4ratkg5/
 - 渡鬼 https://www.qihuan958.com/book/4ratkf5/
+- 痴情女配开始放手了（快穿） https://www.qihuan958.com/book/4ratke2/
 - cos温迪后玩到真崩铁了 https://www.qihuan958.com/book/4ratgbn/
 - 我有嘉宾 https://www.qihuan958.com/book/4ratfrt/
 - 娇气点怎么啦？［快穿］ https://www.qihuan958.com/book/4ratfme/
@@ -56,6 +57,7 @@
 - 特殊魅力值，已到账 https://www.qihuan958.com/book/4rasq6t/
 - 昭暮 https://www.qihuan958.com/book/4rasovg/
 - 你，后室管理员 https://www.qihuan958.com/book/4rasl1j/
+- 我不是正夫吗？ https://www.qihuan958.com/book/4rasl0s/
 - 朕看上的少年是侠女 https://www.qihuan958.com/book/4raskvp/
 - 高调装神，猥琐发育 https://www.qihuan958.com/book/4rasdul/
 - 被欺负的老实人[快穿] https://www.qihuan958.com/book/4ras80h/
@@ -305,7 +307,6 @@
 - 善逸拒绝成为咒术师 https://www.qihuan958.com/book/4raqopa/
 - 女帝起家前录 https://www.qihuan958.com/book/4raqom7/
 - 娇婚惯养 https://www.qihuan958.com/book/4raqoit/
-- 冷傲上司绑定娇妻系统后 https://www.qihuan958.com/book/4raqog2/
 - 魔尊他邪得发正 https://www.qihuan958.com/book/4raqoee/
 - 下堂驸马追妻实录 https://www.qihuan958.com/book/4raqocq/
 - 我养龙傲天的那些年 https://www.qihuan958.com/book/4raqob9/
@@ -413,7 +414,6 @@
 - 我靠玛丽苏系统伪装神女 https://www.qihuan958.com/book/4raqgdl/
 - 吐槽役审神者会爆改幕后大boss吗 https://www.qihuan958.com/book/4raqdft/
 - 我最讨厌打球了！ https://www.qihuan958.com/book/4raqbtn/
-- 刀子精手心的人偶崽崽 https://www.qihuan958.com/book/4raqbf6/
 - 求生游戏：当邪神成为生活玩家后 https://www.qihuan958.com/book/4raqaj7/
 - 幼崽假少爷选择回归寒门 https://www.qihuan958.com/book/4raq74h/
 - [足球]小小鸟堂堂来袭 https://www.qihuan958.com/book/4raq4r5/

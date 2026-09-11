@@ -1,7 +1,7 @@
 
 # 故事文学网 - 精彩小说尽在其中
 
-更新时间：2026-09-09 03:30:17
+更新时间：2026-09-10 03:30:36
 
 故事文学网是一个专注于小说创作与阅读的网站，汇聚了众多优秀作品，为读者提供精彩的文学体验。欢迎您来到故事文学网，发现阅读的乐趣！ https://www.gushi1314.com
 
@@ -40,7 +40,7 @@
 - 恐游里的邻居们[万人迷] https://www.gushi1314.com/book/8m9jubh/
 - 怨明月不独照 https://www.gushi1314.com/book/8m9jubg/
 - 爱情的肯定句 https://www.gushi1314.com/book/8m9jubf/
-- 人，今晚土拨鼠站岗 https://www.gushi1314.com/book/8m9jube/
+- 笨蛋土拨鼠站岗日志 https://www.gushi1314.com/book/8m9jube/
 - 死遁APP https://www.gushi1314.com/book/8m9jubd/
 - 魔改剧本后我爆火了[娱乐圈] https://www.gushi1314.com/book/8m9jubc/
 - [足球]小小鸟堂堂来袭 https://www.gushi1314.com/book/8m9jubb/
@@ -53,7 +53,6 @@
 - 漫画取材所引发的修罗场 https://www.gushi1314.com/book/8m9jub4/
 - 二次分化后他怀了死对头的崽 https://www.gushi1314.com/book/8m9jub3/
 - 全世界名为爱的恶意 https://www.gushi1314.com/book/8m9jub2/
-- 欲和离？夫君他目不识丁 https://www.gushi1314.com/book/8m9jub1/
 - 穿为龙傲天发妻后 https://www.gushi1314.com/book/8m9jub0/
 - 我们小区穿末世 https://www.gushi1314.com/book/8m9juav/
 - 双生子反派的端水抑郁妈[九零] https://www.gushi1314.com/book/8m9juau/
@@ -132,7 +131,6 @@
 - 多梦你一会儿 https://www.gushi1314.com/book/rqiqt9/
 - 韩团绿卡不想忍了 https://www.gushi1314.com/book/rqiq9o/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.gushi1314.com/book/rqiorn/
-- 这个位面归我了！[经营] https://www.gushi1314.com/book/rqinpn/
 - 被糟蹋的老实人决定反击 https://www.gushi1314.com/book/rqinnh/
 - 村霸非要入赘受气包 https://www.gushi1314.com/book/rqim1g/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.gushi1314.com/book/rqikar/

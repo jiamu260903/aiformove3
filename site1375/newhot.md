@@ -1,7 +1,7 @@
 
 # 精英文学 - 书友最值得收藏的小说免费阅读网
 
-更新时间：2026-09-09 03:46:02
+更新时间：2026-09-10 03:46:24
 
 精英文学为您提供一个干净舒适的阅读环境，作为书友最值得收藏的小说免费阅读网之一，我们致力于打造无广告干扰的最佳在线阅读体验。 https://www.xcposji.com
 
@@ -42,6 +42,7 @@
 - 怪谈小镇游玩指南[无限] https://www.xcposji.com/book/jnmajq/
 - 离开那个混蛋后 https://www.xcposji.com/book/jnm9sn/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.xcposji.com/book/jnm7v4/
+- 痴情女配开始放手了（快穿） https://www.xcposji.com/book/jnm7tk/
 - 渡鬼 https://www.xcposji.com/book/jnm7p1/
 - 穿成反派的亡夫后[虫族] https://www.xcposji.com/book/jnm6n8/
 - 氪成酒厂股东了怎么办 https://www.xcposji.com/book/jnm6fp/
@@ -327,7 +328,6 @@
 - 娇婚惯养 https://www.xcposji.com/book/jnjob3/
 - [综英美]忠诚的地球迎来了伟大的开拓者 https://www.xcposji.com/book/jnjo7h/
 - [全职高手]问就是没钱 https://www.xcposji.com/book/jnjnvl/
-- 冷傲上司绑定娇妻系统后 https://www.xcposji.com/book/jnjnvd/
 - 在横滨横行霸道的那些年 https://www.xcposji.com/book/jnjnur/
 - 白月光拒绝拯救反派 https://www.xcposji.com/book/jnjntg/
 - 朱棣造反被朱元璋表扬这事[直播剧透] https://www.xcposji.com/book/jnjnq5/
@@ -413,7 +413,6 @@
 - 青山不渡 https://www.xcposji.com/book/jnjh9g/
 - 吐槽役审神者会爆改幕后大boss吗 https://www.xcposji.com/book/jnjgrv/
 - 幼崽假少爷选择回归寒门 https://www.xcposji.com/book/jnjgr6/
-- 刀子精手心的人偶崽崽 https://www.xcposji.com/book/jnjghl/
 - 求生游戏：当邪神成为生活玩家后 https://www.xcposji.com/book/jnjgeq/
 - 魔物堆里的人类幼崽 https://www.xcposji.com/book/jnjdnq/
 - [足球]小小鸟堂堂来袭 https://www.xcposji.com/book/jnjdmg/
@@ -440,6 +439,7 @@
 - 被四皇错看成小动物后 https://www.xcposji.com/book/jnhekj/
 - 高调装神，猥琐发育 https://www.xcposji.com/book/jnheam/
 - 你，后室管理员 https://www.xcposji.com/book/jnheaf/
+- 我不是正夫吗？ https://www.xcposji.com/book/jnhdtm/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1375/index.md)

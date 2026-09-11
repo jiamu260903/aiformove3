@@ -1,14 +1,14 @@
 
 # 阿舍岛小说 - 章节最新最全免费的小说阅读网
 
-更新时间：2026-09-09 03:25:35
+更新时间：2026-09-10 03:25:48
 
 阿舍岛小说提供数万本经典热门小说免费阅读服务，包括但不限于玄幻、言情、网游、穿越等多种类型。网站内容丰富，章节更新及时全面，致力于为读者打造最佳的免费小说阅读体验。 https://www.ashedao.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.ashedao.com/book/99d3aa3/
 - 八零法医，带全家致富 https://www.ashedao.com/book/99d3a9u/
 - 谁说踢球就不能成为名侦探[足球] https://www.ashedao.com/book/99d3a9r/
-- 欲和离？夫君他目不识丁 https://www.ashedao.com/book/99d3a9p/
 - 清穿女回来后[天幕] https://www.ashedao.com/book/99d3a9m/
 - 穿咒术，但杀猴现场 https://www.ashedao.com/book/99d3a9l/
 - 恶毒男配只想躺平 https://www.ashedao.com/book/99d3a9k/
@@ -60,7 +60,7 @@
 - 前妻她肯定会后悔 https://www.ashedao.com/book/99d3a5v/
 - 万人嫌从末世回来了 https://www.ashedao.com/book/99d3a5t/
 - 仙尊心尖宠，但被魔尊抢了 https://www.ashedao.com/book/99d3a5p/
-- 人，今晚土拨鼠站岗 https://www.ashedao.com/book/99d3a5n/
+- 笨蛋土拨鼠站岗日志 https://www.ashedao.com/book/99d3a5n/
 - 失忆后和死对头有了崽 https://www.ashedao.com/book/99d3a5m/
 - 康熙宠妃日常 https://www.ashedao.com/book/99d3a5l/
 - 爱情的肯定句 https://www.ashedao.com/book/99d3a5h/
@@ -75,10 +75,10 @@
 - ［综英美］蝙蝠崽？我不是啊！ https://www.ashedao.com/book/99d3a4u/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.ashedao.com/book/99d33u2/
 - 上个鬼班[无限] https://www.ashedao.com/book/99d2pve/
-- 星际团宠小人鱼 https://www.ashedao.com/book/99d2p2b/
 - 始乱终弃清冷首辅后 https://www.ashedao.com/book/99d2ov1/
 - 原配夫人 https://www.ashedao.com/book/99d2ou9/
 - 让暴君Alpha怀崽后 https://www.ashedao.com/book/99d2nhe/
+- 我只梦你一页 https://www.ashedao.com/book/99d2lsl/
 - 九零重组小家庭 https://www.ashedao.com/book/99d2kgq/
 - [足球]足坛人生模拟器 https://www.ashedao.com/book/99d2hs8/
 - 趁她之危 https://www.ashedao.com/book/99d2bu8/
@@ -93,11 +93,9 @@
 - 高调装神，猥琐发育 https://www.ashedao.com/book/99d1e8j/
 - 起初，我只是想找个冤大头 https://www.ashedao.com/book/99d1de3/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.ashedao.com/book/99d18ti/
-- 仙门透明人被迫万人迷 https://www.ashedao.com/book/99d17dh/
 - 让你们无剧本可走（快穿） https://www.ashedao.com/book/99d171r/
 - [足球]我的游戏存档成真了？！ https://www.ashedao.com/book/99d16si/
 - 直男咒术师的限制级游戏 https://www.ashedao.com/book/99d162r/
-- 摄政王家的咸鱼夫郎 https://www.ashedao.com/book/99d13ku/
 - 我与龙傲天寿命共享 https://www.ashedao.com/book/99d11lg/
 - 如何正确哄睡暴君 https://www.ashedao.com/book/99d0t5l/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.ashedao.com/book/99d0m2e/
@@ -106,6 +104,7 @@
 - 死对头又在挑衅我 https://www.ashedao.com/book/99d0hif/
 - 在民俗惊悚片被诸神庇护 https://www.ashedao.com/book/99d0dcf/
 - 从童星开始杀穿港娱 https://www.ashedao.com/book/99d0cq6/
+- 月亮上的大筒木 https://www.ashedao.com/book/99d0b0a/
 - 我有一座地下城 https://www.ashedao.com/book/99d096b/
 - 漂亮女配是万人迷［快穿］ https://www.ashedao.com/book/99d08di/
 - 开局绑定郭奉孝，谋定三国风云 https://www.ashedao.com/book/99d05km/
@@ -129,7 +128,6 @@
 - 韩团绿卡不想忍了 https://www.ashedao.com/book/99cvdn8/
 - 妻主风流（女尊） https://www.ashedao.com/book/99cvbdd/
 - 心动嫌疑人 https://www.ashedao.com/book/99cva5c/
-- 这个位面归我了！[经营] https://www.ashedao.com/book/99cv8tv/
 - 死亡悖论[无限流] https://www.ashedao.com/book/99cv867/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.ashedao.com/book/99cv7jm/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.ashedao.com/book/99cv7cc/

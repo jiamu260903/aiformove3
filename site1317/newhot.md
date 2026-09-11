@@ -1,7 +1,7 @@
 
 # 作品思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-09-09 03:50:52
+更新时间：2026-09-10 03:51:23
 
 作品思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等全本小说免费阅读,最新完本小说阅读就在思路客。 https://www.zuopin666.com
 
@@ -25,10 +25,12 @@
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.zuopin666.com/book/8befhgm/
 - 渡鬼 https://www.zuopin666.com/book/8befhg8/
 - 躲避原书剧情五年后 https://www.zuopin666.com/book/8befhfk/
+- 痴情女配开始放手了（快穿） https://www.zuopin666.com/book/8befhet/
 - 暴君偏头痛 https://www.zuopin666.com/book/8befhdh/
 - 青城玩家明明超强却过分谨慎 https://www.zuopin666.com/book/8befhd4/
 - 你，后室管理员 https://www.zuopin666.com/book/8befhcs/
 - [封神]圣人生欲 https://www.zuopin666.com/book/8befhcb/
+- 我不是正夫吗？ https://www.zuopin666.com/book/8befhau/
 - 朕看上的少年是侠女 https://www.zuopin666.com/book/8befhaq/
 - 被四皇错看成小动物后 https://www.zuopin666.com/book/8befhao/
 - 高调装神，猥琐发育 https://www.zuopin666.com/book/8befhaf/
@@ -339,7 +341,6 @@
 - 太子妃她不干了 https://www.zuopin666.com/book/qnso3c/
 - 从伟大航道到黑暗大陆 https://www.zuopin666.com/book/qnso14/
 - 女帝起家前录 https://www.zuopin666.com/book/qnsnve/
-- 冷傲上司绑定娇妻系统后 https://www.zuopin666.com/book/qnsnre/
 - [综武侠]有间民宿 https://www.zuopin666.com/book/qnsnpn/
 - 龙傲天未婚妻不退婚了 https://www.zuopin666.com/book/qnsnpc/
 - [HP]我和救世主有个约会 https://www.zuopin666.com/book/qnsnm0/

@@ -1,7 +1,7 @@
 
 # 生活文学小说-质感小说文学网站|高质量文学作品与创作交流平台
 
-更新时间：2026-09-09 03:39:15
+更新时间：2026-09-10 03:39:24
 
 生活文学小说是一个专注于提供质感小说文学的网站，致力于为文学爱好者打造一个高质量的文学作品和创作交流平台，在这里可以享受到独特的夜间文学之美。 https://www.shenghuo988.com
 
@@ -12,7 +12,7 @@
 - [综英美]哥谭市民，在线抽卡 https://www.shenghuo988.com/book/86gb7nu/
 - 双生子反派的端水抑郁妈[九零] https://www.shenghuo988.com/book/86gb7nr/
 - 清穿女回来后[天幕] https://www.shenghuo988.com/book/86gb7no/
-- 人，今晚土拨鼠站岗 https://www.shenghuo988.com/book/86gb7nn/
+- 笨蛋土拨鼠站岗日志 https://www.shenghuo988.com/book/86gb7nn/
 - [原神]魔法使恋爱指南 https://www.shenghuo988.com/book/86gb7nm/
 - 恐游里的邻居们[万人迷] https://www.shenghuo988.com/book/86gb7nl/
 - 病美人重生日记 https://www.shenghuo988.com/book/86gb7nk/
@@ -33,7 +33,6 @@
 - [洪荒]成为太清妹妹后 https://www.shenghuo988.com/book/86gb7m4/
 - 在中世纪做奴隶 https://www.shenghuo988.com/book/86gb7m3/
 - 末世八年春，游戏降临 https://www.shenghuo988.com/book/86gb7m1/
-- 欲和离？夫君他目不识丁 https://www.shenghuo988.com/book/86gb7m0/
 - 穿为龙傲天发妻后 https://www.shenghuo988.com/book/86gb7lr/
 - 禁止继承限制级雌君 https://www.shenghuo988.com/book/86gb7lp/
 - 暗恋的价格是三万块 https://www.shenghuo988.com/book/86gb7lo/
@@ -131,7 +130,6 @@
 - 妻主风流（女尊） https://www.shenghuo988.com/book/86g7a0s/
 - 死亡悖论[无限流] https://www.shenghuo988.com/book/86g79sh/
 - 带清冷女主回乡养螃蟹[种田] https://www.shenghuo988.com/book/86g7896/
-- 这个位面归我了！[经营] https://www.shenghuo988.com/book/86g77mk/
 - 村霸非要入赘受气包 https://www.shenghuo988.com/book/86g75he/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.shenghuo988.com/book/86g7410/
 - 清冷丞相怀了死对头的崽 https://www.shenghuo988.com/book/86g73pf/

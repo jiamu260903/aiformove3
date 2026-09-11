@@ -1,7 +1,7 @@
 
 # 故事文学网 - 精彩小说尽在其中
 
-更新时间：2026-09-09 03:30:17
+更新时间：2026-09-10 03:30:36
 
 故事文学网是一个专注于小说创作与阅读的网站，汇聚了众多优秀作品，为读者提供精彩的文学体验。欢迎您来到故事文学网，发现阅读的乐趣！ https://www.gushi1314.com
 
@@ -21,6 +21,7 @@
 - 大佬的漂亮老婆回来带崽了[八零] https://www.gushi1314.com/book/8m9juan/
 - 自知之明 https://www.gushi1314.com/book/8m9juab/
 - 同时扮演贵族学院F4和平民校花 https://www.gushi1314.com/book/8m9jua8/
+- 痴情女配开始放手了（快穿） https://www.gushi1314.com/book/8m9ju8p/
 - [综英美]让我统治哥谭！！！ https://www.gushi1314.com/book/8m9ju8l/
 - 暴君偏头痛 https://www.gushi1314.com/book/8m9ju7f/
 - 躲避原书剧情五年后 https://www.gushi1314.com/book/8m9ju76/
@@ -28,6 +29,7 @@
 - 渡鬼 https://www.gushi1314.com/book/8m9ju5a/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.gushi1314.com/book/8m9ju58/
 - [封神]圣人生欲 https://www.gushi1314.com/book/8m9ju4p/
+- 我不是正夫吗？ https://www.gushi1314.com/book/8m9ju42/
 - 朕看上的少年是侠女 https://www.gushi1314.com/book/8m9ju40/
 - 你，后室管理员 https://www.gushi1314.com/book/8m9ju36/
 - 被四皇错看成小动物后 https://www.gushi1314.com/book/8m9ju2j/
@@ -325,7 +327,6 @@
 - 正常人成为虫母后沦陷修罗场 https://www.gushi1314.com/book/rqjkdt/
 - 女帝起家前录 https://www.gushi1314.com/book/rqjkdr/
 - 当烫男人走错了片场 https://www.gushi1314.com/book/rqjkab/
-- 冷傲上司绑定娇妻系统后 https://www.gushi1314.com/book/rqjk9k/
 - 瓮中惊春 https://www.gushi1314.com/book/rqjk67/
 - 银发死鱼眼也要打排球 https://www.gushi1314.com/book/rqjk14/
 - [HP]我和救世主有个约会 https://www.gushi1314.com/book/rqjjtk/

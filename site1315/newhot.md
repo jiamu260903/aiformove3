@@ -1,7 +1,7 @@
 
 # 连载小说网, 新笔趣小说阅读网 - 热门小说在线免费阅读
 
-更新时间：2026-09-09 03:34:41
+更新时间：2026-09-10 03:34:53
 
 连载小说网为您提供最新最全的小说资源，当顶点小说网无法访问时，请选择我们作为替代。这里是书友们的聚集地，拥有海量热门小说供您免费在线阅读。 https://www.lianzai007.com
 
@@ -24,10 +24,12 @@
 - 暴君偏头痛 https://www.lianzai007.com/book/6g3n1k5/
 - 渡鬼 https://www.lianzai007.com/book/6g3n1jv/
 - 躲避原书剧情五年后 https://www.lianzai007.com/book/6g3n1is/
+- 痴情女配开始放手了（快穿） https://www.lianzai007.com/book/6g3n1ih/
 - [综英美]让我统治哥谭！！！ https://www.lianzai007.com/book/6g3n1fv/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.lianzai007.com/book/6g3n1fp/
 - 青城玩家明明超强却过分谨慎 https://www.lianzai007.com/book/6g3n1fn/
 - [封神]圣人生欲 https://www.lianzai007.com/book/6g3n1ej/
+- 我不是正夫吗？ https://www.lianzai007.com/book/6g3n1e1/
 - 朕看上的少年是侠女 https://www.lianzai007.com/book/6g3n1ds/
 - 被四皇错看成小动物后 https://www.lianzai007.com/book/6g3n1da/
 - 你，后室管理员 https://www.lianzai007.com/book/6g3n1d5/
@@ -336,7 +338,6 @@
 - 樋口干部不干了 https://www.lianzai007.com/book/kq0mcb/
 - [综英美]是追到小红鸟的超人之子 https://www.lianzai007.com/book/kq0m9t/
 - 炮灰今天也在加班[快穿] https://www.lianzai007.com/book/kq0m8k/
-- 冷傲上司绑定娇妻系统后 https://www.lianzai007.com/book/kq0m4e/
 - 三岁崽崽带龙王爸爸上综艺爆红 https://www.lianzai007.com/book/kq0m0f/
 - 摄政长公主穿成炮灰女配[七零] https://www.lianzai007.com/book/kq0lvl/
 - 经纪人砸钱整顿内娱爆火了 https://www.lianzai007.com/book/kq0lva/
