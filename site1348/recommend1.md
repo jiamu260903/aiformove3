@@ -1,11 +1,12 @@
 
 # 看剧文学网 - 书友最值得收藏的小说阅读网
 
-更新时间：2026-09-09 03:32:46
+更新时间：2026-09-10 03:33:03
 
 看剧文学网，精选最好看的小说推荐给大家在线阅读。这里有网络小说大全，包括最火、最热门的小说最新章节，是书友最值得收藏的免费小说阅读网。 https://www.kanju788.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.kanju788.com/book/to4ujp/
 - 全民求生，但剑三 https://www.kanju788.com/book/to4ujm/
 - 谁都不爱的和亲公主 https://www.kanju788.com/book/to4ujl/
 - 乖乖女的杂货铺[八零] https://www.kanju788.com/book/to4ujj/
@@ -58,7 +59,7 @@
 - 爱情的肯定句 https://www.kanju788.com/book/to4ufo/
 - 炮灰的海外亲戚回国啦！ https://www.kanju788.com/book/to4ufn/
 - 前妻她肯定会后悔 https://www.kanju788.com/book/to4ufm/
-- 人，今晚土拨鼠站岗 https://www.kanju788.com/book/to4uff/
+- 笨蛋土拨鼠站岗日志 https://www.kanju788.com/book/to4uff/
 - 魔法种田，从退队经营农场开始 https://www.kanju788.com/book/to4ufd/
 - 夫人每天都在伪装 https://www.kanju788.com/book/to4ufc/
 - 二次分化后他怀了死对头的崽 https://www.kanju788.com/book/to4ufb/
@@ -69,7 +70,6 @@
 - 我们小区穿末世 https://www.kanju788.com/book/to4uet/
 - 全世界名为爱的恶意 https://www.kanju788.com/book/to4ueq/
 - 漫画取材所引发的修罗场 https://www.kanju788.com/book/to4uel/
-- 欲和离？夫君他目不识丁 https://www.kanju788.com/book/to4uei/
 - 起初，我只是想找个冤大头 https://www.kanju788.com/book/to4ker/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.kanju788.com/book/to4idb/
 - 上个鬼班[无限] https://www.kanju788.com/book/to4do1/
@@ -79,12 +79,12 @@
 - 在卷王和废物之间选择做吉祥物 https://www.kanju788.com/book/to3rsg/
 - 从维多利亚时代开始 https://www.kanju788.com/book/to3oms/
 - 昭暮 https://www.kanju788.com/book/to3ms7/
-- 星际团宠小人鱼 https://www.kanju788.com/book/to3jnv/
 - 十九世纪贵族厨房（美食） https://www.kanju788.com/book/to3jme/
 - 原配夫人 https://www.kanju788.com/book/to3jkc/
 - 始乱终弃清冷首辅后 https://www.kanju788.com/book/to3jif/
 - 完蛋！被恨孕男包围了！ https://www.kanju788.com/book/to3cm1/
 - 高调装神，猥琐发育 https://www.kanju788.com/book/to3ckd/
+- 我只梦你一页 https://www.kanju788.com/book/to3cjd/
 - 食明 https://www.kanju788.com/book/to39h7/
 - 诡话第一boss https://www.kanju788.com/book/to36eh/
 - 老实人妻，但顶级魅魔 https://www.kanju788.com/book/to35en/
@@ -92,7 +92,6 @@
 - [足球]我的游戏存档成真了？！ https://www.kanju788.com/book/to2t1u/
 - 让你们无剧本可走（快穿） https://www.kanju788.com/book/to2spe/
 - 我与龙傲天寿命共享 https://www.kanju788.com/book/to2qlj/
-- 摄政王家的咸鱼夫郎 https://www.kanju788.com/book/to2q0l/
 - 如何正确哄睡暴君 https://www.kanju788.com/book/to2phd/
 - 我骗家里的钱养你啊 https://www.kanju788.com/book/to2jns/
 - 死遁的亡夫们都回来了 https://www.kanju788.com/book/to2jc9/
@@ -104,6 +103,7 @@
 - 同时扮演贵族学院F4和平民校花 https://www.kanju788.com/book/to24ra/
 - 从童星开始杀穿港娱 https://www.kanju788.com/book/to24ht/
 - 咦？我爸爸复活啦 https://www.kanju788.com/book/to23t4/
+- 月亮上的大筒木 https://www.kanju788.com/book/to2230/
 - 韩团绿卡不想忍了 https://www.kanju788.com/book/to21jr/
 - 路人攻了主角攻［快穿］ https://www.kanju788.com/book/to21bq/
 - 开局绑定郭奉孝，谋定三国风云 https://www.kanju788.com/book/to20eo/
@@ -131,7 +131,6 @@
 - 死亡悖论[无限流] https://www.kanju788.com/book/to100g/
 - 趁她之危 https://www.kanju788.com/book/to0ure/
 - 带清冷女主回乡养螃蟹[种田] https://www.kanju788.com/book/to0tja/
-- 这个位面归我了！[经营] https://www.kanju788.com/book/to0sg4/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.kanju788.com/book/to0r87/
 - 村霸非要入赘受气包 https://www.kanju788.com/book/to0r06/
 - [崩铁]请给玩家一个准确的血条！ https://www.kanju788.com/book/to0qcb/
@@ -142,7 +141,6 @@
 - 恶犬攻绑定上司的乖狗系统 https://www.kanju788.com/book/to0iqt/
 - 权宋一只统 https://www.kanju788.com/book/to0ff6/
 - 爱好和平但狂拆机甲 https://www.kanju788.com/book/to0959/
-- 仙门透明人被迫万人迷 https://www.kanju788.com/book/tnvdd1/
 - 巨物致富：回乡开钓场 https://www.kanju788.com/book/tnvdcj/
 - 天幕今天也在直播我搞基建 https://www.kanju788.com/book/tnvd86/
 - 我有一座安全城 https://www.kanju788.com/book/tnvcrk/

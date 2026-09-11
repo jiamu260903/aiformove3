@@ -1,7 +1,7 @@
 
 # 七步阁-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-09-09 03:38:40
+更新时间：2026-09-10 03:38:48
 
 七步阁提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏七步阁，享受便捷的小说阅读体验。 https://www.revwarny.com
 
@@ -17,7 +17,6 @@
 - 谁都不爱的和亲公主 https://www.revwarny.com/book/3sgl7sc/
 - [全职高手]治疗什么的不干了！ https://www.revwarny.com/book/3sgl7sb/
 - 爱情的肯定句 https://www.revwarny.com/book/3sgl7sa/
-- 欲和离？夫君他目不识丁 https://www.revwarny.com/book/3sgl7s9/
 - 在中世纪做奴隶 https://www.revwarny.com/book/3sgl7s8/
 - 我只想上京赶考啊[聊斋] https://www.revwarny.com/book/3sgl7s7/
 - ［综英美］蝙蝠崽？我不是啊！ https://www.revwarny.com/book/3sgl7s6/
@@ -29,7 +28,7 @@
 - 和治君只是饭搭子的关系 https://www.revwarny.com/book/3sgl7s0/
 - 前妻她肯定会后悔 https://www.revwarny.com/book/3sgl7rv/
 - [综英美]和亲友群穿哥谭以后 https://www.revwarny.com/book/3sgl7ru/
-- 人，今晚土拨鼠站岗 https://www.revwarny.com/book/3sgl7rt/
+- 笨蛋土拨鼠站岗日志 https://www.revwarny.com/book/3sgl7rt/
 - 双生子反派的端水抑郁妈[九零] https://www.revwarny.com/book/3sgl7rs/
 - 娘娘扶摇直上 https://www.revwarny.com/book/3sgl7rr/
 - [原神]魔法使恋爱指南 https://www.revwarny.com/book/3sgl7rq/
@@ -136,7 +135,6 @@
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.revwarny.com/book/cefkad/
 - 卷王后妈，八零养娃 https://www.revwarny.com/book/cefjko/
 - 清冷丞相怀了死对头的崽 https://www.revwarny.com/book/cefj26/
-- 这个位面归我了！[经营] https://www.revwarny.com/book/cefiu6/
 - 村霸非要入赘受气包 https://www.revwarny.com/book/cefi81/
 - 和山神搭伙开农场的日子 https://www.revwarny.com/book/cefg5b/
 - 恶犬攻绑定上司的乖狗系统 https://www.revwarny.com/book/cefdl0/

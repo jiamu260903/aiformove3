@@ -1,12 +1,11 @@
 
 # 欣怡书屋 - 免费最新章节小说阅读,全本无弹窗
 
-更新时间：2026-09-09 03:50:34
+更新时间：2026-09-10 03:51:05
 
 欣怡书屋是最值得收藏的小说阅读网之一，提供大量热门网络小说的免费阅读服务。所有小说均为高质量，并且支持最新章节即时更新与全本无弹窗浏览体验。 https://www.znenghs.com
 
 ## 最新小说
-- 入梦修罗场，但我脸盲 https://www.znenghs.com/book/5n2k96m/
 - [全职高手]治疗什么的不干了！ https://www.znenghs.com/book/5n2k96i/
 - 魔法种田，从退队经营农场开始 https://www.znenghs.com/book/5n2k96h/
 - 魔尊闭关十年连生十一子？！ https://www.znenghs.com/book/5n2k96g/
@@ -14,8 +13,7 @@
 - 仙尊心尖宠，但被魔尊抢了 https://www.znenghs.com/book/5n2k96e/
 - 暗恋的价格是三万块 https://www.znenghs.com/book/5n2k96d/
 - 你让魔王组建勇者小队？ https://www.znenghs.com/book/5n2k96c/
-- 人，今晚土拨鼠站岗 https://www.znenghs.com/book/5n2k96b/
-- 欲和离？夫君他目不识丁 https://www.znenghs.com/book/5n2k96a/
+- 笨蛋土拨鼠站岗日志 https://www.znenghs.com/book/5n2k96b/
 - 怨明月不独照 https://www.znenghs.com/book/5n2k969/
 - 失忆后和死对头有了崽 https://www.znenghs.com/book/5n2k968/
 - 末世八年春，游戏降临 https://www.znenghs.com/book/5n2k967/
@@ -83,19 +81,22 @@
 - 始乱终弃清冷首辅后 https://www.znenghs.com/book/5n2k8up/
 - 原配夫人 https://www.znenghs.com/book/5n2k8sp/
 - 十九世纪贵族厨房（美食） https://www.znenghs.com/book/5n2k8sj/
-- 我只梦你一页 https://www.znenghs.com/book/5n2k8sg/
 - 高调装神，猥琐发育 https://www.znenghs.com/book/5n2k8sf/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.znenghs.com/book/5n2k8qh/
+- 千禧年，拆迁分了十栋楼！ https://www.znenghs.com/book/5n2k8q4/
 - 直男咒术师的限制级游戏 https://www.znenghs.com/book/5n2k8nt/
 - 六零之成了卷王的妹妹 https://www.znenghs.com/book/5n2k7fh/
 - 路人攻了主角攻［快穿］ https://www.znenghs.com/book/5n2k7cr/
 - 昭暮 https://www.znenghs.com/book/5n2jtr8/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.znenghs.com/book/5n2j75i/
+- 恶犬品德 https://www.znenghs.com/book/5n2j6bv/
 - 老公对不起 https://www.znenghs.com/book/5n2iqa9/
 - [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.znenghs.com/book/5n2iie5/
 - 九零重组小家庭 https://www.znenghs.com/book/5n2igll/
 - [足球]足坛人生模拟器 https://www.znenghs.com/book/5n2ieo0/
 - 上个鬼班[无限] https://www.znenghs.com/book/5n2idqi/
+- 直播忏悔室，吃瓜养宠圈 https://www.znenghs.com/book/5n2icpl/
+- 限制文女王[快穿] https://www.znenghs.com/book/5n2i94q/
 - 在卷王和废物之间选择做吉祥物 https://www.znenghs.com/book/5n2i3fu/
 - 从维多利亚时代开始 https://www.znenghs.com/book/5n2hsh7/
 - 如何嫁给当朝首辅 https://www.znenghs.com/book/5n2hecj/
@@ -128,6 +129,7 @@
 - 大唐守军家属 https://www.znenghs.com/book/i9sqjf/
 - 朕也要被强制吗？ https://www.znenghs.com/book/i9sp80/
 - 在重生文里考科举 https://www.znenghs.com/book/i9sou8/
+- 和小肥啾的海岛经营游戏 https://www.znenghs.com/book/i9slho/
 - 妻主风流（女尊） https://www.znenghs.com/book/i9shjm/
 - 多梦你一会儿 https://www.znenghs.com/book/i9sfpj/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.znenghs.com/book/i9sf77/
@@ -135,12 +137,9 @@
 - 被糟蹋的老实人决定反击 https://www.znenghs.com/book/i9sbm8/
 - 卷王后妈，八零养娃 https://www.znenghs.com/book/i9saao/
 - 清冷丞相怀了死对头的崽 https://www.znenghs.com/book/i9sa2u/
-- 这个位面归我了！[经营] https://www.znenghs.com/book/i9s9g0/
 - 村霸非要入赘受气包 https://www.znenghs.com/book/i9s975/
 - 和山神搭伙开农场的日子 https://www.znenghs.com/book/i9s7qb/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.znenghs.com/book/i9s655/
-- 恶犬攻绑定上司的乖狗系统 https://www.znenghs.com/book/i9s5g4/
-- 在民俗惊悚片被诸神庇护 https://www.znenghs.com/book/i9s40j/
 - 心动嫌疑人 https://www.znenghs.com/book/i9s35n/
 - 带清冷女主回乡养螃蟹[种田] https://www.znenghs.com/book/i9s2l7/
 - 假意逢承 https://www.znenghs.com/book/i9s1bu/

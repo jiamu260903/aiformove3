@@ -1,11 +1,16 @@
 
 # 顶点小说 - 无广告无弹窗在线小说阅读网站
 
-更新时间：2026-09-09 03:42:51
+更新时间：2026-09-10 03:43:01
 
 顶点小说致力于提供一个无广告、无弹窗干扰的高质量在线小说阅读体验。支持多种类型的小说在线阅读与TXT格式下载，界面设计简洁友好。 https://www.wangrn.com
 
 ## 最新小说
+- 穿成漫画反派的我又做错了什么 https://www.wangrn.com/book/4bboga9/
+- [综英美]蝙蝠崽但脆皮 https://www.wangrn.com/book/4bbog9l/
+- 我拿的可是反派剧本 https://www.wangrn.com/book/4bbofih/
+- 丧尸王有什么坏心思？ https://www.wangrn.com/book/4bbof3i/
+- 这个替嫁让我来！ https://www.wangrn.com/book/4bboeli/
 - 网球带给齐木的灾难 https://www.wangrn.com/book/4bbodd6/
 - 当甚尔转生成继国 https://www.wangrn.com/book/4bbobgl/
 - 节能型社恐靠交友存活打排球 https://www.wangrn.com/book/4bboaqp/
@@ -62,6 +67,7 @@
 - 暗堕本丸，在线直播 https://www.wangrn.com/book/4bbmmc8/
 - 可怜的天然呆直男[快穿] https://www.wangrn.com/book/4bbmm05/
 - 五美元在哥谭活一月 https://www.wangrn.com/book/4bbmlse/
+- 痴情女配开始放手了（快穿） https://www.wangrn.com/book/4bbmlmr/
 - 女装生崽，娃爹宇智波 https://www.wangrn.com/book/4bbml52/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.wangrn.com/book/4bbmktc/
 - [足球]听克圣的话，成了米兰金童 https://www.wangrn.com/book/4bbmkrh/
@@ -326,7 +332,6 @@
 - 银发死鱼眼也要打排球 https://www.wangrn.com/book/4bblaaj/
 - 关于我想和太宰当一辈子的挚友可是他怎么居然想和我结婚这件事 https://www.wangrn.com/book/4bblaa9/
 - 在横滨横行霸道的那些年 https://www.wangrn.com/book/4bbla7r/
-- 冷傲上司绑定娇妻系统后 https://www.wangrn.com/book/4bbla5p/
 - 被双胞胎竹马轮番娇养 https://www.wangrn.com/book/4bbla4v/
 - 下堂驸马追妻实录 https://www.wangrn.com/book/4bbla1d/
 - 师妹为何要如此 https://www.wangrn.com/book/4bbla10/
@@ -394,7 +399,6 @@
 - 我靠玛丽苏系统伪装神女 https://www.wangrn.com/book/4bbl5nf/
 - 救命！猫尾巴藏不住了 https://www.wangrn.com/book/4bbl5m3/
 - 癫骨 https://www.wangrn.com/book/4bbl5ip/
-- 刀子精手心的人偶崽崽 https://www.wangrn.com/book/4bbl5go/
 - 神之子与排球的适配性 https://www.wangrn.com/book/4bbl5fg/
 - 放开那个黑暗哨兵！ https://www.wangrn.com/book/4bbl5e0/
 - 关于我虚构了一个男友这件事 https://www.wangrn.com/book/4bbl57d/
@@ -438,6 +442,7 @@
 - 你，后室管理员 https://www.wangrn.com/book/4bbj0b9/
 - 高调装神，猥琐发育 https://www.wangrn.com/book/4bbivq7/
 - 朕看上的少年是侠女 https://www.wangrn.com/book/4bbivll/
+- 我不是正夫吗？ https://www.wangrn.com/book/4bbivau/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1408/index.md)

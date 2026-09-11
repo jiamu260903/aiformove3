@@ -1,7 +1,7 @@
 
 # 书旗全本小说网 - 书旗小说排行榜, 已完结版书旗小说推荐
 
-更新时间：2026-09-09 03:40:30
+更新时间：2026-09-10 03:40:39
 
 书旗全本小说网提供最新最全最热门的小说作品排行，包括但不限于已完结版玄幻小说排行榜等。本站汇集了海量网络免费小说资源供您选择。 https://www.shuqi687.com
 
@@ -30,7 +30,7 @@
 - 欲加之罪 https://www.shuqi687.com/book/8vsmjfr/
 - 清穿女回来后[天幕] https://www.shuqi687.com/book/8vsmjfq/
 - 我只想上京赶考啊[聊斋] https://www.shuqi687.com/book/8vsmjfp/
-- 人，今晚土拨鼠站岗 https://www.shuqi687.com/book/8vsmjfo/
+- 笨蛋土拨鼠站岗日志 https://www.shuqi687.com/book/8vsmjfo/
 - 谁都不爱的和亲公主 https://www.shuqi687.com/book/8vsmjfn/
 - 末世八年春，游戏降临 https://www.shuqi687.com/book/8vsmjfm/
 - [洪荒]成为太清妹妹后 https://www.shuqi687.com/book/8vsmjfl/
@@ -69,7 +69,6 @@
 - 烈火焚身[巴黎圣母院] https://www.shuqi687.com/book/8vsmjej/
 - ［综英美］蝙蝠崽？我不是啊！ https://www.shuqi687.com/book/8vsmjei/
 - 魔咒请说普通话[西幻] https://www.shuqi687.com/book/8vsmjeh/
-- 欲和离？夫君他目不识丁 https://www.shuqi687.com/book/8vsmjeg/
 - 世界伏于她刀下[无限] https://www.shuqi687.com/book/8vsmjef/
 - 禁止继承限制级雌君 https://www.shuqi687.com/book/8vsmjee/
 - 正是冬雪沸腾时 https://www.shuqi687.com/book/8vsmjed/
@@ -134,7 +133,6 @@
 - 村霸非要入赘受气包 https://www.shuqi687.com/book/sp9dn2/
 - 韩团绿卡不想忍了 https://www.shuqi687.com/book/sp9dit/
 - 被糟蹋的老实人决定反击 https://www.shuqi687.com/book/sp9c34/
-- 这个位面归我了！[经营] https://www.shuqi687.com/book/sp9bri/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.shuqi687.com/book/sp9a39/
 - 清冷丞相怀了死对头的崽 https://www.shuqi687.com/book/sp992h/
 - 卷王后妈，八零养娃 https://www.shuqi687.com/book/sp98i2/

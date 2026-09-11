@@ -1,7 +1,7 @@
 
 # 湾里早市时间小说网 - 免费小说阅读网_网络小说排行榜_最新小说推荐
 
-更新时间：2026-09-09 03:44:45
+更新时间：2026-09-10 03:44:59
 
 湾里早市时间小说网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。 https://www.wlzssj.com
 
@@ -43,6 +43,7 @@
 - 离开那个混蛋后 https://www.wlzssj.com/book/4pmeq9u/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.wlzssj.com/book/4pmeocf/
 - 渡鬼 https://www.wlzssj.com/book/4pmeo97/
+- 痴情女配开始放手了（快穿） https://www.wlzssj.com/book/4pmeo86/
 - 穿成反派的亡夫后[虫族] https://www.wlzssj.com/book/4pmen2g/
 - 氪成酒厂股东了怎么办 https://www.wlzssj.com/book/4pmemr2/
 - 衍生穿越合订本 https://www.wlzssj.com/book/4pmemnj/
@@ -311,7 +312,6 @@
 - 摄政长公主穿成炮灰女配[七零] https://www.wlzssj.com/book/4pmc9n2/
 - 我让人生赢家俯首称臣的那些年 https://www.wlzssj.com/book/4pmc9jp/
 - 关于我想和太宰当一辈子的挚友可是他怎么居然想和我结婚这件事 https://www.wlzssj.com/book/4pmc9i9/
-- 冷傲上司绑定娇妻系统后 https://www.wlzssj.com/book/4pmc9ht/
 - 师妹为何要如此 https://www.wlzssj.com/book/4pmc9hn/
 - 朱棣造反被朱元璋表扬这事[直播剧透] https://www.wlzssj.com/book/4pmc96v/
 - 娇婚惯养 https://www.wlzssj.com/book/4pmc94k/
@@ -411,7 +411,6 @@
 - 穿成影后的作死前妻 https://www.wlzssj.com/book/4pmc250/
 - 请问夫君你哪位 https://www.wlzssj.com/book/4pmc1rj/
 - 小狗向导，世界瑰宝！ https://www.wlzssj.com/book/4pmc1q5/
-- 刀子精手心的人偶崽崽 https://www.wlzssj.com/book/4pmc1fu/
 - 吐槽役审神者会爆改幕后大boss吗 https://www.wlzssj.com/book/4pmc0uk/
 - 求生游戏：当邪神成为生活玩家后 https://www.wlzssj.com/book/4pmc05n/
 - 幼崽假少爷选择回归寒门 https://www.wlzssj.com/book/4pmbv9r/
@@ -440,6 +439,7 @@
 - [封神]圣人生欲 https://www.wlzssj.com/book/4pm9vuc/
 - 朕看上的少年是侠女 https://www.wlzssj.com/book/4pm9usr/
 - 被四皇错看成小动物后 https://www.wlzssj.com/book/4pm9ul5/
+- 我不是正夫吗？ https://www.wlzssj.com/book/4pm9udv/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1381/index.md)

@@ -1,7 +1,7 @@
 
 # 七步阁-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-09-09 03:38:40
+更新时间：2026-09-10 03:38:48
 
 七步阁提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏七步阁，享受便捷的小说阅读体验。 https://www.revwarny.com
 
@@ -21,12 +21,14 @@
 - 穿为龙傲天发妻后 https://www.revwarny.com/book/3sgl7qk/
 - 咦？我爸爸复活啦 https://www.revwarny.com/book/3sgl7qf/
 - 我骗家里的钱养你啊 https://www.revwarny.com/book/3sgl7qe/
+- 痴情女配开始放手了（快穿） https://www.revwarny.com/book/3sgl7q4/
 - [综英美]让我统治哥谭！！！ https://www.revwarny.com/book/3sgl7q2/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.revwarny.com/book/3sgl7p5/
 - 青城玩家明明超强却过分谨慎 https://www.revwarny.com/book/3sgl7ov/
 - 渡鬼 https://www.revwarny.com/book/3sgl7ok/
 - 暴君偏头痛 https://www.revwarny.com/book/3sgl7nk/
 - 躲避原书剧情五年后 https://www.revwarny.com/book/3sgl7ni/
+- 我不是正夫吗？ https://www.revwarny.com/book/3sgl7ku/
 - [封神]圣人生欲 https://www.revwarny.com/book/3sgl7k8/
 - 朕看上的少年是侠女 https://www.revwarny.com/book/3sgl7ja/
 - 你，后室管理员 https://www.revwarny.com/book/3sgl7j5/
@@ -328,7 +330,6 @@
 - 贵族学院F4中的第四人 https://www.revwarny.com/book/ceghjb/
 - 女beta的星际悠闲生活 https://www.revwarny.com/book/ceghih/
 - 银发死鱼眼也要打排球 https://www.revwarny.com/book/ceghgh/
-- 冷傲上司绑定娇妻系统后 https://www.revwarny.com/book/ceghg6/
 - 养个诡异当老婆 https://www.revwarny.com/book/ceghfu/
 - 蝴蝶园 https://www.revwarny.com/book/ceghdk/
 - 白月光拒绝拯救反派 https://www.revwarny.com/book/cegh60/

@@ -1,12 +1,11 @@
 
 # 哲理书客吧-全本小说免费阅读及txt下载,最新章节无弹窗
 
-更新时间：2026-09-09 03:50:01
+更新时间：2026-09-10 03:50:33
 
 哲理书客吧提供最快更新的热门网络小说最新章节，支持全本小说在线免费阅读与txt电子书打包下载服务。收录多本经典好看的小说，并承诺无广告弹窗清爽阅读体验，是小说爱好者的理想选择。 https://www.zheli518.com
 
 ## 最新小说
-- 入梦修罗场，但我脸盲 https://www.zheli518.com/book/4taqmm4/
 - 从1951开始 https://www.zheli518.com/book/4taqmm1/
 - 娘娘扶摇直上 https://www.zheli518.com/book/4taqmlv/
 - 清穿女回来后[天幕] https://www.zheli518.com/book/4taqmlp/
@@ -45,7 +44,6 @@
 - 穿为龙傲天发妻后 https://www.zheli518.com/book/4taqmim/
 - [足球]雏鸟 https://www.zheli518.com/book/4taqmij/
 - 我们小区穿末世 https://www.zheli518.com/book/4taqmih/
-- 欲和离？夫君他目不识丁 https://www.zheli518.com/book/4taqmif/
 - 在年代文里跑运输 https://www.zheli518.com/book/4taqmie/
 - 强取师尊后 https://www.zheli518.com/book/4taqmid/
 - 万人嫌从末世回来了 https://www.zheli518.com/book/4taqmi7/
@@ -68,24 +66,26 @@
 - 恐游里的邻居们[万人迷] https://www.zheli518.com/book/4taqmh1/
 - 康熙宠妃日常 https://www.zheli518.com/book/4taqmh0/
 - 全世界名为爱的恶意 https://www.zheli518.com/book/4taqmgv/
-- 人，今晚土拨鼠站岗 https://www.zheli518.com/book/4taqmgu/
+- 笨蛋土拨鼠站岗日志 https://www.zheli518.com/book/4taqmgu/
 - 恐游作精女配求生指南 https://www.zheli518.com/book/4taqmgt/
 - 烈火焚身[巴黎圣母院] https://www.zheli518.com/book/4taqmgs/
 - 起初，我只是想找个冤大头 https://www.zheli518.com/book/4taqcam/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.zheli518.com/book/4taqa6t/
 - 上个鬼班[无限] https://www.zheli518.com/book/4taq5lu/
+- 限制文女王[快穿] https://www.zheli518.com/book/4taq03p/
 - 九零重组小家庭 https://www.zheli518.com/book/4tapuui/
 - 让暴君Alpha怀崽后 https://www.zheli518.com/book/4tapuc6/
 - [足球]足坛人生模拟器 https://www.zheli518.com/book/4tapu3m/
+- 直播忏悔室，吃瓜养宠圈 https://www.zheli518.com/book/4tapo5g/
 - 在卷王和废物之间选择做吉祥物 https://www.zheli518.com/book/4tapjtd/
 - 从维多利亚时代开始 https://www.zheli518.com/book/4tapgq3/
 - 昭暮 https://www.zheli518.com/book/4tapelp/
 - 始乱终弃清冷首辅后 https://www.zheli518.com/book/4tapavm/
+- 恶犬品德 https://www.zheli518.com/book/4tapavf/
 - 十九世纪贵族厨房（美食） https://www.zheli518.com/book/4tapaur/
 - 原配夫人 https://www.zheli518.com/book/4tapaku/
 - 完蛋！被恨孕男包围了！ https://www.zheli518.com/book/4tap3qr/
 - 高调装神，猥琐发育 https://www.zheli518.com/book/4tap3nr/
-- 我只梦你一页 https://www.zheli518.com/book/4tap3nf/
 - 食明 https://www.zheli518.com/book/4tap1q3/
 - 诡话第一boss https://www.zheli518.com/book/4taoubc/
 - 老实人妻，但顶级魅魔 https://www.zheli518.com/book/4taoru5/
@@ -97,7 +97,6 @@
 - 死遁的亡夫们都回来了 https://www.zheli518.com/book/4taoblf/
 - 我骗家里的钱养你啊 https://www.zheli518.com/book/4tao9rp/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.zheli518.com/book/4tao9i0/
-- 在民俗惊悚片被诸神庇护 https://www.zheli518.com/book/4tao2gi/
 - 死对头又在挑衅我 https://www.zheli518.com/book/4tao1jg/
 - 沈助理又在隐藏他的超能力 https://www.zheli518.com/book/4tao1b8/
 - 韩团绿卡不想忍了 https://www.zheli518.com/book/4tanukh/
@@ -122,6 +121,7 @@
 - 卷王后妈，八零养娃 https://www.zheli518.com/book/4tane6s/
 - 我187了，你敢见我吗？ https://www.zheli518.com/book/4tanac4/
 - 和姐姐的前女友欢愉后 https://www.zheli518.com/book/4tan80r/
+- 和小肥啾的海岛经营游戏 https://www.zheli518.com/book/4tamuu2/
 - 朕也要被强制吗？ https://www.zheli518.com/book/4tamuj8/
 - 在重生文里考科举 https://www.zheli518.com/book/4tamtk9/
 - 大唐守军家属 https://www.zheli518.com/book/4tamtgk/
@@ -131,7 +131,6 @@
 - 心动嫌疑人 https://www.zheli518.com/book/4tamocg/
 - 死亡悖论[无限流] https://www.zheli518.com/book/4tamnu8/
 - 带清冷女主回乡养螃蟹[种田] https://www.zheli518.com/book/4tamn6o/
-- 这个位面归我了！[经营] https://www.zheli518.com/book/4taml9u/
 - 清冷丞相怀了死对头的崽 https://www.zheli518.com/book/4tamk6h/
 - [崩铁]请给玩家一个准确的血条！ https://www.zheli518.com/book/4tamk3n/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.zheli518.com/book/4tamjqc/
@@ -140,7 +139,6 @@
 - 被糟蹋的老实人决定反击 https://www.zheli518.com/book/4tamg3s/
 - 假意逢承 https://www.zheli518.com/book/4tamc6t/
 - 趁她之危 https://www.zheli518.com/book/4tamc5d/
-- 恶犬攻绑定上司的乖狗系统 https://www.zheli518.com/book/4tam9sg/
 - 权宋一只统 https://www.zheli518.com/book/4tam8as/
 - 爱好和平但狂拆机甲 https://www.zheli518.com/book/4tam2g3/
 - 大瑛弟国 https://www.zheli518.com/book/4tal5hb/
@@ -156,6 +154,7 @@
 - 我是唯一地上神国 https://www.zheli518.com/book/4tal4cd/
 - 日化人生[科研] https://www.zheli518.com/book/4tal458/
 - 成为养成系练习生后 https://www.zheli518.com/book/4tal42q/
+- 千禧年，拆迁分了十栋楼！ https://www.zheli518.com/book/4tal3f0/
 - [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.zheli518.com/book/4tal3a0/
 - 天幕今天也在直播我搞基建 https://www.zheli518.com/book/4tal34q/
 - 老公对不起 https://www.zheli518.com/book/4tal2q6/

@@ -1,12 +1,11 @@
 
 # 书城读书网_免费小说在线阅读|无弹窗广告
 
-更新时间：2026-09-09 03:40:00
+更新时间：2026-09-10 03:40:08
 
 书城读书网是最热门的免费小说网站，提供包括玄幻、都市、言情等多种类型的小说在线阅读服务。这里不仅有最新章节的实时更新，还有全面的小说排行榜，让您轻松找到喜欢的作品。阅读体验极佳，全程无弹窗广告干扰，值得收藏！ https://www.shucheng168.com
 
 ## 最新小说
-- 入梦修罗场，但我脸盲 https://www.shucheng168.com/book/47fpabr/
 - 失忆后和死对头有了崽 https://www.shucheng168.com/book/47fpabm/
 - [综英美]和亲友群穿哥谭以后 https://www.shucheng168.com/book/47fpabg/
 - 禁止继承限制级雌君 https://www.shucheng168.com/book/47fpabe/
@@ -53,13 +52,12 @@
 - 全世界名为爱的恶意 https://www.shucheng168.com/book/47fpa8c/
 - 国运求生：我的金手指是生命树 https://www.shucheng168.com/book/47fpa88/
 - 好心的俄罗斯人 https://www.shucheng168.com/book/47fpa85/
-- 人，今晚土拨鼠站岗 https://www.shucheng168.com/book/47fpa84/
+- 笨蛋土拨鼠站岗日志 https://www.shucheng168.com/book/47fpa84/
 - 全民求生，但剑三 https://www.shucheng168.com/book/47fpa82/
 - [综英美]哥谭市民，在线抽卡 https://www.shucheng168.com/book/47fpa80/
 - 魔咒请说普通话[西幻] https://www.shucheng168.com/book/47fpa7v/
 - 欲加之罪 https://www.shucheng168.com/book/47fpa7u/
 - 仙尊心尖宠，但被魔尊抢了 https://www.shucheng168.com/book/47fpa7s/
-- 欲和离？夫君他目不识丁 https://www.shucheng168.com/book/47fpa7n/
 - 漫画取材所引发的修罗场 https://www.shucheng168.com/book/47fpa7f/
 - ［综英美］蝙蝠崽？我不是啊！ https://www.shucheng168.com/book/47fpa7c/
 - 世界伏于她刀下[无限] https://www.shucheng168.com/book/47fpa78/
@@ -74,17 +72,19 @@
 - 起初，我只是想找个冤大头 https://www.shucheng168.com/book/47fovvl/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.shucheng168.com/book/47fotoj/
 - 上个鬼班[无限] https://www.shucheng168.com/book/47fopdk/
+- 限制文女王[快穿] https://www.shucheng168.com/book/47fojrk/
 - 九零重组小家庭 https://www.shucheng168.com/book/47foiov/
 - 让暴君Alpha怀崽后 https://www.shucheng168.com/book/47foi4f/
 - [足球]足坛人生模拟器 https://www.shucheng168.com/book/47fohol/
+- 直播忏悔室，吃瓜养宠圈 https://www.shucheng168.com/book/47fobq8/
 - 在卷王和废物之间选择做吉祥物 https://www.shucheng168.com/book/47fo7hj/
 - 从维多利亚时代开始 https://www.shucheng168.com/book/47fo4fs/
 - 昭暮 https://www.shucheng168.com/book/47fo26p/
+- 恶犬品德 https://www.shucheng168.com/book/47fnuj7/
 - 原配夫人 https://www.shucheng168.com/book/47fnuft/
 - 始乱终弃清冷首辅后 https://www.shucheng168.com/book/47fnufg/
 - 十九世纪贵族厨房（美食） https://www.shucheng168.com/book/47fnudm/
 - 完蛋！被恨孕男包围了！ https://www.shucheng168.com/book/47fnnd3/
-- 我只梦你一页 https://www.shucheng168.com/book/47fnna2/
 - 高调装神，猥琐发育 https://www.shucheng168.com/book/47fnn9t/
 - 食明 https://www.shucheng168.com/book/47fnla8/
 - 诡话第一boss https://www.shucheng168.com/book/47fni3q/
@@ -97,7 +97,6 @@
 - 我骗家里的钱养你啊 https://www.shucheng168.com/book/47fmuuq/
 - 死遁的亡夫们都回来了 https://www.shucheng168.com/book/47fmtom/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.shucheng168.com/book/47fmtkq/
-- 在民俗惊悚片被诸神庇护 https://www.shucheng168.com/book/47fmlvc/
 - 死对头又在挑衅我 https://www.shucheng168.com/book/47fml1j/
 - 沈助理又在隐藏他的超能力 https://www.shucheng168.com/book/47fmked/
 - 被天使之王骗婚后[诡秘之主] https://www.shucheng168.com/book/47fmjjr/
@@ -122,6 +121,7 @@
 - 在魔法贵族学院当白月光 https://www.shucheng168.com/book/47fm1et/
 - 我187了，你敢见我吗？ https://www.shucheng168.com/book/47flur9/
 - 和姐姐的前女友欢愉后 https://www.shucheng168.com/book/47flqhl/
+- 和小肥啾的海岛经营游戏 https://www.shucheng168.com/book/47fljod/
 - 在重生文里考科举 https://www.shucheng168.com/book/47fljhl/
 - 大唐守军家属 https://www.shucheng168.com/book/47flj6r/
 - 朕也要被强制吗？ https://www.shucheng168.com/book/47flh3n/
@@ -130,7 +130,6 @@
 - 死亡悖论[无限流] https://www.shucheng168.com/book/47flci7/
 - 心动嫌疑人 https://www.shucheng168.com/book/47flch0/
 - 妻主风流（女尊） https://www.shucheng168.com/book/47flc2d/
-- 这个位面归我了！[经营] https://www.shucheng168.com/book/47flas3/
 - 带清冷女主回乡养螃蟹[种田] https://www.shucheng168.com/book/47fl9oh/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.shucheng168.com/book/47fl80u/
 - 清冷丞相怀了死对头的崽 https://www.shucheng168.com/book/47fl7g2/
@@ -140,7 +139,6 @@
 - 和山神搭伙开农场的日子 https://www.shucheng168.com/book/47fl47h/
 - 假意逢承 https://www.shucheng168.com/book/47fl29p/
 - 趁她之危 https://www.shucheng168.com/book/47fkvqe/
-- 恶犬攻绑定上司的乖狗系统 https://www.shucheng168.com/book/47fksqr/
 - 权宋一只统 https://www.shucheng168.com/book/47fkq9t/
 - 爱好和平但狂拆机甲 https://www.shucheng168.com/book/47fkm99/
 - 老公对不起 https://www.shucheng168.com/book/47fjp6a/
@@ -157,6 +155,7 @@
 - 清澈女大的六零年代 https://www.shucheng168.com/book/47fjmea/
 - [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.shucheng168.com/book/47fjmdi/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.shucheng168.com/book/47fjmcs/
+- 千禧年，拆迁分了十栋楼！ https://www.shucheng168.com/book/47fjm8n/
 - 我有一座安全城 https://www.shucheng168.com/book/47fjm8g/
 - 六零之成了卷王的妹妹 https://www.shucheng168.com/book/47fjm7d/
 - 天幕今天也在直播我搞基建 https://www.shucheng168.com/book/47fjm6b/

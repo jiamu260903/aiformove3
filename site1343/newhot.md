@@ -1,7 +1,7 @@
 
 # 左叶小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-09-09 03:37:06
+更新时间：2026-09-10 03:37:16
 
 左叶小说网为读者提供了一个丰富多样的小说阅读体验，汇集了各类热门、经典以及新作小说资源，是书友们寻找好书的理想之地。 https://www.pusytgp.com
 
@@ -22,6 +22,7 @@
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.pusytgp.com/book/7pbouif/
 - 暴君偏头痛 https://www.pusytgp.com/book/7pbouic/
 - 渡鬼 https://www.pusytgp.com/book/7pbouh6/
+- 痴情女配开始放手了（快穿） https://www.pusytgp.com/book/7pboufn/
 - 修仙界都为我神魂颠倒 https://www.pusytgp.com/book/7pbot7p/
 - [足球]这只后锋小熊是你家俱乐部掉的吗？ https://www.pusytgp.com/book/7pbot66/
 - 穿成年代文奇葩前妻 https://www.pusytgp.com/book/7pbosvl/
@@ -42,6 +43,7 @@
 - cos温迪后玩到真崩铁了 https://www.pusytgp.com/book/7pboeso/
 - 朕看上的少年是侠女 https://www.pusytgp.com/book/7pboe94/
 - 你，后室管理员 https://www.pusytgp.com/book/7pboe7m/
+- 我不是正夫吗？ https://www.pusytgp.com/book/7pboe7c/
 - 娇气点怎么啦？［快穿］ https://www.pusytgp.com/book/7pboe7b/
 - [崩铁]这丰饶孽物我当定了！ https://www.pusytgp.com/book/7pbodfg/
 - 不义世界都是我马甲[综英美] https://www.pusytgp.com/book/7pbodag/
@@ -302,7 +304,6 @@
 - 汉武帝戾太子什么含金量 https://www.pusytgp.com/book/7pblneg/
 - 当烫男人走错了片场 https://www.pusytgp.com/book/7pblne2/
 - 在横滨横行霸道的那些年 https://www.pusytgp.com/book/7pblnbj/
-- 冷傲上司绑定娇妻系统后 https://www.pusytgp.com/book/7pbln5m/
 - 摄政长公主穿成炮灰女配[七零] https://www.pusytgp.com/book/7pbln0b/
 - 瓮中惊春 https://www.pusytgp.com/book/7pblmsf/
 - 这死beta老说我们不可能 https://www.pusytgp.com/book/7pblmqe/
@@ -417,7 +418,6 @@
 - [足球]罗蜜第一志愿 https://www.pusytgp.com/book/7pbl90o/
 - 被四皇错看成小动物后 https://www.pusytgp.com/book/7pbl7v1/
 - 战死的阿爹回来了[年代] https://www.pusytgp.com/book/7pbl0of/
-- 刀子精手心的人偶崽崽 https://www.pusytgp.com/book/7pbl0kn/
 - [综英美]让我统治哥谭！！！ https://www.pusytgp.com/book/7pbkumb/
 - 好巧，你也是妹控？[综崩铁] https://www.pusytgp.com/book/7pbksfn/
 - 欢迎来到重生点 https://www.pusytgp.com/book/7pbks23/

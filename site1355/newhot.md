@@ -1,7 +1,7 @@
 
 # 梦翔橙子小说网-全本小说最值得收藏的在线阅读平台
 
-更新时间：2026-09-09 03:35:49
+更新时间：2026-09-10 03:36:01
 
 梦翔橙子小说网为您提供最新、最热门的小说资源，拥有全网最全面的小说库。无论是全本还是连载中，都能在这里找到。是解决书荒问题的理想选择，让您的阅读体验更加流畅愉快。 https://www.mengxiang668.com
 
@@ -31,6 +31,7 @@
 - [足球]番外乐子集 https://www.mengxiang668.com/book/2nrptst/
 - 我超凶的！[快穿] https://www.mengxiang668.com/book/2nrps0a/
 - 我比反派先崩坏[快穿] https://www.mengxiang668.com/book/2nrpr9q/
+- 痴情女配开始放手了（快穿） https://www.mengxiang668.com/book/2nrpr0e/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.mengxiang668.com/book/2nrpr0c/
 - 渡鬼 https://www.mengxiang668.com/book/2nrpqt5/
 - cos温迪后玩到真崩铁了 https://www.mengxiang668.com/book/2nrpmqu/
@@ -56,6 +57,7 @@
 - 特殊魅力值，已到账 https://www.mengxiang668.com/book/2nrp0o0/
 - 昭暮 https://www.mengxiang668.com/book/2nrovib/
 - 你，后室管理员 https://www.mengxiang668.com/book/2nrornj/
+- 我不是正夫吗？ https://www.mengxiang668.com/book/2nrorjb/
 - 朕看上的少年是侠女 https://www.mengxiang668.com/book/2nrorf0/
 - 高调装神，猥琐发育 https://www.mengxiang668.com/book/2nrokhd/
 - 我在无限游戏里假扮NPC[无限流] https://www.mengxiang668.com/book/2nroe51/
@@ -335,7 +337,6 @@
 - 关于我想和太宰当一辈子的挚友可是他怎么居然想和我结婚这件事 https://www.mengxiang668.com/book/2nrmtc2/
 - 师妹为何要如此 https://www.mengxiang668.com/book/2nrmt85/
 - 下堂驸马追妻实录 https://www.mengxiang668.com/book/2nrmt7n/
-- 冷傲上司绑定娇妻系统后 https://www.mengxiang668.com/book/2nrmt5r/
 - [全职高手]问就是没钱 https://www.mengxiang668.com/book/2nrmt5k/
 - 娇婚惯养 https://www.mengxiang668.com/book/2nrmt3t/
 - 正常人成为虫母后沦陷修罗场 https://www.mengxiang668.com/book/2nrmt0h/
@@ -414,7 +415,6 @@
 - 吐槽役审神者会爆改幕后大boss吗 https://www.mengxiang668.com/book/2nrmlka/
 - 我最讨厌打球了！ https://www.mengxiang668.com/book/2nrmj4m/
 - 求生游戏：当邪神成为生活玩家后 https://www.mengxiang668.com/book/2nrmis8/
-- 刀子精手心的人偶崽崽 https://www.mengxiang668.com/book/2nrmi4t/
 - 幼崽假少爷选择回归寒门 https://www.mengxiang668.com/book/2nrmcnb/
 - [足球]小小鸟堂堂来袭 https://www.mengxiang668.com/book/2nrmbe3/
 - 欢迎来到重生点 https://www.mengxiang668.com/book/2nrm95g/

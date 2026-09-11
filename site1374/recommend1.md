@@ -1,7 +1,7 @@
 
 # 看居中文网_免费小说在线阅读|无弹窗广告值得收藏
 
-更新时间：2026-09-09 03:32:30
+更新时间：2026-09-10 03:32:48
 
 看居中文网是最热门的免费小说网站，提供包括但不限于玄幻、都市、言情等多种类型的小说在线阅读服务。本站实时更新小说最新章节列表，拥有全面的小说排行榜，致力于为读者提供一个干净舒适的阅读环境，无弹窗广告干扰，是您寻找好书的理想之地。 https://www.kanju688.com
 
@@ -27,7 +27,6 @@
 - 我只想上京赶考啊[聊斋] https://www.kanju688.com/book/pb0bam/
 - 在中世纪做奴隶 https://www.kanju688.com/book/pb0bal/
 - 国师 https://www.kanju688.com/book/pb0bak/
-- 欲和离？夫君他目不识丁 https://www.kanju688.com/book/pb0baf/
 - 恐游作精女配求生指南 https://www.kanju688.com/book/pb0bae/
 - 好心的俄罗斯人 https://www.kanju688.com/book/pb0bac/
 - 热恋过期需重追 https://www.kanju688.com/book/pb0bab/
@@ -66,7 +65,7 @@
 - 康熙宠妃日常 https://www.kanju688.com/book/pb0b7k/
 - 娘娘扶摇直上 https://www.kanju688.com/book/pb0b7h/
 - ［综英美］蝙蝠崽？我不是啊！ https://www.kanju688.com/book/pb0b7d/
-- 人，今晚土拨鼠站岗 https://www.kanju688.com/book/pb0b7b/
+- 笨蛋土拨鼠站岗日志 https://www.kanju688.com/book/pb0b7b/
 - 死遁APP https://www.kanju688.com/book/pb0b7a/
 - [全职高手]治疗什么的不干了！ https://www.kanju688.com/book/pb0b79/
 - 魔尊闭关十年连生十一子？！ https://www.kanju688.com/book/pb0b76/
@@ -131,7 +130,6 @@
 - 妻主风流（女尊） https://www.kanju688.com/book/pasdl6/
 - 死亡悖论[无限流] https://www.kanju688.com/book/pasdip/
 - 带清冷女主回乡养螃蟹[种田] https://www.kanju688.com/book/pasac9/
-- 这个位面归我了！[经营] https://www.kanju688.com/book/pas9de/
 - [崩铁]请给玩家一个准确的血条！ https://www.kanju688.com/book/pas8gi/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.kanju688.com/book/pas7kb/
 - 村霸非要入赘受气包 https://www.kanju688.com/book/pas6ts/

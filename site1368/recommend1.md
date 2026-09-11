@@ -1,7 +1,7 @@
 
 # 探秘书院-全本小说最值得收藏的绿色无弹窗免费小说阅读网
 
-更新时间：2026-09-09 03:42:18
+更新时间：2026-09-10 03:42:28
 
 探秘书院提供全本网文爱好者一个纯净、安全、高质量的免费小说阅读环境，支持最新章节在线阅读，所有内容均为绿色无弹窗且保证无错字。 https://www.tanmi918.com
 
@@ -45,7 +45,6 @@
 - 热恋过期需重追 https://www.tanmi918.com/book/80r4sp9/
 - 穿为龙傲天发妻后 https://www.tanmi918.com/book/80r4sp5/
 - 康熙宠妃日常 https://www.tanmi918.com/book/80r4sp3/
-- 欲和离？夫君他目不识丁 https://www.tanmi918.com/book/80r4sp2/
 - 清穿女回来后[天幕] https://www.tanmi918.com/book/80r4sok/
 - 我们小区穿末世 https://www.tanmi918.com/book/80r4soj/
 - 死遁APP https://www.tanmi918.com/book/80r4soi/
@@ -69,7 +68,7 @@
 - [综英美]哥谭市民，在线抽卡 https://www.tanmi918.com/book/80r4sn3/
 - 恶毒男配只想躺平 https://www.tanmi918.com/book/80r4sn2/
 - [全职高手]治疗什么的不干了！ https://www.tanmi918.com/book/80r4sn1/
-- 人，今晚土拨鼠站岗 https://www.tanmi918.com/book/80r4smv/
+- 笨蛋土拨鼠站岗日志 https://www.tanmi918.com/book/80r4smv/
 - 星露谷，但日本战国 https://www.tanmi918.com/book/80r4smq/
 - 起初，我只是想找个冤大头 https://www.tanmi918.com/book/80r4if2/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.tanmi918.com/book/80r4gbj/
@@ -130,7 +129,6 @@
 - 妻主风流（女尊） https://www.tanmi918.com/book/80r0vdd/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.tanmi918.com/book/80r0vag/
 - 心动嫌疑人 https://www.tanmi918.com/book/80r0usd/
-- 这个位面归我了！[经营] https://www.tanmi918.com/book/80r0s42/
 - 带清冷女主回乡养螃蟹[种田] https://www.tanmi918.com/book/80r0r5g/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.tanmi918.com/book/80r0q2t/
 - 村霸非要入赘受气包 https://www.tanmi918.com/book/80r0ok0/

@@ -1,7 +1,7 @@
 
 # 新乐文小说 - 最热门免费在线阅读平台 | 玄幻、网游、言情、穿越、都市全本小说
 
-更新时间：2026-09-09 03:34:23
+更新时间：2026-09-10 03:34:36
 
 新乐文小说为您提供一个无广告无弹窗的纯净阅读环境，专注于玄幻、网游、言情、穿越、都市等多种类型的小说在线阅读体验。在这里可以找到最新最热的小说章节更新，享受舒适的阅读时光。 https://www.ksqinlida.com
 
@@ -48,7 +48,6 @@
 - [综英美]哥谭市民，在线抽卡 https://www.ksqinlida.com/book/1svdojd/
 - 炮灰的海外亲戚回国啦！ https://www.ksqinlida.com/book/1svdojc/
 - 娘娘扶摇直上 https://www.ksqinlida.com/book/1svdojb/
-- 欲和离？夫君他目不识丁 https://www.ksqinlida.com/book/1svdoja/
 - 双生子反派的端水抑郁妈[九零] https://www.ksqinlida.com/book/1svdoj9/
 - 暗恋的价格是三万块 https://www.ksqinlida.com/book/1svdoj8/
 - [综英美]和亲友群穿哥谭以后 https://www.ksqinlida.com/book/1svdoj7/
@@ -70,7 +69,7 @@
 - 烈火焚身[巴黎圣母院] https://www.ksqinlida.com/book/1svdoil/
 - 我只想上京赶考啊[聊斋] https://www.ksqinlida.com/book/1svdoik/
 - ［综英美］蝙蝠崽？我不是啊！ https://www.ksqinlida.com/book/1svdoij/
-- 人，今晚土拨鼠站岗 https://www.ksqinlida.com/book/1svdoii/
+- 笨蛋土拨鼠站岗日志 https://www.ksqinlida.com/book/1svdoii/
 - 和治君只是饭搭子的关系 https://www.ksqinlida.com/book/1svdoih/
 - 恐游里的邻居们[万人迷] https://www.ksqinlida.com/book/1svdoig/
 - 热恋过期需重追 https://www.ksqinlida.com/book/1svdoif/
@@ -133,7 +132,6 @@
 - 多梦你一会儿 https://www.ksqinlida.com/book/635cmb/
 - 被糟蹋的老实人决定反击 https://www.ksqinlida.com/book/635bd6/
 - 韩团绿卡不想忍了 https://www.ksqinlida.com/book/635b5q/
-- 这个位面归我了！[经营] https://www.ksqinlida.com/book/6357pn/
 - 村霸非要入赘受气包 https://www.ksqinlida.com/book/6357ad/
 - 卷王后妈，八零养娃 https://www.ksqinlida.com/book/6356r2/
 - 清冷丞相怀了死对头的崽 https://www.ksqinlida.com/book/6356hs/

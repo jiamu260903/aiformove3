@@ -1,7 +1,7 @@
 
 # 紫玉海小说 - 好看的言情小说推荐,热门小说在线阅读
 
-更新时间：2026-09-09 03:50:16
+更新时间：2026-09-10 03:50:48
 
 紫玉海小说网提供好看的言情小说推荐，热门小说推荐，包括都市言情、霸道总裁、古代言情、穿越重生等优质资源在线阅读，好小说尽在自由屋推书网。 https://www.ziyuhai.com
 
@@ -27,10 +27,12 @@
 - 渡鬼 https://www.ziyuhai.com/book/84rn54o/
 - 青城玩家明明超强却过分谨慎 https://www.ziyuhai.com/book/84rn54h/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.ziyuhai.com/book/84rn54a/
+- 痴情女配开始放手了（快穿） https://www.ziyuhai.com/book/84rn53e/
 - [封神]圣人生欲 https://www.ziyuhai.com/book/84rn52m/
 - 你，后室管理员 https://www.ziyuhai.com/book/84rn52k/
 - 朕看上的少年是侠女 https://www.ziyuhai.com/book/84rn522/
 - 被四皇错看成小动物后 https://www.ziyuhai.com/book/84rn521/
+- 我不是正夫吗？ https://www.ziyuhai.com/book/84rn51v/
 - 高调装神，猥琐发育 https://www.ziyuhai.com/book/84rn50f/
 - 魔物堆里的人类幼崽 https://www.ziyuhai.com/book/84rn4v9/
 - 满级竹马从异世穿回来了 https://www.ziyuhai.com/book/84rn4sc/
@@ -334,7 +336,6 @@
 - 被离婚后嫁给了年代文大佬[穿书] https://www.ziyuhai.com/book/q2qanf/
 - 龙傲天未婚妻不退婚了 https://www.ziyuhai.com/book/q2qakb/
 - 逆序布鲁斯的好大儿 https://www.ziyuhai.com/book/q2qaha/
-- 冷傲上司绑定娇妻系统后 https://www.ziyuhai.com/book/q2qago/
 - 养个诡异当老婆 https://www.ziyuhai.com/book/q2qade/
 - 白月光拒绝拯救反派 https://www.ziyuhai.com/book/q2qabr/
 - 贵族学院F4中的第四人 https://www.ziyuhai.com/book/q2qa92/

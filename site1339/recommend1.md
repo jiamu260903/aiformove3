@@ -1,12 +1,11 @@
 
 # 三哥小说网 - 最热门的免费小说阅读平台
 
-更新时间：2026-09-09 03:44:30
+更新时间：2026-09-10 03:44:44
 
 三哥小说网致力于为读者提供一个无广告无弹窗的在线小说阅读环境，涵盖玄幻、网游、言情、穿越及都市等多种类型的小说资源，支持全本小说在线阅读与最新章节更新。 https://www.wkntmcb.com
 
 ## 最新小说
-- 入梦修罗场，但我脸盲 https://www.wkntmcb.com/book/48j2f1l/
 - 国师 https://www.wkntmcb.com/book/48j2f1i/
 - 失忆后和死对头有了崽 https://www.wkntmcb.com/book/48j2f1h/
 - 谁都不爱的和亲公主 https://www.wkntmcb.com/book/48j2f1g/
@@ -25,7 +24,6 @@
 - 大佬的漂亮老婆回来带崽了[八零] https://www.wkntmcb.com/book/48j2f09/
 - 怨明月不独照 https://www.wkntmcb.com/book/48j2f08/
 - 恶毒男配只想躺平 https://www.wkntmcb.com/book/48j2f07/
-- 欲和离？夫君他目不识丁 https://www.wkntmcb.com/book/48j2f06/
 - 热恋过期需重追 https://www.wkntmcb.com/book/48j2f03/
 - 在年代文里跑运输 https://www.wkntmcb.com/book/48j2f02/
 - 世界伏于她刀下[无限] https://www.wkntmcb.com/book/48j2evu/
@@ -51,7 +49,7 @@
 - 康熙宠妃日常 https://www.wkntmcb.com/book/48j2eu5/
 - 万人嫌从末世回来了 https://www.wkntmcb.com/book/48j2ett/
 - 双生子反派的端水抑郁妈[九零] https://www.wkntmcb.com/book/48j2ets/
-- 人，今晚土拨鼠站岗 https://www.wkntmcb.com/book/48j2etr/
+- 笨蛋土拨鼠站岗日志 https://www.wkntmcb.com/book/48j2etr/
 - 正是冬雪沸腾时 https://www.wkntmcb.com/book/48j2eto/
 - 我们小区穿末世 https://www.wkntmcb.com/book/48j2etn/
 - 病美人重生日记 https://www.wkntmcb.com/book/48j2etk/
@@ -76,13 +74,15 @@
 - 夫人每天都在伪装 https://www.wkntmcb.com/book/48j2esb/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.wkntmcb.com/book/48j28na/
 - 上个鬼班[无限] https://www.wkntmcb.com/book/48j1up0/
+- 恶犬品德 https://www.wkntmcb.com/book/48j1tp4/
 - 原配夫人 https://www.wkntmcb.com/book/48j1tnm/
 - 始乱终弃清冷首辅后 https://www.wkntmcb.com/book/48j1tn9/
 - 让暴君Alpha怀崽后 https://www.wkntmcb.com/book/48j1s7d/
-- 我只梦你一页 https://www.wkntmcb.com/book/48j1qkh/
 - 九零重组小家庭 https://www.wkntmcb.com/book/48j1p78/
+- 限制文女王[快穿] https://www.wkntmcb.com/book/48j1ol8/
 - [足球]足坛人生模拟器 https://www.wkntmcb.com/book/48j1mfe/
 - 趁她之危 https://www.wkntmcb.com/book/48j1gn6/
+- 直播忏悔室，吃瓜养宠圈 https://www.wkntmcb.com/book/48j1gj1/
 - 在卷王和废物之间选择做吉祥物 https://www.wkntmcb.com/book/48j1cqc/
 - 完蛋！被恨孕男包围了！ https://www.wkntmcb.com/book/48j1cpc/
 - 昭暮 https://www.wkntmcb.com/book/48j19j2/
@@ -95,6 +95,7 @@
 - 起初，我只是想找个冤大头 https://www.wkntmcb.com/book/48j0ga8/
 - [足球]我的游戏存档成真了？！ https://www.wkntmcb.com/book/48j0c82/
 - 让你们无剧本可走（快穿） https://www.wkntmcb.com/book/48j0bp1/
+- 千禧年，拆迁分了十栋楼！ https://www.wkntmcb.com/book/48j0bo4/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.wkntmcb.com/book/48j0aud/
 - 直男咒术师的限制级游戏 https://www.wkntmcb.com/book/48j0ar4/
 - 我与龙傲天寿命共享 https://www.wkntmcb.com/book/48j06vj/
@@ -103,7 +104,6 @@
 - 被天使之王骗婚后[诡秘之主] https://www.wkntmcb.com/book/48ivooe/
 - 死对头又在挑衅我 https://www.wkntmcb.com/book/48ivom9/
 - 沈助理又在隐藏他的超能力 https://www.wkntmcb.com/book/48ivlsk/
-- 在民俗惊悚片被诸神庇护 https://www.wkntmcb.com/book/48ivipt/
 - 从童星开始杀穿港娱 https://www.wkntmcb.com/book/48ivg5i/
 - 漂亮女配是万人迷［快穿］ https://www.wkntmcb.com/book/48ivdvk/
 - 月亮上的大筒木 https://www.wkntmcb.com/book/48ivdir/
@@ -124,11 +124,11 @@
 - 卷王后妈，八零养娃 https://www.wkntmcb.com/book/48iuv85/
 - [封神]圣人生欲 https://www.wkntmcb.com/book/48ius3c/
 - 大唐守军家属 https://www.wkntmcb.com/book/48iunle/
+- 和小肥啾的海岛经营游戏 https://www.wkntmcb.com/book/48iun6c/
 - 朕也要被强制吗？ https://www.wkntmcb.com/book/48iulm2/
 - 在重生文里考科举 https://www.wkntmcb.com/book/48iujdj/
 - 韩团绿卡不想忍了 https://www.wkntmcb.com/book/48iui3d/
 - 妻主风流（女尊） https://www.wkntmcb.com/book/48iugql/
-- 这个位面归我了！[经营] https://www.wkntmcb.com/book/48iufcd/
 - 心动嫌疑人 https://www.wkntmcb.com/book/48iuej6/
 - 死亡悖论[无限流] https://www.wkntmcb.com/book/48iueg1/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.wkntmcb.com/book/48iuc63/
@@ -140,7 +140,6 @@
 - 被糟蹋的老实人决定反击 https://www.wkntmcb.com/book/48iu7h9/
 - 假意逢承 https://www.wkntmcb.com/book/48iu5bi/
 - 和山神搭伙开农场的日子 https://www.wkntmcb.com/book/48iu543/
-- 恶犬攻绑定上司的乖狗系统 https://www.wkntmcb.com/book/48iu2l6/
 - 权宋一只统 https://www.wkntmcb.com/book/48itvs7/
 - 爱好和平但狂拆机甲 https://www.wkntmcb.com/book/48itq7f/
 - 日化人生[科研] https://www.wkntmcb.com/book/48istsq/

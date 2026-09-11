@@ -1,12 +1,11 @@
 
 # 紫玉海小说 - 好看的言情小说推荐,热门小说在线阅读
 
-更新时间：2026-09-09 03:50:16
+更新时间：2026-09-10 03:50:48
 
 紫玉海小说网提供好看的言情小说推荐，热门小说推荐，包括都市言情、霸道总裁、古代言情、穿越重生等优质资源在线阅读，好小说尽在自由屋推书网。 https://www.ziyuhai.com
 
 ## 最新小说
-- 入梦修罗场，但我脸盲 https://www.ziyuhai.com/book/84rn5an/
 - 清穿女回来后[天幕] https://www.ziyuhai.com/book/84rn5aj/
 - 欲加之罪 https://www.ziyuhai.com/book/84rn5ai/
 - 魔尊闭关十年连生十一子？！ https://www.ziyuhai.com/book/84rn5ah/
@@ -33,10 +32,9 @@
 - ［综英美］蝙蝠崽？我不是啊！ https://www.ziyuhai.com/book/84rn59s/
 - 烈火焚身[巴黎圣母院] https://www.ziyuhai.com/book/84rn59r/
 - 怨明月不独照 https://www.ziyuhai.com/book/84rn59q/
-- 欲和离？夫君他目不识丁 https://www.ziyuhai.com/book/84rn59p/
 - 魔法种田，从退队经营农场开始 https://www.ziyuhai.com/book/84rn59o/
 - 如何正确哄睡暴君 https://www.ziyuhai.com/book/84rn59n/
-- 人，今晚土拨鼠站岗 https://www.ziyuhai.com/book/84rn59m/
+- 笨蛋土拨鼠站岗日志 https://www.ziyuhai.com/book/84rn59m/
 - [洪荒]成为太清妹妹后 https://www.ziyuhai.com/book/84rn59l/
 - 世界伏于她刀下[无限] https://www.ziyuhai.com/book/84rn59k/
 - 星露谷，但日本战国 https://www.ziyuhai.com/book/84rn59j/
@@ -83,19 +81,22 @@
 - 原配夫人 https://www.ziyuhai.com/book/84rn529/
 - 十九世纪贵族厨房（美食） https://www.ziyuhai.com/book/84rn527/
 - 始乱终弃清冷首辅后 https://www.ziyuhai.com/book/84rn51r/
-- 我只梦你一页 https://www.ziyuhai.com/book/84rn50h/
 - 高调装神，猥琐发育 https://www.ziyuhai.com/book/84rn50f/
+- 千禧年，拆迁分了十栋楼！ https://www.ziyuhai.com/book/84rn4sb/
 - 直男咒术师的限制级游戏 https://www.ziyuhai.com/book/84rn4s3/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.ziyuhai.com/book/84rn4rr/
 - 六零之成了卷王的妹妹 https://www.ziyuhai.com/book/84rn3ja/
 - 路人攻了主角攻［快穿］ https://www.ziyuhai.com/book/84rn3hr/
 - 昭暮 https://www.ziyuhai.com/book/84rmq1q/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.ziyuhai.com/book/84rme9l/
+- 恶犬品德 https://www.ziyuhai.com/book/84rmdp6/
 - 老公对不起 https://www.ziyuhai.com/book/84rm0co/
+- 限制文女王[快穿] https://www.ziyuhai.com/book/84rlfn4/
 - 上个鬼班[无限] https://www.ziyuhai.com/book/84rld9o/
 - 九零重组小家庭 https://www.ziyuhai.com/book/84rlbnt/
 - [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.ziyuhai.com/book/84rlah0/
 - [足球]足坛人生模拟器 https://www.ziyuhai.com/book/84rl70i/
+- 直播忏悔室，吃瓜养宠圈 https://www.ziyuhai.com/book/84rl6q0/
 - 在卷王和废物之间选择做吉祥物 https://www.ziyuhai.com/book/84rl1mn/
 - 从维多利亚时代开始 https://www.ziyuhai.com/book/84rkr5m/
 - 如何嫁给当朝首辅 https://www.ziyuhai.com/book/84rkcbo/
@@ -128,20 +129,18 @@
 - 大唐守军家属 https://www.ziyuhai.com/book/q2puo8/
 - 朕也要被强制吗？ https://www.ziyuhai.com/book/q2prpp/
 - 在重生文里考科举 https://www.ziyuhai.com/book/q2pr1g/
+- 和小肥啾的海岛经营游戏 https://www.ziyuhai.com/book/q2pp8c/
 - 妻主风流（女尊） https://www.ziyuhai.com/book/q2pmhd/
 - 多梦你一会儿 https://www.ziyuhai.com/book/q2pi25/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.ziyuhai.com/book/q2ph3s/
 - 被糟蹋的老实人决定反击 https://www.ziyuhai.com/book/q2pgsg/
 - 韩团绿卡不想忍了 https://www.ziyuhai.com/book/q2pgi8/
-- 这个位面归我了！[经营] https://www.ziyuhai.com/book/q2pcid/
 - 卷王后妈，八零养娃 https://www.ziyuhai.com/book/q2pbsc/
 - 村霸非要入赘受气包 https://www.ziyuhai.com/book/q2pbl3/
 - 清冷丞相怀了死对头的崽 https://www.ziyuhai.com/book/q2pbg8/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.ziyuhai.com/book/q2p9tl/
 - 和山神搭伙开农场的日子 https://www.ziyuhai.com/book/q2p8tt/
-- 恶犬攻绑定上司的乖狗系统 https://www.ziyuhai.com/book/q2p7g0/
 - 心动嫌疑人 https://www.ziyuhai.com/book/q2p7dp/
-- 在民俗惊悚片被诸神庇护 https://www.ziyuhai.com/book/q2p57s/
 - 假意逢承 https://www.ziyuhai.com/book/q2p48n/
 - 死亡悖论[无限流] https://www.ziyuhai.com/book/q2p3uu/
 - 带清冷女主回乡养螃蟹[种田] https://www.ziyuhai.com/book/q2p36q/

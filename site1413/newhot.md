@@ -1,11 +1,108 @@
 
 # 雷火小说网 - 最新最全的小说阅读平台
 
-更新时间：2026-09-09 03:48:24
+更新时间：2026-09-10 03:48:47
 
 雷火小说网提供海量正版小说资源，在线免费阅读最新热门小说，支持手机电脑多端同步阅读，是书友们值得收藏的优质小说阅读网站。 https://www.yskuq.com
 
 ## 最新小说
+- [足球]葡萄牙世界杯if线 https://www.yskuq.com/book/6nqqtp5/
+- 每天回到家都看到雄虫在装死 https://www.yskuq.com/book/6nqqtok/
+- 被欺负的老实人[快穿] https://www.yskuq.com/book/6nqqthe/
+- 我于江湖已无敌 https://www.yskuq.com/book/6nqqth5/
+- 和室友他爸恋爱后 https://www.yskuq.com/book/6nqqta0/
+- 穿成猫的咒术高专生活 https://www.yskuq.com/book/6nqqt8o/
+- 伪装路人后成了反派首领 https://www.yskuq.com/book/6nqqt7e/
+- 渣过我的主角全都重生了[快穿] https://www.yskuq.com/book/6nqqsie/
+- 某横滨的时间操纵 https://www.yskuq.com/book/6nqqsac/
+- 我在无限游戏里假扮NPC[无限流] https://www.yskuq.com/book/6nqqs9p/
+- 暗堕本丸，在线直播 https://www.yskuq.com/book/6nqqrno/
+- 我有一座城 https://www.yskuq.com/book/6nqqqo6/
+- 重组家庭，但美校搞基！ https://www.yskuq.com/book/6nqqqld/
+- 女装生崽，娃爹宇智波 https://www.yskuq.com/book/6nqqqcv/
+- 我不可能舔一个漂亮捞子 https://www.yskuq.com/book/6nqqqca/
+- 我当县令那些年 https://www.yskuq.com/book/6nqqq16/
+- 五美元在哥谭活一月 https://www.yskuq.com/book/6nqqpfi/
+- 老公是松散生命体 https://www.yskuq.com/book/6nqqouu/
+- 优质攻不做恋爱脑[快穿] https://www.yskuq.com/book/6nqqot6/
+- 逝水 https://www.yskuq.com/book/6nqqorn/
+- 作为甚尔亡妻的我变成触手了！ https://www.yskuq.com/book/6nqqo3e/
+- [足球]听克圣的话，成了米兰金童 https://www.yskuq.com/book/6nqqo0u/
+- [综英美]是谁家的小鹿 https://www.yskuq.com/book/6nqqnju/
+- 超A奶龙饲养指南 https://www.yskuq.com/book/6nqqnht/
+- 微臣怜惜公主 https://www.yskuq.com/book/6nqqngn/
+- bl世界的路人不想被掰弯 https://www.yskuq.com/book/6nqqn9b/
+- 我在虫族扮绿茶吃老虎 https://www.yskuq.com/book/6nqqmjo/
+- 被马甲团宠的我开启地狱模式 https://www.yskuq.com/book/6nqqmee/
+- [综英美]flash小游戏，哥谭出品 https://www.yskuq.com/book/6nqqlsq/
+- 我被一个古人教会了爱情 https://www.yskuq.com/book/6nqqlei/
+- 逃生游戏[无限] https://www.yskuq.com/book/6nqqldf/
+- 这个迫嫁我愿意的 https://www.yskuq.com/book/6nqqkvp/
+- 期春思 https://www.yskuq.com/book/6nqqkr9/
+- 反派真少爷搞了个抱错综艺后[穿书] https://www.yskuq.com/book/6nqqjsm/
+- 被豪门封建长兄娇养了 https://www.yskuq.com/book/6nqqjnj/
+- 逃荒[快穿] https://www.yskuq.com/book/6nqqjdp/
+- 七零年代闺蜜团的奋斗 https://www.yskuq.com/book/6nqqj4c/
+- 满级后我的外挂到账了[全息] https://www.yskuq.com/book/6nqqj03/
+- 若清晨所见之蓝 https://www.yskuq.com/book/6nqqin0/
+- 恐惧玫瑰 https://www.yskuq.com/book/6nqqikh/
+- 每晚在梦里当暴君 https://www.yskuq.com/book/6nqqih3/
+- 修罗场里的无能丈夫 https://www.yskuq.com/book/6nqqief/
+- 当抠搜总裁被人读心[穿书] https://www.yskuq.com/book/6nqqi8k/
+- [综英美]怎么就蝙蝠崽文学了 https://www.yskuq.com/book/6nqqhku/
+- 全世界都靠我吃瓜 https://www.yskuq.com/book/6nqqhft/
+- 嗲精人设走偏啦［穿书］ https://www.yskuq.com/book/6nqqhfg/
+- 疯子装什么乖 https://www.yskuq.com/book/6nqqhf8/
+- 万人迷绑定美强惨系统后 https://www.yskuq.com/book/6nqqh0s/
+- 好巧，我爸也是狗血文男主 https://www.yskuq.com/book/6nqqh0k/
+- 金手指随机抽取中（快穿） https://www.yskuq.com/book/6nqqghr/
+- 我在异世当妖精 https://www.yskuq.com/book/6nqqghj/
+- 被剧透后，五条猫猫当然要提前享受青春呀！ https://www.yskuq.com/book/6nqqgd2/
+- 五零之我在香江富甲一方 https://www.yskuq.com/book/6nqqg85/
+- [全职高手]带着魔性美貌穿越有什么用 https://www.yskuq.com/book/6nqqfb0/
+- 大美人怀了enigma上司的崽 https://www.yskuq.com/book/6nqqf4l/
+- 忍界修罗带球跑 https://www.yskuq.com/book/6nqqeqs/
+- 穿成年代文里的村草 https://www.yskuq.com/book/6nqqepq/
+- [综英美]让我统治哥谭！！！ https://www.yskuq.com/book/6nqqenh/
+- 魔王模拟器 https://www.yskuq.com/book/6nqqef1/
+- 乱世奶嗝受 https://www.yskuq.com/book/6nqqe87/
+- [综武侠]嘘！不许剧透 https://www.yskuq.com/book/6nqqe1f/
+- 无趣的我，今天也在选秀中断层第一 https://www.yskuq.com/book/6nqqdq7/
+- 哥你不能不要我 https://www.yskuq.com/book/6nqqdkk/
+- 女主请自重[快穿] https://www.yskuq.com/book/6nqqddm/
+- 为了抢走贵妃我造反了 https://www.yskuq.com/book/6nqqd97/
+- 被公用的美人陪读/美校 https://www.yskuq.com/book/6nqqd19/
+- 你也没死？ https://www.yskuq.com/book/6nqqcvf/
+- 战死的阿爹回来了[年代] https://www.yskuq.com/book/6nqqcre/
+- 我不想当男太后[穿书] https://www.yskuq.com/book/6nqqcom/
+- 陛下今天怼人了吗［快穿］ https://www.yskuq.com/book/6nqqcgf/
+- 在无限世界当晕倒羊 https://www.yskuq.com/book/6nqqcg6/
+- 堕魔 https://www.yskuq.com/book/6nqqc9c/
+- 我妈是大佬[快穿] https://www.yskuq.com/book/6nqqbl8/
+- 西幻抽卡装NPC https://www.yskuq.com/book/6nqqbfq/
+- 漂亮作精绑定换装系统后［快穿］ https://www.yskuq.com/book/6nqqbd5/
+- 来自深渊的救世者 https://www.yskuq.com/book/6nqqau1/
+- [综英美]猫女士是一只猫 https://www.yskuq.com/book/6nqqae1/
+- 东映排球部 https://www.yskuq.com/book/6nqqabv/
+- 当小狗炮灰分手后 https://www.yskuq.com/book/6nqqab1/
+- [足球]啊我玩的原来是盗版游戏啊！？！ https://www.yskuq.com/book/6nqqa60/
+- 梵高夫人 https://www.yskuq.com/book/6nqqa5a/
+- 备胎的我重生成万人迷 https://www.yskuq.com/book/6nqqa4q/
+- 侯府打工人 https://www.yskuq.com/book/6nqq9sg/
+- 长公主的六零年代 https://www.yskuq.com/book/6nqq9lo/
+- 黑莲花在线演我 https://www.yskuq.com/book/6nqq9lc/
+- 京秋婚约 https://www.yskuq.com/book/6nqq9id/
+- 妖怪崽崽种田日常 https://www.yskuq.com/book/6nqq9i4/
+- [综崩铁]谁家小鸟掉冥河了 https://www.yskuq.com/book/6nqq93r/
+- 我绝不可能是只NPC https://www.yskuq.com/book/6nqq93i/
+- 巨星渡灵师 https://www.yskuq.com/book/6nqq8vd/
+- 歪剧情我是专业的[快穿] https://www.yskuq.com/book/6nqq8ui/
+- 灰墙之下 https://www.yskuq.com/book/6nqq8qh/
+- 寻真 https://www.yskuq.com/book/6nqq8b9/
+- 首辅大人怀中娇（重生） https://www.yskuq.com/book/6nqq8b5/
+- [清]给太子当姐姐那些年 https://www.yskuq.com/book/6nqq87v/
+- 被子同学 https://www.yskuq.com/book/6nqq7pj/
+- 被俄罗斯小疯子娇养了 https://www.yskuq.com/book/6nqq6v0/
 - 七零知青有空间 https://www.yskuq.com/book/6nqq6r8/
 - 自知之明 https://www.yskuq.com/book/6nqq6ql/
 - 巨龙宝藏是个小社恐 https://www.yskuq.com/book/6nqq6pp/
@@ -15,11 +112,14 @@
 - 万人迷又被自己巧取豪夺了［快穿］ https://www.yskuq.com/book/6nqq5s1/
 - 穿书后，导师成了师尊 https://www.yskuq.com/book/6nqq5qq/
 - 攻五是来拆散这个家的［穿书］ https://www.yskuq.com/book/6nqq5o6/
+- 不再依赖哥哥算长大吗 https://www.yskuq.com/book/6nqq5mg/
 - 被迫扮演病娇以后[快穿] https://www.yskuq.com/book/6nqq5ig/
+- 七零丰腴美人训夫日常 https://www.yskuq.com/book/6nqq5da/
 - 被迫跟死对头结婚后 https://www.yskuq.com/book/6nqq4hi/
 - 当然是拿世界冠军啦![短道速滑] https://www.yskuq.com/book/6nqq4ct/
 - 带着刀剑穿越伟大航路后，你当上了五皇 https://www.yskuq.com/book/6nqq490/
 - [综武侠]换装之江湖遍地是小号 https://www.yskuq.com/book/6nqq47m/
+- 林照娘的宗室生活手札 https://www.yskuq.com/book/6nqq41u/
 - 纨绔渣A拒绝入赘长公主府 https://www.yskuq.com/book/6nqq3ua/
 - 忍界有文学 https://www.yskuq.com/book/6nqq3j3/
 - 小虫的不正当职业 https://www.yskuq.com/book/6nqq3d5/
@@ -201,7 +301,6 @@
 - 娇嗔 https://www.yskuq.com/book/6nqpedp/
 - [综英美]忠诚的地球迎来了伟大的开拓者 https://www.yskuq.com/book/6nqpec9/
 - [综英美]萌萌小蜘蛛在哥谭 https://www.yskuq.com/book/6nqpebp/
-- 冷傲上司绑定娇妻系统后 https://www.yskuq.com/book/6nqpeb5/
 - 在横滨横行霸道的那些年 https://www.yskuq.com/book/6nqpeao/
 - 某柯学的正义伙伴 https://www.yskuq.com/book/6nqpe9d/
 - 瓮中惊春 https://www.yskuq.com/book/6nqpe6p/
@@ -233,7 +332,6 @@
 - 汉武帝戾太子什么含金量 https://www.yskuq.com/book/6nqpcmp/
 - 李玉灯 https://www.yskuq.com/book/6nqpceq/
 - [综英美]是追到小红鸟的超人之子 https://www.yskuq.com/book/6nqpcdc/
-- 刀子精手心的人偶崽崽 https://www.yskuq.com/book/6nqpccp/
 - 欢迎来到重生点 https://www.yskuq.com/book/6nqpcc3/
 - 骑！就要骑在宿敌头上作威作福 https://www.yskuq.com/book/6nqpc9b/
 - 重生之哑妻 https://www.yskuq.com/book/6nqpc8a/
@@ -276,6 +374,7 @@
 - 小寡夫还有两幅面孔 https://www.yskuq.com/book/6nqp9pc/
 - 炮灰今天也在加班[快穿] https://www.yskuq.com/book/6nqp9ko/
 - 末世山居日常 https://www.yskuq.com/book/6nqp9k4/
+- 我不是正夫吗？ https://www.yskuq.com/book/6nqp9fu/
 - “纯黑”苏格兰的蜂蜜陷阱 https://www.yskuq.com/book/6nqp9bn/
 - 高冷影后逼我标记她 https://www.yskuq.com/book/6nqp9be/
 - 好巧，你也是妹控？[综崩铁] https://www.yskuq.com/book/6nqp947/
@@ -287,6 +386,7 @@
 - 每天都在和太宰互换身体 https://www.yskuq.com/book/6nqp8po/
 - 失忆后，和五条激情互演 https://www.yskuq.com/book/6nqp8jj/
 - 请问夫君你哪位 https://www.yskuq.com/book/6nqp8ik/
+- 痴情女配开始放手了（快穿） https://www.yskuq.com/book/6nqp8i9/
 - 无能的丈夫们 https://www.yskuq.com/book/6nqp8fi/
 - 让我再吃一口 https://www.yskuq.com/book/6nqp89g/
 - 直播捏玩具被榜一大哥撅了 https://www.yskuq.com/book/6nqp895/
@@ -302,6 +402,7 @@
 - 朕看上的少年是侠女 https://www.yskuq.com/book/6nqp6lr/
 - 污染来袭，我反复穿越 https://www.yskuq.com/book/6nqp4v5/
 - 为她守节第十年 https://www.yskuq.com/book/6nqp185/
+- 那什么的小蜘蛛 https://www.yskuq.com/book/6nqopb4/
 - 我骗家里的钱养你啊 https://www.yskuq.com/book/6nqn655/
 - 咦？我爸爸复活啦 https://www.yskuq.com/book/6nqn5cv/
 - [封神]圣人生欲 https://www.yskuq.com/book/6nqn5cg/

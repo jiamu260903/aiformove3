@@ -1,7 +1,7 @@
 
 # 情感小说-精彩小说推荐网,涵盖言情都市历史科幻等多种类型
 
-更新时间：2026-09-09 03:38:07
+更新时间：2026-09-10 03:38:16
 
 情感小说致力于为广大书友推荐各种类型好看的小说，包括但不限于言情、都市、历史、科幻、灵异、军事、悬疑、玄幻、武侠、末世等。看小说，找小说就上书格格小说推荐网！ https://www.qinggan1687.com
 
@@ -31,6 +31,7 @@
 - [足球]番外乐子集 https://www.qinggan1687.com/book/3qc59a5/
 - 我超凶的！[快穿] https://www.qinggan1687.com/book/3qc57dc/
 - 我比反派先崩坏[快穿] https://www.qinggan1687.com/book/3qc56k3/
+- 痴情女配开始放手了（快穿） https://www.qinggan1687.com/book/3qc56cc/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.qinggan1687.com/book/3qc56b7/
 - 渡鬼 https://www.qinggan1687.com/book/3qc56au/
 - cos温迪后玩到真崩铁了 https://www.qinggan1687.com/book/3qc524v/
@@ -57,6 +58,7 @@
 - 昭暮 https://www.qinggan1687.com/book/3qc4ars/
 - 你，后室管理员 https://www.qinggan1687.com/book/3qc474s/
 - 朕看上的少年是侠女 https://www.qinggan1687.com/book/3qc472s/
+- 我不是正夫吗？ https://www.qinggan1687.com/book/3qc46s5/
 - 高调装神，猥琐发育 https://www.qinggan1687.com/book/3qc401u/
 - 某横滨的时间操纵 https://www.qinggan1687.com/book/3qc3pi4/
 - 反派执迷不悟之后（快穿） https://www.qinggan1687.com/book/3qc3pd3/
@@ -326,7 +328,6 @@
 - 在横滨横行霸道的那些年 https://www.qinggan1687.com/book/3qc29cq/
 - 坏女人绑定攻略系统后 https://www.qinggan1687.com/book/3qc29cp/
 - 宇智波的遗产 https://www.qinggan1687.com/book/3qc298r/
-- 冷傲上司绑定娇妻系统后 https://www.qinggan1687.com/book/3qc297b/
 - 银发死鱼眼也要打排球 https://www.qinggan1687.com/book/3qc297a/
 - 女帝起家前录 https://www.qinggan1687.com/book/3qc292n/
 - 娇嗔 https://www.qinggan1687.com/book/3qc28uv/
@@ -412,7 +413,6 @@
 - 我靠玛丽苏系统伪装神女 https://www.qinggan1687.com/book/3qc22kg/
 - 青山不渡 https://www.qinggan1687.com/book/3qc22ea/
 - 吐槽役审神者会爆改幕后大boss吗 https://www.qinggan1687.com/book/3qc20ca/
-- 刀子精手心的人偶崽崽 https://www.qinggan1687.com/book/3qc1v5v/
 - 我最讨厌打球了！ https://www.qinggan1687.com/book/3qc1t4k/
 - 求生游戏：当邪神成为生活玩家后 https://www.qinggan1687.com/book/3qc1sh1/
 - [足球]小小鸟堂堂来袭 https://www.qinggan1687.com/book/3qc1o09/

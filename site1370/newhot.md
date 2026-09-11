@@ -1,7 +1,7 @@
 
 # 燃文故事小说网 - 无弹窗全本小说免费阅读
 
-更新时间：2026-09-09 03:30:35
+更新时间：2026-09-10 03:30:54
 
 燃文故事小说网提供无弹窗干扰的小说阅读体验，支持全本小说在线免费阅读。 https://www.gushi687.com
 
@@ -31,6 +31,7 @@
 - [足球]番外乐子集 https://www.gushi687.com/book/63qv3rr/
 - 我超凶的！[快穿] https://www.gushi687.com/book/63qv1v6/
 - 我比反派先崩坏[快穿] https://www.gushi687.com/book/63qv16q/
+- 痴情女配开始放手了（快穿） https://www.gushi687.com/book/63qv0u9/
 - 渡鬼 https://www.gushi687.com/book/63qv0to/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.gushi687.com/book/63qv0qq/
 - cos温迪后玩到真崩铁了 https://www.gushi687.com/book/63qusn6/
@@ -57,6 +58,7 @@
 - 昭暮 https://www.gushi687.com/book/63qu5ci/
 - 你，后室管理员 https://www.gushi687.com/book/63qu1hk/
 - 朕看上的少年是侠女 https://www.gushi687.com/book/63qu1h7/
+- 我不是正夫吗？ https://www.gushi687.com/book/63qu1dq/
 - 高调装神，猥琐发育 https://www.gushi687.com/book/63qtqic/
 - 每天回到家都看到雄虫在装死 https://www.gushi687.com/book/63qtkem/
 - 反派执迷不悟之后（快穿） https://www.gushi687.com/book/63qtjpk/
@@ -316,7 +318,6 @@
 - 这死beta老说我们不可能 https://www.gushi687.com/book/63qs4ri/
 - [足球]德意志小比也能拿冠军吗 https://www.gushi687.com/book/63qs4qu/
 - 这谁的沙雕二次元心声！ https://www.gushi687.com/book/63qs4qq/
-- 冷傲上司绑定娇妻系统后 https://www.gushi687.com/book/63qs4qd/
 - 你猜 https://www.gushi687.com/book/63qs4qa/
 - 摄政长公主穿成炮灰女配[七零] https://www.gushi687.com/book/63qs4h9/
 - 宇智波的遗产 https://www.gushi687.com/book/63qs4gs/
@@ -413,7 +414,6 @@
 - 失忆后，和五条激情互演 https://www.gushi687.com/book/63qrspo/
 - 吐槽役审神者会爆改幕后大boss吗 https://www.gushi687.com/book/63qrps8/
 - 我最讨厌打球了！ https://www.gushi687.com/book/63qrp49/
-- 刀子精手心的人偶崽崽 https://www.gushi687.com/book/63qro9r/
 - 求生游戏：当邪神成为生活玩家后 https://www.gushi687.com/book/63qro67/
 - 幼崽假少爷选择回归寒门 https://www.gushi687.com/book/63qrjfk/
 - [足球]小小鸟堂堂来袭 https://www.gushi687.com/book/63qribj/

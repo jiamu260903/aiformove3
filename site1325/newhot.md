@@ -1,7 +1,7 @@
 
 # 炫书网-免费全本小说在线阅读分享平台
 
-更新时间：2026-09-09 03:47:04
+更新时间：2026-09-10 03:47:26
 
 炫书网提供免费全本小说在线阅读服务，是国内领先的全集全本完结TXT电子书免费下载分享平台。用户可以上传或下载各种类型的优秀电子书籍。 https://www.xqwz8bk.com
 
@@ -27,8 +27,10 @@
 - 暴君偏头痛 https://www.xqwz8bk.com/book/1igm31q/
 - 青城玩家明明超强却过分谨慎 https://www.xqwz8bk.com/book/1igm31l/
 - 渡鬼 https://www.xqwz8bk.com/book/1igm31j/
+- 痴情女配开始放手了（快穿） https://www.xqwz8bk.com/book/1igm30e/
 - 朕看上的少年是侠女 https://www.xqwz8bk.com/book/1igm2tq/
 - 你，后室管理员 https://www.xqwz8bk.com/book/1igm2tn/
+- 我不是正夫吗？ https://www.xqwz8bk.com/book/1igm2tk/
 - 被四皇错看成小动物后 https://www.xqwz8bk.com/book/1igm2tf/
 - [封神]圣人生欲 https://www.xqwz8bk.com/book/1igm2t8/
 - 高调装神，猥琐发育 https://www.xqwz8bk.com/book/1igm2sj/
@@ -320,7 +322,6 @@
 - 这死beta老说我们不可能 https://www.xqwz8bk.com/book/51n1mo/
 - [足球]德意志小比也能拿冠军吗 https://www.xqwz8bk.com/book/51n1m7/
 - 贵族学院F4中的第四人 https://www.xqwz8bk.com/book/51n1ku/
-- 冷傲上司绑定娇妻系统后 https://www.xqwz8bk.com/book/51n1ja/
 - 瓮中惊春 https://www.xqwz8bk.com/book/51n1gg/
 - cos穿，但美强惨刀子精 https://www.xqwz8bk.com/book/51n1cd/
 - [综英美]忠诚的地球迎来了伟大的开拓者 https://www.xqwz8bk.com/book/51n1bo/

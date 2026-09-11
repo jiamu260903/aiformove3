@@ -1,7 +1,7 @@
 
 # 思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-09-09 03:25:18
+更新时间：2026-09-10 03:25:30
 
 思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,包括但不限于全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等类型的小说供用户免费阅读。 https://www.968577.com
 
@@ -25,10 +25,12 @@
 - 渡鬼 https://www.968577.com/book/1b28me9/
 - [综英美]让我统治哥谭！！！ https://www.968577.com/book/1b28me6/
 - 暴君偏头痛 https://www.968577.com/book/1b28me1/
+- 痴情女配开始放手了（快穿） https://www.968577.com/book/1b28mdk/
 - 躲避原书剧情五年后 https://www.968577.com/book/1b28mbs/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.968577.com/book/1b28mbf/
 - 被四皇错看成小动物后 https://www.968577.com/book/1b28mam/
 - 朕看上的少年是侠女 https://www.968577.com/book/1b28mah/
+- 我不是正夫吗？ https://www.968577.com/book/1b28ma9/
 - 你，后室管理员 https://www.968577.com/book/1b28m9i/
 - [封神]圣人生欲 https://www.968577.com/book/1b28m9c/
 - 高调装神，猥琐发育 https://www.968577.com/book/1b28m8g/
@@ -320,7 +322,6 @@
 - cos穿，但美强惨刀子精 https://www.968577.com/book/49s3gp/
 - 从伟大航道到黑暗大陆 https://www.968577.com/book/49s38v/
 - 坏女人绑定攻略系统后 https://www.968577.com/book/49s38a/
-- 冷傲上司绑定娇妻系统后 https://www.968577.com/book/49s33k/
 - 穿进忍界后每天迫害黑绝 https://www.968577.com/book/49s328/
 - 表白现场翻车后 https://www.968577.com/book/49s31i/
 - 苦咒琉璃 https://www.968577.com/book/49s2uk/

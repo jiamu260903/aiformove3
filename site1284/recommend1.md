@@ -1,17 +1,18 @@
 
 # 爱你中文网-最热门的免费小说网|全本小说在线阅读
 
-更新时间：2026-09-09 03:35:17
+更新时间：2026-09-10 03:35:28
 
 爱你中文网致力于打造一个无广告无弹窗的在线小说阅读平台，提供包括但不限于玄幻、网游、言情、穿越及都市等多种类型的小说在线阅读服务。网站页面简洁，支持小说最新章节快速更新。 https://www.longjiangstone.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.longjiangstone.com/book/34b4qm/
 - 我骗家里的钱养你啊 https://www.longjiangstone.com/book/34b4qi/
 - 谁说踢球就不能成为名侦探[足球] https://www.longjiangstone.com/book/34b4qh/
 - [崩铁]请给玩家一个准确的血条！ https://www.longjiangstone.com/book/34b4qg/
 - 漫画取材所引发的修罗场 https://www.longjiangstone.com/book/34b4qe/
 - 在中世纪做奴隶 https://www.longjiangstone.com/book/34b4qd/
-- 人，今晚土拨鼠站岗 https://www.longjiangstone.com/book/34b4qc/
+- 笨蛋土拨鼠站岗日志 https://www.longjiangstone.com/book/34b4qc/
 - [足球]雏鸟 https://www.longjiangstone.com/book/34b4qb/
 - 魔法种田，从退队经营农场开始 https://www.longjiangstone.com/book/34b4q9/
 - 恐游作精女配求生指南 https://www.longjiangstone.com/book/34b4q8/
@@ -20,7 +21,6 @@
 - 我们小区穿末世 https://www.longjiangstone.com/book/34b4q5/
 - 热恋过期需重追 https://www.longjiangstone.com/book/34b4q4/
 - 爱情的肯定句 https://www.longjiangstone.com/book/34b4q3/
-- 欲和离？夫君他目不识丁 https://www.longjiangstone.com/book/34b4q2/
 - 双生子反派的端水抑郁妈[九零] https://www.longjiangstone.com/book/34b4q1/
 - 谁都不爱的和亲公主 https://www.longjiangstone.com/book/34b4q0/
 - 恐游里的邻居们[万人迷] https://www.longjiangstone.com/book/34b4pv/
@@ -80,9 +80,9 @@
 - 魔咒请说普通话[西幻] https://www.longjiangstone.com/book/34b4o9/
 - 原配夫人 https://www.longjiangstone.com/book/34b4it/
 - 始乱终弃清冷首辅后 https://www.longjiangstone.com/book/34b4il/
-- 星际团宠小人鱼 https://www.longjiangstone.com/book/34b4hq/
 - [封神]圣人生欲 https://www.longjiangstone.com/book/34b4ha/
 - 十九世纪贵族厨房（美食） https://www.longjiangstone.com/book/34b4gl/
+- 我只梦你一页 https://www.longjiangstone.com/book/34b4gh/
 - 高调装神，猥琐发育 https://www.longjiangstone.com/book/34b4gf/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.longjiangstone.com/book/34b4fs/
 - 直男咒术师的限制级游戏 https://www.longjiangstone.com/book/34b4cq/
@@ -101,7 +101,6 @@
 - 食明 https://www.longjiangstone.com/book/348bd4/
 - 诡话第一boss https://www.longjiangstone.com/book/34882k/
 - 让暴君Alpha怀崽后 https://www.longjiangstone.com/book/34846s/
-- 仙门透明人被迫万人迷 https://www.longjiangstone.com/book/3482um/
 - 专业女配的自我修养（快穿） https://www.longjiangstone.com/book/348034/
 - 日化人生[科研] https://www.longjiangstone.com/book/347vtv/
 - 老实人妻，但顶级魅魔 https://www.longjiangstone.com/book/347vja/
@@ -110,7 +109,6 @@
 - [足球]我的游戏存档成真了？！ https://www.longjiangstone.com/book/347pjt/
 - 趁她之危 https://www.longjiangstone.com/book/347n34/
 - 起初，我只是想找个冤大头 https://www.longjiangstone.com/book/347kjg/
-- 摄政王家的咸鱼夫郎 https://www.longjiangstone.com/book/347gcb/
 - 死遁的亡夫们都回来了 https://www.longjiangstone.com/book/a3a8d/
 - 沈助理又在隐藏他的超能力 https://www.longjiangstone.com/book/a3a1f/
 - 天幕今天也在直播我搞基建 https://www.longjiangstone.com/book/a38ek/
@@ -135,7 +133,6 @@
 - 韩团绿卡不想忍了 https://www.longjiangstone.com/book/a1ss9/
 - 被糟蹋的老实人决定反击 https://www.longjiangstone.com/book/a1rdn/
 - 村霸非要入赘受气包 https://www.longjiangstone.com/book/a1qpr/
-- 这个位面归我了！[经营] https://www.longjiangstone.com/book/a1pso/
 - 清冷丞相怀了死对头的崽 https://www.longjiangstone.com/book/a1phm/
 - 卷王后妈，八零养娃 https://www.longjiangstone.com/book/a1o1s/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.longjiangstone.com/book/a1m1h/
@@ -156,6 +153,7 @@
 - 在魔法贵族学院当白月光 https://www.longjiangstone.com/book/103hv/
 - 大瑛弟国 https://www.longjiangstone.com/book/103bp/
 - 开局绑定郭奉孝，谋定三国风云 https://www.longjiangstone.com/book/102p3/
+- 月亮上的大筒木 https://www.longjiangstone.com/book/102iu/
 - 完蛋！被恨孕男包围了！ https://www.longjiangstone.com/book/102if/
 - 95美国贵族高中模拟 https://www.longjiangstone.com/book/37e9/
 - 全民求生:从小木屋到魔法农场 https://www.longjiangstone.com/book/3771/

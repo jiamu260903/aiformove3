@@ -1,12 +1,11 @@
 
 # 武侠文学网 - 值得收藏的小说阅读平台
 
-更新时间：2026-09-09 03:45:40
+更新时间：2026-09-10 03:45:58
 
 武侠文学网为您提供丰富多样的小说资源，在这里您可以找到最新最热门的小说作品。无论是经典文学还是现代流行小说，都是您值得收藏的阅读选择。 https://www.wuxia988.com
 
 ## 最新小说
-- 入梦修罗场，但我脸盲 https://www.wuxia988.com/book/1ms38pj/
 - 我们小区穿末世 https://www.wuxia988.com/book/1ms38pg/
 - 你让魔王组建勇者小队？ https://www.wuxia988.com/book/1ms38pc/
 - 漫画取材所引发的修罗场 https://www.wuxia988.com/book/1ms38pb/
@@ -24,7 +23,7 @@
 - 末世八年春，游戏降临 https://www.wuxia988.com/book/1ms38o9/
 - 炮灰的海外亲戚回国啦！ https://www.wuxia988.com/book/1ms38o1/
 - 二次分化后他怀了死对头的崽 https://www.wuxia988.com/book/1ms38nv/
-- 人，今晚土拨鼠站岗 https://www.wuxia988.com/book/1ms38nu/
+- 笨蛋土拨鼠站岗日志 https://www.wuxia988.com/book/1ms38nu/
 - [洪荒]成为太清妹妹后 https://www.wuxia988.com/book/1ms38nt/
 - 娘娘扶摇直上 https://www.wuxia988.com/book/1ms38ns/
 - 在年代文里跑运输 https://www.wuxia988.com/book/1ms38no/
@@ -34,7 +33,6 @@
 - 谁都不爱的和亲公主 https://www.wuxia988.com/book/1ms38n9/
 - 欲加之罪 https://www.wuxia988.com/book/1ms38n8/
 - 我只想上京赶考啊[聊斋] https://www.wuxia988.com/book/1ms38n4/
-- 欲和离？夫君他目不识丁 https://www.wuxia988.com/book/1ms38n2/
 - 怨明月不独照 https://www.wuxia988.com/book/1ms38n1/
 - 暗恋的价格是三万块 https://www.wuxia988.com/book/1ms38mu/
 - 好心的俄罗斯人 https://www.wuxia988.com/book/1ms38mt/
@@ -74,16 +72,18 @@
 - 起初，我只是想找个冤大头 https://www.wuxia988.com/book/1ms2udg/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.wuxia988.com/book/1ms2s6s/
 - 上个鬼班[无限] https://www.wuxia988.com/book/1ms2np2/
+- 限制文女王[快穿] https://www.wuxia988.com/book/1ms2i7o/
 - 九零重组小家庭 https://www.wuxia988.com/book/1ms2h1r/
 - 让暴君Alpha怀崽后 https://www.wuxia988.com/book/1ms2gh8/
 - [足球]足坛人生模拟器 https://www.wuxia988.com/book/1ms2g4g/
+- 直播忏悔室，吃瓜养宠圈 https://www.wuxia988.com/book/1ms2a3b/
 - 在卷王和废物之间选择做吉祥物 https://www.wuxia988.com/book/1ms25un/
 - 从维多利亚时代开始 https://www.wuxia988.com/book/1ms22s1/
 - 昭暮 https://www.wuxia988.com/book/1ms20mv/
+- 恶犬品德 https://www.wuxia988.com/book/1ms1su2/
 - 始乱终弃清冷首辅后 https://www.wuxia988.com/book/1ms1sp0/
 - 原配夫人 https://www.wuxia988.com/book/1ms1soi/
 - 十九世纪贵族厨房（美食） https://www.wuxia988.com/book/1ms1soh/
-- 我只梦你一页 https://www.wuxia988.com/book/1ms1lr7/
 - 完蛋！被恨孕男包围了！ https://www.wuxia988.com/book/1ms1lok/
 - 高调装神，猥琐发育 https://www.wuxia988.com/book/1ms1lnv/
 - 食明 https://www.wuxia988.com/book/1ms1jqv/
@@ -98,7 +98,6 @@
 - 我骗家里的钱养你啊 https://www.wuxia988.com/book/1ms0sq4/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.wuxia988.com/book/1ms0s6g/
 - 沈助理又在隐藏他的超能力 https://www.wuxia988.com/book/1ms0khm/
-- 在民俗惊悚片被诸神庇护 https://www.wuxia988.com/book/1ms0jjh/
 - 死对头又在挑衅我 https://www.wuxia988.com/book/1ms0itr/
 - 韩团绿卡不想忍了 https://www.wuxia988.com/book/1ms0i2q/
 - 被天使之王骗婚后[诡秘之主] https://www.wuxia988.com/book/1ms0ggi/
@@ -123,6 +122,7 @@
 - 我187了，你敢见我吗？ https://www.wuxia988.com/book/1mrvsja/
 - 和姐姐的前女友欢愉后 https://www.wuxia988.com/book/1mrvqis/
 - 在重生文里考科举 https://www.wuxia988.com/book/1mrvgts/
+- 和小肥啾的海岛经营游戏 https://www.wuxia988.com/book/1mrvgej/
 - 大唐守军家属 https://www.wuxia988.com/book/1mrvfft/
 - 朕也要被强制吗？ https://www.wuxia988.com/book/1mrvfcd/
 - [足球]小小鸟堂堂来袭 https://www.wuxia988.com/book/1mrvec2/
@@ -131,7 +131,6 @@
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.wuxia988.com/book/1mrvave/
 - 死亡悖论[无限流] https://www.wuxia988.com/book/1mrvail/
 - 带清冷女主回乡养螃蟹[种田] https://www.wuxia988.com/book/1mrv8sh/
-- 这个位面归我了！[经营] https://www.wuxia988.com/book/1mrv838/
 - [崩铁]请给玩家一个准确的血条！ https://www.wuxia988.com/book/1mrv6ea/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.wuxia988.com/book/1mrv4jq/
 - 村霸非要入赘受气包 https://www.wuxia988.com/book/1mrv4gf/
@@ -140,11 +139,11 @@
 - 被糟蹋的老实人决定反击 https://www.wuxia988.com/book/1mrv0pe/
 - 趁她之危 https://www.wuxia988.com/book/1mrv0fa/
 - 假意逢承 https://www.wuxia988.com/book/1mruvon/
-- 恶犬攻绑定上司的乖狗系统 https://www.wuxia988.com/book/1mrusfp/
 - 权宋一只统 https://www.wuxia988.com/book/1mruoho/
 - 爱好和平但狂拆机甲 https://www.wuxia988.com/book/1mruibj/
 - 成为养成系练习生后 https://www.wuxia988.com/book/1mrtneq/
 - 全民求生:从小木屋到魔法农场 https://www.wuxia988.com/book/1mrtnc2/
+- 千禧年，拆迁分了十栋楼！ https://www.wuxia988.com/book/1mrtn8g/
 - 我是唯一地上神国 https://www.wuxia988.com/book/1mrtn86/
 - 五十年代港城日常 https://www.wuxia988.com/book/1mrtn10/
 - [娱乐圈]过分美丽的她 https://www.wuxia988.com/book/1mrtn00/

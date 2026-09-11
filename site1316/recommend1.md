@@ -1,11 +1,12 @@
 
 # 创意小说网 - 最热门的小说在线阅读
 
-更新时间：2026-09-09 03:27:09
+更新时间：2026-09-10 03:27:24
 
 创意小说网是一个广大书友喜欢的小说网，免费为您提供热门小说无弹窗在线阅读和txt下载。 https://www.chuangyi1687.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.chuangyi1687.com/book/1hvgp2m/
 - 双生子反派的端水抑郁妈[九零] https://www.chuangyi1687.com/book/1hvgp2i/
 - 夫人每天都在伪装 https://www.chuangyi1687.com/book/1hvgp2h/
 - 从1951开始 https://www.chuangyi1687.com/book/1hvgp2g/
@@ -55,7 +56,7 @@
 - 死遁APP https://www.chuangyi1687.com/book/1hvgp12/
 - 末世八年春，游戏降临 https://www.chuangyi1687.com/book/1hvgp11/
 - 国师 https://www.chuangyi1687.com/book/1hvgp10/
-- 人，今晚土拨鼠站岗 https://www.chuangyi1687.com/book/1hvgp0v/
+- 笨蛋土拨鼠站岗日志 https://www.chuangyi1687.com/book/1hvgp0v/
 - 你让魔王组建勇者小队？ https://www.chuangyi1687.com/book/1hvgp0u/
 - 恐游作精女配求生指南 https://www.chuangyi1687.com/book/1hvgp0t/
 - 占有欲Daddy是我老公？ https://www.chuangyi1687.com/book/1hvgp0s/
@@ -71,7 +72,6 @@
 - SSS级异种都是我前任 https://www.chuangyi1687.com/book/1hvgp0i/
 - 我们小区穿末世 https://www.chuangyi1687.com/book/1hvgp0h/
 - 怨明月不独照 https://www.chuangyi1687.com/book/1hvgp0g/
-- 欲和离？夫君他目不识丁 https://www.chuangyi1687.com/book/1hvgp0f/
 - 全民求生，但剑三 https://www.chuangyi1687.com/book/1hvgp0e/
 - ［综英美］蝙蝠崽？我不是啊！ https://www.chuangyi1687.com/book/1hvgp0d/
 - 娘娘扶摇直上 https://www.chuangyi1687.com/book/1hvgp0c/
@@ -81,8 +81,8 @@
 - 十九世纪贵族厨房（美食） https://www.chuangyi1687.com/book/1hvgoqq/
 - [封神]圣人生欲 https://www.chuangyi1687.com/book/1hvgoq7/
 - 原配夫人 https://www.chuangyi1687.com/book/1hvgoq2/
-- 星际团宠小人鱼 https://www.chuangyi1687.com/book/1hvgopt/
 - 始乱终弃清冷首辅后 https://www.chuangyi1687.com/book/1hvgoov/
+- 我只梦你一页 https://www.chuangyi1687.com/book/1hvgoog/
 - 高调装神，猥琐发育 https://www.chuangyi1687.com/book/1hvgooe/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.chuangyi1687.com/book/1hvgoo9/
 - 直男咒术师的限制级游戏 https://www.chuangyi1687.com/book/1hvgojn/
@@ -100,7 +100,6 @@
 - 如何嫁给当朝首辅 https://www.chuangyi1687.com/book/1hve01p/
 - 食明 https://www.chuangyi1687.com/book/1hvdv4g/
 - 诡话第一boss https://www.chuangyi1687.com/book/1hvds1c/
-- 仙门透明人被迫万人迷 https://www.chuangyi1687.com/book/1hvdm0f/
 - 让暴君Alpha怀崽后 https://www.chuangyi1687.com/book/1hvdlmp/
 - 老实人妻，但顶级魅魔 https://www.chuangyi1687.com/book/1hvdk7o/
 - 专业女配的自我修养（快穿） https://www.chuangyi1687.com/book/1hvdjd0/
@@ -110,7 +109,6 @@
 - [足球]我的游戏存档成真了？！ https://www.chuangyi1687.com/book/1hvdehe/
 - 趁她之危 https://www.chuangyi1687.com/book/1hvda2g/
 - 起初，我只是想找个冤大头 https://www.chuangyi1687.com/book/1hvd7r1/
-- 摄政王家的咸鱼夫郎 https://www.chuangyi1687.com/book/1hvd5sh/
 - 死遁的亡夫们都回来了 https://www.chuangyi1687.com/book/500nuc/
 - 天幕今天也在直播我搞基建 https://www.chuangyi1687.com/book/500jp8/
 - 沈助理又在隐藏他的超能力 https://www.chuangyi1687.com/book/500j2q/
@@ -136,7 +134,6 @@
 - 韩团绿卡不想忍了 https://www.chuangyi1687.com/book/4vv68d/
 - 卷王后妈，八零养娃 https://www.chuangyi1687.com/book/4vv4bi/
 - 村霸非要入赘受气包 https://www.chuangyi1687.com/book/4vv471/
-- 这个位面归我了！[经营] https://www.chuangyi1687.com/book/4vv3q9/
 - 清冷丞相怀了死对头的崽 https://www.chuangyi1687.com/book/4vv3gj/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.chuangyi1687.com/book/4vv304/
 - 心动嫌疑人 https://www.chuangyi1687.com/book/4vv1qj/
@@ -151,6 +148,7 @@
 - 苏娘子汴京摆摊日常（美食） https://www.chuangyi1687.com/book/fvrti/
 - 清澈女大的六零年代 https://www.chuangyi1687.com/book/fvr7g/
 - [娱乐圈]过分美丽的她 https://www.chuangyi1687.com/book/fvr64/
+- 月亮上的大筒木 https://www.chuangyi1687.com/book/fvqt3/
 - 全民求生:从小木屋到魔法农场 https://www.chuangyi1687.com/book/fvqq1/
 - 在魔法贵族学院当白月光 https://www.chuangyi1687.com/book/fvqpe/
 - 大瑛弟国 https://www.chuangyi1687.com/book/fvqk4/

@@ -1,20 +1,23 @@
 
 # 雷火小说网 - 最新最全的小说阅读平台
 
-更新时间：2026-09-09 03:48:24
+更新时间：2026-09-10 03:48:47
 
 雷火小说网提供海量正版小说资源，在线免费阅读最新热门小说，支持手机电脑多端同步阅读，是书友们值得收藏的优质小说阅读网站。 https://www.yskuq.com
 
 ## 最新小说
+- 恶犬品德 https://www.yskuq.com/book/6nqr2ts/
+- 直播忏悔室，吃瓜养宠圈 https://www.yskuq.com/book/6nqr2sl/
+- 限制文女王[快穿] https://www.yskuq.com/book/6nqr2o1/
+- 千禧年，拆迁分了十栋楼！ https://www.yskuq.com/book/6nqr2nt/
 - 月亮上的大筒木 https://www.yskuq.com/book/6nqq5g6/
-- 入梦修罗场，但我脸盲 https://www.yskuq.com/book/6nqq50p/
-- 我只梦你一页 https://www.yskuq.com/book/6nqp403/
+- 和小肥啾的海岛经营游戏 https://www.yskuq.com/book/6nqp1p5/
 - 天幕今天也在直播我搞基建 https://www.yskuq.com/book/6nqnvta/
 - 我骗家里的钱养你啊 https://www.yskuq.com/book/6nqn655/
 - 阴阳师也可以打网球 https://www.yskuq.com/book/6nqn640/
 - 老实人妻，但顶级魅魔 https://www.yskuq.com/book/6nqn63n/
 - 全民求生，但剑三 https://www.yskuq.com/book/6nqn63h/
-- 人，今晚土拨鼠站岗 https://www.yskuq.com/book/6nqn61l/
+- 笨蛋土拨鼠站岗日志 https://www.yskuq.com/book/6nqn61l/
 - 我只想上京赶考啊[聊斋] https://www.yskuq.com/book/6nqn61a/
 - 路人攻了主角攻［快穿］ https://www.yskuq.com/book/6nqn617/
 - 趁她之危 https://www.yskuq.com/book/6nqn612/
@@ -40,7 +43,6 @@
 - 诡话第一boss https://www.yskuq.com/book/6nqn5ke/
 - 死对头又在挑衅我 https://www.yskuq.com/book/6nqn5h4/
 - 老公对不起 https://www.yskuq.com/book/6nqn5gr/
-- 欲和离？夫君他目不识丁 https://www.yskuq.com/book/6nqn5fu/
 - 谁说踢球就不能成为名侦探[足球] https://www.yskuq.com/book/6nqn5f2/
 - [足球]足坛人生模拟器 https://www.yskuq.com/book/6nqn5eu/
 - 如何正确哄睡暴君 https://www.yskuq.com/book/6nqn5eq/
@@ -51,7 +53,6 @@
 - 咦？我爸爸复活啦 https://www.yskuq.com/book/6nqn5cv/
 - [封神]圣人生欲 https://www.yskuq.com/book/6nqn5cg/
 - [综英美]哥谭市民，在线抽卡 https://www.yskuq.com/book/6nqn5b7/
-- 恶犬攻绑定上司的乖狗系统 https://www.yskuq.com/book/6nqn5aq/
 - 六零之成了卷王的妹妹 https://www.yskuq.com/book/6nqn5an/
 - 穿为龙傲天发妻后 https://www.yskuq.com/book/6nqn59r/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.yskuq.com/book/6nqn599/
@@ -119,7 +120,6 @@
 - 从维多利亚时代开始 https://www.yskuq.com/book/6nqn3o9/
 - 在卷王和废物之间选择做吉祥物 https://www.yskuq.com/book/6nqn3n6/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.yskuq.com/book/6nqn3mm/
-- 在民俗惊悚片被诸神庇护 https://www.yskuq.com/book/6nqn3k1/
 - 从1951开始 https://www.yskuq.com/book/6nqn3ji/
 - 起初，我只是想找个冤大头 https://www.yskuq.com/book/6nqn3j5/
 - 乖乖女的杂货铺[八零] https://www.yskuq.com/book/6nqn3j2/
@@ -139,7 +139,6 @@
 - 五条老师与他的封建妻子 https://www.yskuq.com/book/6nqn394/
 - 让暴君Alpha怀崽后 https://www.yskuq.com/book/6nqn37i/
 - 娘娘扶摇直上 https://www.yskuq.com/book/6nqn37e/
-- 这个位面归我了！[经营] https://www.yskuq.com/book/6nqn36s/
 - 沈助理又在隐藏他的超能力 https://www.yskuq.com/book/6nqn36r/
 - ［西幻］RPG就不要谈恋爱了吧！ https://www.yskuq.com/book/6nqn36b/
 - 韩团绿卡不想忍了 https://www.yskuq.com/book/6nqn362/

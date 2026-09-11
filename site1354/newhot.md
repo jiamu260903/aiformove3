@@ -1,7 +1,7 @@
 
 # 阅读大文学 - 弘扬华夏文化的综合小说阅读平台
 
-更新时间：2026-09-09 03:48:31
+更新时间：2026-09-10 03:48:58
 
 阅读大文学致力于弘扬华夏文化，提供丰富的小说资源供免费阅读，涵盖但不限于古典文学、现代文学、当代文学及各类流行小说如言情、都市、玄幻等。 https://www.yuedu188.com
 
@@ -32,6 +32,7 @@
 - 我超凶的！[快穿] https://www.yuedu188.com/book/1egr6ve/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.yuedu188.com/book/1egr6ei/
 - 渡鬼 https://www.yuedu188.com/book/1egr6cm/
+- 痴情女配开始放手了（快穿） https://www.yuedu188.com/book/1egr6ci/
 - 我比反派先崩坏[快穿] https://www.yuedu188.com/book/1egr65l/
 - cos温迪后玩到真崩铁了 https://www.yuedu188.com/book/1egr1n9/
 - 我有嘉宾 https://www.yuedu188.com/book/1egr18j/
@@ -55,6 +56,7 @@
 - 侦探立于百万生命之上 https://www.yuedu188.com/book/1egqc93/
 - 特殊魅力值，已到账 https://www.yuedu188.com/book/1egqbii/
 - 昭暮 https://www.yuedu188.com/book/1egqapn/
+- 我不是正夫吗？ https://www.yuedu188.com/book/1egq84r/
 - 朕看上的少年是侠女 https://www.yuedu188.com/book/1egq81d/
 - 你，后室管理员 https://www.yuedu188.com/book/1egq81a/
 - 高调装神，猥琐发育 https://www.yuedu188.com/book/1egq124/
@@ -339,7 +341,6 @@
 - 太子妃她不干了 https://www.yuedu188.com/book/4ku3gu/
 - 瓮中惊春 https://www.yuedu188.com/book/4ku3cj/
 - 女帝起家前录 https://www.yuedu188.com/book/4ku3c0/
-- 冷傲上司绑定娇妻系统后 https://www.yuedu188.com/book/4ku3bl/
 - [足球]能不能好好模拟游戏 https://www.yuedu188.com/book/4ku378/
 - [HP]我和救世主有个约会 https://www.yuedu188.com/book/4ku341/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.yuedu188.com/book/4ku321/
@@ -413,7 +414,6 @@
 - 高冷影后逼我标记她 https://www.yuedu188.com/book/4kttbr/
 - 吐槽役审神者会爆改幕后大boss吗 https://www.yuedu188.com/book/4ktqv4/
 - 我最讨厌打球了！ https://www.yuedu188.com/book/4ktq5b/
-- 刀子精手心的人偶崽崽 https://www.yuedu188.com/book/4ktpk9/
 - 求生游戏：当邪神成为生活玩家后 https://www.yuedu188.com/book/4ktooo/
 - 自大狂 https://www.yuedu188.com/book/4ktjqd/
 - 暴君偏头痛 https://www.yuedu188.com/book/4ktice/

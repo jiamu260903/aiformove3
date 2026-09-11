@@ -1,11 +1,16 @@
 
 # 小顽童寻书网-最热门的免费小说阅读平台|全本玄幻言情网游穿越都市小说在线阅读
 
-更新时间：2026-09-09 03:47:22
+更新时间：2026-09-10 03:47:44
 
 小顽童寻书网提供一个无广告、无弹窗干扰的环境，让您享受纯净的小说阅读体验。涵盖玄幻、网游、言情、穿越、都市等多种类型的小说资源，在这里可以找到最新的章节更新以及完整的书籍内容。 https://www.xwt999.com
 
 ## 最新小说
+- 穿成漫画反派的我又做错了什么 https://www.xwt999.com/book/1u5nve5/
+- [综英美]蝙蝠崽但脆皮 https://www.xwt999.com/book/1u5nvc6/
+- 我拿的可是反派剧本 https://www.xwt999.com/book/1u5nunr/
+- 丧尸王有什么坏心思？ https://www.xwt999.com/book/1u5nu7a/
+- 这个替嫁让我来！ https://www.xwt999.com/book/1u5ntq3/
 - 网球带给齐木的灾难 https://www.xwt999.com/book/1u5nsg4/
 - 当甚尔转生成继国 https://www.xwt999.com/book/1u5nqhs/
 - 节能型社恐靠交友存活打排球 https://www.xwt999.com/book/1u5npto/
@@ -63,6 +68,7 @@
 - 我当县令那些年 https://www.xwt999.com/book/1u5m48u/
 - 渡鬼 https://www.xwt999.com/book/1u5m450/
 - 五美元在哥谭活一月 https://www.xwt999.com/book/1u5m40p/
+- 痴情女配开始放手了（快穿） https://www.xwt999.com/book/1u5m409/
 - 优质攻不做恋爱脑[快穿] https://www.xwt999.com/book/1u5m408/
 - bl世界的路人不想被掰弯 https://www.xwt999.com/book/1u5m3ao/
 - 作为甚尔亡妻的我变成触手了！ https://www.xwt999.com/book/1u5m37m/
@@ -338,7 +344,6 @@
 - 我让人生赢家俯首称臣的那些年 https://www.xwt999.com/book/1u5kodd/
 - [HP]我和救世主有个约会 https://www.xwt999.com/book/1u5kobo/
 - 娇嗔 https://www.xwt999.com/book/1u5ko7n/
-- 冷傲上司绑定娇妻系统后 https://www.xwt999.com/book/1u5ko7g/
 - [足球]罗蜜第一志愿 https://www.xwt999.com/book/1u5ko6q/
 - 摄政长公主穿成炮灰女配[七零] https://www.xwt999.com/book/1u5ko5f/
 - 汉武帝戾太子什么含金量 https://www.xwt999.com/book/1u5ko3i/
@@ -392,7 +397,6 @@
 - 放开那个黑暗哨兵！ https://www.xwt999.com/book/1u5kkts/
 - 直播捏玩具被榜一大哥撅了 https://www.xwt999.com/book/1u5kkq0/
 - 吐槽役审神者会爆改幕后大boss吗 https://www.xwt999.com/book/1u5kkpq/
-- 刀子精手心的人偶崽崽 https://www.xwt999.com/book/1u5kkn3/
 - 让我再吃一口 https://www.xwt999.com/book/1u5kklq/
 - 小狗向导，世界瑰宝！ https://www.xwt999.com/book/1u5kkll/
 - 求生游戏：当邪神成为生活玩家后 https://www.xwt999.com/book/1u5kki6/
@@ -438,6 +442,7 @@
 - 高调装神，猥琐发育 https://www.xwt999.com/book/1u5igkh/
 - 你，后室管理员 https://www.xwt999.com/book/1u5igd7/
 - [封神]圣人生欲 https://www.xwt999.com/book/1u5ierl/
+- 我不是正夫吗？ https://www.xwt999.com/book/1u5ieq8/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1404/index.md)

@@ -1,7 +1,7 @@
 
 # 春日书屋-免费热门小说在线阅读平台|晋江文学|全本免费畅读
 
-更新时间：2026-09-09 03:39:30
+更新时间：2026-09-10 03:39:39
 
 春日书屋是一个专注于提供免费全本小说的在线阅读平台。精选海量热门网络小说，涵盖玄幻、言情、都市、仙侠等各类题材，所有书籍均可免费畅读。致力于为广大书友打造一个无弹窗、更新快的纯净阅读空间，让您轻松追更，尽享阅读乐趣！ https://www.shenyuanhg.com
 
@@ -22,6 +22,7 @@
 - 暴君偏头痛 https://www.shenyuanhg.com/book/7gie8jd/
 - 渡鬼 https://www.shenyuanhg.com/book/7gie8h2/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.shenyuanhg.com/book/7gie8g9/
+- 痴情女配开始放手了（快穿） https://www.shenyuanhg.com/book/7gie8g3/
 - [足球]这只后锋小熊是你家俱乐部掉的吗？ https://www.shenyuanhg.com/book/7gie7ae/
 - 修仙界都为我神魂颠倒 https://www.shenyuanhg.com/book/7gie77o/
 - 穿成年代文奇葩前妻 https://www.shenyuanhg.com/book/7gie71o/
@@ -40,6 +41,7 @@
 - 我有嘉宾 https://www.shenyuanhg.com/book/7gidtdv/
 - 我比反派先崩坏[快穿] https://www.shenyuanhg.com/book/7gidtb5/
 - cos温迪后玩到真崩铁了 https://www.shenyuanhg.com/book/7gidosg/
+- 我不是正夫吗？ https://www.shenyuanhg.com/book/7gidoap/
 - 你，后室管理员 https://www.shenyuanhg.com/book/7gido8t/
 - 娇气点怎么啦？［快穿］ https://www.shenyuanhg.com/book/7gido8k/
 - 朕看上的少年是侠女 https://www.shenyuanhg.com/book/7gido79/
@@ -309,7 +311,6 @@
 - 在横滨横行霸道的那些年 https://www.shenyuanhg.com/book/7gib0tq/
 - 哥你不能不要我 https://www.shenyuanhg.com/book/7gib0ot/
 - 娇嗔 https://www.shenyuanhg.com/book/7gib0op/
-- 冷傲上司绑定娇妻系统后 https://www.shenyuanhg.com/book/7gib0nk/
 - 被离婚后嫁给了年代文大佬[穿书] https://www.shenyuanhg.com/book/7gib0iq/
 - 摄政长公主穿成炮灰女配[七零] https://www.shenyuanhg.com/book/7gib0ho/
 - 汉武帝戾太子什么含金量 https://www.shenyuanhg.com/book/7gib0d6/
@@ -416,7 +417,6 @@
 - 善逸拒绝成为咒术师 https://www.shenyuanhg.com/book/7giajou/
 - [足球]罗蜜第一志愿 https://www.shenyuanhg.com/book/7giai26/
 - 被四皇错看成小动物后 https://www.shenyuanhg.com/book/7giagru/
-- 刀子精手心的人偶崽崽 https://www.shenyuanhg.com/book/7giabjs/
 - 战死的阿爹回来了[年代] https://www.shenyuanhg.com/book/7giab63/
 - [综英美]让我统治哥谭！！！ https://www.shenyuanhg.com/book/7gia9oi/
 - 好巧，你也是妹控？[综崩铁] https://www.shenyuanhg.com/book/7gia69b/

@@ -1,7 +1,7 @@
 
 # 笔架中文小说_书友必备的无弹窗小说阅读网
 
-更新时间：2026-09-09 03:26:22
+更新时间：2026-09-10 03:26:36
 
 笔架中文小说致力于打造国内最权威免费小说阅读网, 提供小说在线阅读, 小说TXT下载, 网站页面清爽简洁是广大网络小说爱好者必备的小说阅读网。 https://www.bijia188.com
 
@@ -33,6 +33,7 @@
 - 我比反派先崩坏[快穿] https://www.bijia188.com/book/6tolajq/
 - 渡鬼 https://www.bijia188.com/book/6tola7t/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.bijia188.com/book/6tola76/
+- 痴情女配开始放手了（快穿） https://www.bijia188.com/book/6tola6b/
 - cos温迪后玩到真崩铁了 https://www.bijia188.com/book/6tol65n/
 - 我有嘉宾 https://www.bijia188.com/book/6tol5lv/
 - 娇气点怎么啦？［快穿］ https://www.bijia188.com/book/6tol5hg/
@@ -55,6 +56,7 @@
 - 侦探立于百万生命之上 https://www.bijia188.com/book/6tokgfd/
 - 特殊魅力值，已到账 https://www.bijia188.com/book/6tokg3c/
 - 昭暮 https://www.bijia188.com/book/6tokeoj/
+- 我不是正夫吗？ https://www.bijia188.com/book/6tokb0t/
 - 你，后室管理员 https://www.bijia188.com/book/6tokavc/
 - 朕看上的少年是侠女 https://www.bijia188.com/book/6tokatt/
 - 高调装神，猥琐发育 https://www.bijia188.com/book/6tok3td/
@@ -308,7 +310,6 @@
 - 善逸拒绝成为咒术师 https://www.bijia188.com/book/6toien4/
 - [HP]我和救世主有个约会 https://www.bijia188.com/book/6toiel4/
 - [综武侠]有间民宿 https://www.bijia188.com/book/6toiejj/
-- 冷傲上司绑定娇妻系统后 https://www.bijia188.com/book/6toiegj/
 - 娇嗔 https://www.bijia188.com/book/6toiee0/
 - cos穿，但美强惨刀子精 https://www.bijia188.com/book/6toiedh/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.bijia188.com/book/6toiecr/
@@ -413,7 +414,6 @@
 - 在重男兄弟间夹缝求生 https://www.bijia188.com/book/6toi68e/
 - 吐槽役审神者会爆改幕后大boss吗 https://www.bijia188.com/book/6toi46b/
 - 求生游戏：当邪神成为生活玩家后 https://www.bijia188.com/book/6toi2ot/
-- 刀子精手心的人偶崽崽 https://www.bijia188.com/book/6toi2ap/
 - 我最讨厌打球了！ https://www.bijia188.com/book/6toi16o/
 - [足球]小小鸟堂堂来袭 https://www.bijia188.com/book/6toht9h/
 - 幼崽假少爷选择回归寒门 https://www.bijia188.com/book/6tohs6a/

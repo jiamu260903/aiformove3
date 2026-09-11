@@ -1,7 +1,7 @@
 
 # 读者香书小说-免费高质量网络小说阅读网
 
-更新时间：2026-09-09 03:28:44
+更新时间：2026-09-10 03:29:01
 
 读者香书小说提供最新的、最热门的网络小说在线阅读服务，支持无弹窗模式，是广大书友和小说读者理想的阅读平台。 https://www.duzhe888.com
 
@@ -22,6 +22,7 @@
 - 欲加之罪 https://www.duzhe888.com/book/2koepek/
 - 咦？我爸爸复活啦 https://www.duzhe888.com/book/2koepei/
 - 青城玩家明明超强却过分谨慎 https://www.duzhe888.com/book/2koepdv/
+- 痴情女配开始放手了（快穿） https://www.duzhe888.com/book/2koepdt/
 - 暴君偏头痛 https://www.duzhe888.com/book/2koepcf/
 - 躲避原书剧情五年后 https://www.duzhe888.com/book/2koepb4/
 - [综英美]让我统治哥谭！！！ https://www.duzhe888.com/book/2koepb2/
@@ -29,6 +30,7 @@
 - 渡鬼 https://www.duzhe888.com/book/2koep98/
 - 朕看上的少年是侠女 https://www.duzhe888.com/book/2koep85/
 - 被四皇错看成小动物后 https://www.duzhe888.com/book/2koep7t/
+- 我不是正夫吗？ https://www.duzhe888.com/book/2koep75/
 - 你，后室管理员 https://www.duzhe888.com/book/2koep6v/
 - [封神]圣人生欲 https://www.duzhe888.com/book/2koep6l/
 - 高调装神，猥琐发育 https://www.duzhe888.com/book/2koep6g/
@@ -311,7 +313,6 @@
 - 白月光拒绝拯救反派 https://www.duzhe888.com/book/8f9i13/
 - 破戒[娱乐圈] https://www.duzhe888.com/book/8f9htj/
 - [综武侠]有间民宿 https://www.duzhe888.com/book/8f9hqs/
-- 冷傲上司绑定娇妻系统后 https://www.duzhe888.com/book/8f9hov/
 - 太子妃她不干了 https://www.duzhe888.com/book/8f9hl1/
 - cos穿，但美强惨刀子精 https://www.duzhe888.com/book/8f9hkg/
 - 当烫男人走错了片场 https://www.duzhe888.com/book/8f9hhc/

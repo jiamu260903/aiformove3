@@ -1,7 +1,7 @@
 
 # 看书小说网 - 全本完结小说免费阅读, 最新章节更新最快, 网络小说排行榜
 
-更新时间：2026-09-09 03:33:01
+更新时间：2026-09-10 03:33:17
 
 看书小说网提供全本完结小说免费阅读服务，包括但不限于言情小说等类型。网站内所有小说均可免费阅读且无任何弹窗广告干扰。这里汇集了最好看的网络小说，同时保证了最新章节的快速更新。 https://www.kanshu666.com
 
@@ -16,7 +16,7 @@
 - [原神]魔法使恋爱指南 https://www.kanshu666.com/book/8jv7igf/
 - 和治君只是饭搭子的关系 https://www.kanshu666.com/book/8jv7ige/
 - [崩铁]请给玩家一个准确的血条！ https://www.kanshu666.com/book/8jv7igd/
-- 人，今晚土拨鼠站岗 https://www.kanshu666.com/book/8jv7igc/
+- 笨蛋土拨鼠站岗日志 https://www.kanshu666.com/book/8jv7igc/
 - 恶毒男配只想躺平 https://www.kanshu666.com/book/8jv7iga/
 - 前妻她肯定会后悔 https://www.kanshu666.com/book/8jv7ig9/
 - 谁都不爱的和亲公主 https://www.kanshu666.com/book/8jv7ig8/
@@ -37,7 +37,6 @@
 - 世界伏于她刀下[无限] https://www.kanshu666.com/book/8jv7ifp/
 - 我们小区穿末世 https://www.kanshu666.com/book/8jv7ifo/
 - 怨明月不独照 https://www.kanshu666.com/book/8jv7ifn/
-- 欲和离？夫君他目不识丁 https://www.kanshu666.com/book/8jv7ifm/
 - 你让魔王组建勇者小队？ https://www.kanshu666.com/book/8jv7ifl/
 - 穿咒术，但杀猴现场 https://www.kanshu666.com/book/8jv7ifk/
 - 乖乖女的杂货铺[八零] https://www.kanshu666.com/book/8jv7ifj/
@@ -136,7 +135,6 @@
 - 卷王后妈，八零养娃 https://www.kanshu666.com/book/rj4kn2/
 - 村霸非要入赘受气包 https://www.kanshu666.com/book/rj4jdp/
 - 清冷丞相怀了死对头的崽 https://www.kanshu666.com/book/rj4jbs/
-- 这个位面归我了！[经营] https://www.kanshu666.com/book/rj4j9l/
 - 和山神搭伙开农场的日子 https://www.kanshu666.com/book/rj4h8k/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.kanshu666.com/book/rj4gt1/
 - 在民俗惊悚片被诸神庇护 https://www.kanshu666.com/book/rj4e47/

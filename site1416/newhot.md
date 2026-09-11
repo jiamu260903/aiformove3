@@ -1,11 +1,108 @@
 
 # 求小说网-手机免费阅读最新热门小说|VIP章节免费看
 
-更新时间：2026-09-09 03:25:12
+更新时间：2026-09-10 03:25:19
 
 求小说网专注于收集并提供最新的热门小说更新内容，包括手打全文字TXT版本，支持手机端免费阅读和下载，享受VIP章节免费看服务，请记得收藏我们！ https://www.54dianshang.com
 
 ## 最新小说
+- 穿成猫的咒术高专生活 https://www.54dianshang.com/book/4ir2o39/
+- [足球]葡萄牙世界杯if线 https://www.54dianshang.com/book/4ir2nvk/
+- 和室友他爸恋爱后 https://www.54dianshang.com/book/4ir2nir/
+- 渣过我的主角全都重生了[快穿] https://www.54dianshang.com/book/4ir2nio/
+- 我于江湖已无敌 https://www.54dianshang.com/book/4ir2ncq/
+- 某横滨的时间操纵 https://www.54dianshang.com/book/4ir2mtp/
+- 我在无限游戏里假扮NPC[无限流] https://www.54dianshang.com/book/4ir2mcv/
+- 被欺负的老实人[快穿] https://www.54dianshang.com/book/4ir2mbv/
+- 暗堕本丸，在线直播 https://www.54dianshang.com/book/4ir2m9d/
+- 每天回到家都看到雄虫在装死 https://www.54dianshang.com/book/4ir2lov/
+- 伪装路人后成了反派首领 https://www.54dianshang.com/book/4ir2leo/
+- 优质攻不做恋爱脑[快穿] https://www.54dianshang.com/book/4ir2kci/
+- 老公是松散生命体 https://www.54dianshang.com/book/4ir2k32/
+- 五美元在哥谭活一月 https://www.54dianshang.com/book/4ir2jj1/
+- 我有一座城 https://www.54dianshang.com/book/4ir2jd1/
+- 女装生崽，娃爹宇智波 https://www.54dianshang.com/book/4ir2ipb/
+- 重组家庭，但美校搞基！ https://www.54dianshang.com/book/4ir2iog/
+- 逝水 https://www.54dianshang.com/book/4ir2imt/
+- 我当县令那些年 https://www.54dianshang.com/book/4ir2iio/
+- 我不可能舔一个漂亮捞子 https://www.54dianshang.com/book/4ir2iar/
+- 微臣怜惜公主 https://www.54dianshang.com/book/4ir2i4g/
+- 作为甚尔亡妻的我变成触手了！ https://www.54dianshang.com/book/4ir2i35/
+- 超A奶龙饲养指南 https://www.54dianshang.com/book/4ir2hir/
+- 被马甲团宠的我开启地狱模式 https://www.54dianshang.com/book/4ir2hgf/
+- [综英美]是谁家的小鹿 https://www.54dianshang.com/book/4ir2hgb/
+- [足球]听克圣的话，成了米兰金童 https://www.54dianshang.com/book/4ir2grj/
+- [综英美]flash小游戏，哥谭出品 https://www.54dianshang.com/book/4ir2gbm/
+- bl世界的路人不想被掰弯 https://www.54dianshang.com/book/4ir2gag/
+- 我在虫族扮绿茶吃老虎 https://www.54dianshang.com/book/4ir2g0p/
+- 若清晨所见之蓝 https://www.54dianshang.com/book/4ir2f51/
+- 我被一个古人教会了爱情 https://www.54dianshang.com/book/4ir2f1l/
+- 反派真少爷搞了个抱错综艺后[穿书] https://www.54dianshang.com/book/4ir2f0h/
+- 期春思 https://www.54dianshang.com/book/4ir2ekk/
+- 逃生游戏[无限] https://www.54dianshang.com/book/4ir2eiv/
+- 逃荒[快穿] https://www.54dianshang.com/book/4ir2e4b/
+- 这个迫嫁我愿意的 https://www.54dianshang.com/book/4ir2dhf/
+- 恐惧玫瑰 https://www.54dianshang.com/book/4ir2dgn/
+- 满级后我的外挂到账了[全息] https://www.54dianshang.com/book/4ir2d3n/
+- 七零年代闺蜜团的奋斗 https://www.54dianshang.com/book/4ir2d02/
+- 被豪门封建长兄娇养了 https://www.54dianshang.com/book/4ir2cpk/
+- 被剧透后，五条猫猫当然要提前享受青春呀！ https://www.54dianshang.com/book/4ir2cbd/
+- 金手指随机抽取中（快穿） https://www.54dianshang.com/book/4ir2c53/
+- 嗲精人设走偏啦［穿书］ https://www.54dianshang.com/book/4ir2c2a/
+- 全世界都靠我吃瓜 https://www.54dianshang.com/book/4ir2brk/
+- [综英美]怎么就蝙蝠崽文学了 https://www.54dianshang.com/book/4ir2bpm/
+- 疯子装什么乖 https://www.54dianshang.com/book/4ir2bmo/
+- 万人迷绑定美强惨系统后 https://www.54dianshang.com/book/4ir2bkb/
+- 当抠搜总裁被人读心[穿书] https://www.54dianshang.com/book/4ir2arl/
+- 好巧，我爸也是狗血文男主 https://www.54dianshang.com/book/4ir2an5/
+- 五零之我在香江富甲一方 https://www.54dianshang.com/book/4ir2adg/
+- 我在异世当妖精 https://www.54dianshang.com/book/4ir2abh/
+- 修罗场里的无能丈夫 https://www.54dianshang.com/book/4ir2a8n/
+- 每晚在梦里当暴君 https://www.54dianshang.com/book/4ir29r1/
+- 我不想当男太后[穿书] https://www.54dianshang.com/book/4ir2989/
+- [全职高手]带着魔性美貌穿越有什么用 https://www.54dianshang.com/book/4ir28rm/
+- 被公用的美人陪读/美校 https://www.54dianshang.com/book/4ir28dq/
+- 战死的阿爹回来了[年代] https://www.54dianshang.com/book/4ir285i/
+- 为了抢走贵妃我造反了 https://www.54dianshang.com/book/4ir283t/
+- 乱世奶嗝受 https://www.54dianshang.com/book/4ir281j/
+- 无趣的我，今天也在选秀中断层第一 https://www.54dianshang.com/book/4ir27m9/
+- 忍界修罗带球跑 https://www.54dianshang.com/book/4ir27ge/
+- 你也没死？ https://www.54dianshang.com/book/4ir278a/
+- 女主请自重[快穿] https://www.54dianshang.com/book/4ir273c/
+- [综武侠]嘘！不许剧透 https://www.54dianshang.com/book/4ir26p9/
+- 魔王模拟器 https://www.54dianshang.com/book/4ir26no/
+- 大美人怀了enigma上司的崽 https://www.54dianshang.com/book/4ir26nc/
+- 穿成年代文里的村草 https://www.54dianshang.com/book/4ir26n7/
+- [综英美]让我统治哥谭！！！ https://www.54dianshang.com/book/4ir26m5/
+- 哥你不能不要我 https://www.54dianshang.com/book/4ir26lr/
+- 备胎的我重生成万人迷 https://www.54dianshang.com/book/4ir25v7/
+- 梵高夫人 https://www.54dianshang.com/book/4ir25u7/
+- 东映排球部 https://www.54dianshang.com/book/4ir25r4/
+- 来自深渊的救世者 https://www.54dianshang.com/book/4ir25c4/
+- [足球]啊我玩的原来是盗版游戏啊！？！ https://www.54dianshang.com/book/4ir258c/
+- 当小狗炮灰分手后 https://www.54dianshang.com/book/4ir251q/
+- 堕魔 https://www.54dianshang.com/book/4ir24uq/
+- [综英美]猫女士是一只猫 https://www.54dianshang.com/book/4ir24jh/
+- 我妈是大佬[快穿] https://www.54dianshang.com/book/4ir24gv/
+- 漂亮作精绑定换装系统后［快穿］ https://www.54dianshang.com/book/4ir24c5/
+- 陛下今天怼人了吗［快穿］ https://www.54dianshang.com/book/4ir24bi/
+- 在无限世界当晕倒羊 https://www.54dianshang.com/book/4ir247a/
+- 西幻抽卡装NPC https://www.54dianshang.com/book/4ir23pg/
+- 侯府打工人 https://www.54dianshang.com/book/4ir23nc/
+- 灰墙之下 https://www.54dianshang.com/book/4ir23hd/
+- [清]给太子当姐姐那些年 https://www.54dianshang.com/book/4ir23gv/
+- 首辅大人怀中娇（重生） https://www.54dianshang.com/book/4ir23fa/
+- 巨星渡灵师 https://www.54dianshang.com/book/4ir23f5/
+- [综崩铁]谁家小鸟掉冥河了 https://www.54dianshang.com/book/4ir23b4/
+- 寻真 https://www.54dianshang.com/book/4ir2394/
+- 被子同学 https://www.54dianshang.com/book/4ir22ti/
+- 妖怪崽崽种田日常 https://www.54dianshang.com/book/4ir227k/
+- 歪剧情我是专业的[快穿] https://www.54dianshang.com/book/4ir2215/
+- 京秋婚约 https://www.54dianshang.com/book/4ir21gf/
+- 被俄罗斯小疯子娇养了 https://www.54dianshang.com/book/4ir2180/
+- 我绝不可能是只NPC https://www.54dianshang.com/book/4ir215m/
+- 黑莲花在线演我 https://www.54dianshang.com/book/4ir2126/
+- 长公主的六零年代 https://www.54dianshang.com/book/4ir20pq/
 - 七零知青有空间 https://www.54dianshang.com/book/4ir20kk/
 - 自知之明 https://www.54dianshang.com/book/4ir20ho/
 - 穿书后，导师成了师尊 https://www.54dianshang.com/book/4ir20g4/
@@ -220,7 +317,6 @@
 - 当了卧底的我发现遍地熟人 https://www.54dianshang.com/book/4ir17cj/
 - 坏女人绑定攻略系统后 https://www.54dianshang.com/book/4ir178t/
 - 她来赎罪 https://www.54dianshang.com/book/4ir174n/
-- 冷傲上司绑定娇妻系统后 https://www.54dianshang.com/book/4ir16u7/
 - 女beta的星际悠闲生活 https://www.54dianshang.com/book/4ir16tb/
 - 虫族治愈师，但恐虫 https://www.54dianshang.com/book/4ir16s8/
 - [崩铁]自恋值拉满穿越被水仙了 https://www.54dianshang.com/book/4ir16rd/
@@ -246,7 +342,6 @@
 - [综英美]是追到小红鸟的超人之子 https://www.54dianshang.com/book/4ir15ev/
 - 举朝上下为我的神仙人设头疼中 https://www.54dianshang.com/book/4ir15ap/
 - 欢迎来到重生点 https://www.54dianshang.com/book/4ir159m/
-- 刀子精手心的人偶崽崽 https://www.54dianshang.com/book/4ir156u/
 - 变成鲛人了怎么办 https://www.54dianshang.com/book/4ir155o/
 - 渡鬼 https://www.54dianshang.com/book/4ir154h/
 - 您的榜一秦始皇已加入直播间 https://www.54dianshang.com/book/4ir154g/
@@ -284,6 +379,7 @@
 - 无能的丈夫们 https://www.54dianshang.com/book/4ir12rq/
 - 失忆后，和五条激情互演 https://www.54dianshang.com/book/4ir12qf/
 - 朕看上的少年是侠女 https://www.54dianshang.com/book/4ir12n9/
+- 我不是正夫吗？ https://www.54dianshang.com/book/4ir12dj/
 - 魔物堆里的人类幼崽 https://www.54dianshang.com/book/4ir12bn/
 - “纯黑”苏格兰的蜂蜜陷阱 https://www.54dianshang.com/book/4ir1280/
 - 直播捏玩具被榜一大哥撅了 https://www.54dianshang.com/book/4ir123g/
@@ -293,6 +389,7 @@
 - 我靠玛丽苏系统伪装神女 https://www.54dianshang.com/book/4ir11cj/
 - 咒术师，但队友是侦探 https://www.54dianshang.com/book/4ir117v/
 - 高冷影后逼我标记她 https://www.54dianshang.com/book/4ir113n/
+- 痴情女配开始放手了（快穿） https://www.54dianshang.com/book/4ir112q/
 - 青山不渡 https://www.54dianshang.com/book/4ir10ve/
 - 普通高中生，但兼职咒术师 https://www.54dianshang.com/book/4ir10so/
 - 放开那个黑暗哨兵！ https://www.54dianshang.com/book/4ir10ni/
@@ -300,7 +397,9 @@
 - 在重男兄弟间夹缝求生 https://www.54dianshang.com/book/4ir10mn/
 - 神之子与排球的适配性 https://www.54dianshang.com/book/4ir10ia/
 - 顶流他姐有神豪系统 https://www.54dianshang.com/book/4ir10i0/
+- 污染来袭，我反复穿越 https://www.54dianshang.com/book/4ir0trb/
 - 为她守节第十年 https://www.54dianshang.com/book/4ir0t0b/
+- 那什么的小蜘蛛 https://www.54dianshang.com/book/4ir0hui/
 - 咦？我爸爸复活啦 https://www.54dianshang.com/book/4iquvjk/
 - 穿为龙傲天发妻后 https://www.54dianshang.com/book/4iquvib/
 - 清穿女回来后[天幕] https://www.54dianshang.com/book/4iquvcr/

@@ -1,12 +1,11 @@
 
 # 书社1687小说免费-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-09-09 03:40:48
+更新时间：2026-09-10 03:40:57
 
 书社1687小说免费提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏书社1687小说，享受便捷的小说阅读体验。 https://www.shushe1687.com
 
 ## 最新小说
-- 入梦修罗场，但我脸盲 https://www.shushe1687.com/book/489h9hs/
 - 好心的俄罗斯人 https://www.shushe1687.com/book/489h9ho/
 - 末世八年春，游戏降临 https://www.shushe1687.com/book/489h9hn/
 - [综英美]哥谭市民，在线抽卡 https://www.shushe1687.com/book/489h9hi/
@@ -28,7 +27,6 @@
 - 禁止继承限制级雌君 https://www.shushe1687.com/book/489h9g1/
 - 魔改剧本后我爆火了[娱乐圈] https://www.shushe1687.com/book/489h9ft/
 - 恐游作精女配求生指南 https://www.shushe1687.com/book/489h9fp/
-- 欲和离？夫君他目不识丁 https://www.shushe1687.com/book/489h9fn/
 - 欲加之罪 https://www.shushe1687.com/book/489h9fm/
 - 仙尊心尖宠，但被魔尊抢了 https://www.shushe1687.com/book/489h9fl/
 - 死遁APP https://www.shushe1687.com/book/489h9fi/
@@ -51,7 +49,7 @@
 - 爱情的肯定句 https://www.shushe1687.com/book/489h9e8/
 - 强取师尊后 https://www.shushe1687.com/book/489h9e5/
 - 双生子反派的端水抑郁妈[九零] https://www.shushe1687.com/book/489h9e3/
-- 人，今晚土拨鼠站岗 https://www.shushe1687.com/book/489h9e2/
+- 笨蛋土拨鼠站岗日志 https://www.shushe1687.com/book/489h9e2/
 - 怨明月不独照 https://www.shushe1687.com/book/489h9dt/
 - 漫画取材所引发的修罗场 https://www.shushe1687.com/book/489h9dp/
 - 炮灰的海外亲戚回国啦！ https://www.shushe1687.com/book/489h9do/
@@ -74,16 +72,18 @@
 - 起初，我只是想找个冤大头 https://www.shushe1687.com/book/489gvak/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.shushe1687.com/book/489gt8b/
 - 上个鬼班[无限] https://www.shushe1687.com/book/489gomh/
+- 限制文女王[快穿] https://www.shushe1687.com/book/489givo/
 - 九零重组小家庭 https://www.shushe1687.com/book/489ghqk/
 - 让暴君Alpha怀崽后 https://www.shushe1687.com/book/489ghha/
 - [足球]足坛人生模拟器 https://www.shushe1687.com/book/489gh09/
+- 直播忏悔室，吃瓜养宠圈 https://www.shushe1687.com/book/489gav7/
 - 在卷王和废物之间选择做吉祥物 https://www.shushe1687.com/book/489g6l4/
 - 从维多利亚时代开始 https://www.shushe1687.com/book/489g3h0/
 - 昭暮 https://www.shushe1687.com/book/489g1n0/
 - 十九世纪贵族厨房（美食） https://www.shushe1687.com/book/489funq/
 - 原配夫人 https://www.shushe1687.com/book/489fumg/
+- 恶犬品德 https://www.shushe1687.com/book/489fuf1/
 - 始乱终弃清冷首辅后 https://www.shushe1687.com/book/489fudm/
-- 我只梦你一页 https://www.shushe1687.com/book/489fni5/
 - 完蛋！被恨孕男包围了！ https://www.shushe1687.com/book/489fnef/
 - 高调装神，猥琐发育 https://www.shushe1687.com/book/489fnds/
 - 食明 https://www.shushe1687.com/book/489fklh/
@@ -99,7 +99,6 @@
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.shushe1687.com/book/489esfk/
 - 沈助理又在隐藏他的超能力 https://www.shushe1687.com/book/489em6a/
 - 死对头又在挑衅我 https://www.shushe1687.com/book/489eler/
-- 在民俗惊悚片被诸神庇护 https://www.shushe1687.com/book/489elb7/
 - 被天使之王骗婚后[诡秘之主] https://www.shushe1687.com/book/489egdn/
 - 从童星开始杀穿港娱 https://www.shushe1687.com/book/489eg84/
 - 咦？我爸爸复活啦 https://www.shushe1687.com/book/489eg09/
@@ -123,6 +122,7 @@
 - 我187了，你敢见我吗？ https://www.shushe1687.com/book/489dtrm/
 - 和姐姐的前女友欢愉后 https://www.shushe1687.com/book/489dpi6/
 - 大唐守军家属 https://www.shushe1687.com/book/489dh8v/
+- 和小肥啾的海岛经营游戏 https://www.shushe1687.com/book/489dh8e/
 - 朕也要被强制吗？ https://www.shushe1687.com/book/489dge6/
 - 在重生文里考科举 https://www.shushe1687.com/book/489dgch/
 - [足球]小小鸟堂堂来袭 https://www.shushe1687.com/book/489dfs6/
@@ -130,7 +130,6 @@
 - 心动嫌疑人 https://www.shushe1687.com/book/489dcqv/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.shushe1687.com/book/489dbmf/
 - 妻主风流（女尊） https://www.shushe1687.com/book/489dbjc/
-- 这个位面归我了！[经营] https://www.shushe1687.com/book/489d91l/
 - 带清冷女主回乡养螃蟹[种田] https://www.shushe1687.com/book/489d8p0/
 - 趁她之危 https://www.shushe1687.com/book/489d8j7/
 - 清冷丞相怀了死对头的崽 https://www.shushe1687.com/book/489d5a7/
@@ -140,7 +139,6 @@
 - 被糟蹋的老实人决定反击 https://www.shushe1687.com/book/489d1pv/
 - 和山神搭伙开农场的日子 https://www.shushe1687.com/book/489d1l3/
 - 假意逢承 https://www.shushe1687.com/book/489cvcf/
-- 恶犬攻绑定上司的乖狗系统 https://www.shushe1687.com/book/489ctpa/
 - 权宋一只统 https://www.shushe1687.com/book/489cqs3/
 - 爱好和平但狂拆机甲 https://www.shushe1687.com/book/489cjn7/
 - 成为养成系练习生后 https://www.shushe1687.com/book/489bocp/
@@ -156,6 +154,7 @@
 - 天幕今天也在直播我搞基建 https://www.shushe1687.com/book/489bn8n/
 - 大瑛弟国 https://www.shushe1687.com/book/489bmsn/
 - 五十年代港城日常 https://www.shushe1687.com/book/489bmm0/
+- 千禧年，拆迁分了十栋楼！ https://www.shushe1687.com/book/489bmde/
 - [娱乐圈]过分美丽的她 https://www.shushe1687.com/book/489bm65/
 - 全民求生:从小木屋到魔法农场 https://www.shushe1687.com/book/489blv4/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.shushe1687.com/book/489bltf/

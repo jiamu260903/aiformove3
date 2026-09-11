@@ -1,7 +1,7 @@
 
 # 棉花糖小说网-最好的免费小说阅读网站
 
-更新时间：2026-09-09 03:34:59
+更新时间：2026-09-10 03:35:10
 
 棉花糖小说网提供当前最火热的小说资源，支持免费在线阅读及TXT格式下载，致力于为读者带来优质的阅读体验。 https://www.littlemissribbon.com
 
@@ -24,10 +24,12 @@
 - 渡鬼 https://www.littlemissribbon.com/book/5asij0c/
 - 暴君偏头痛 https://www.littlemissribbon.com/book/5asiivt/
 - 青城玩家明明超强却过分谨慎 https://www.littlemissribbon.com/book/5asiiv9/
+- 痴情女配开始放手了（快穿） https://www.littlemissribbon.com/book/5asiiv4/
 - [综英美]让我统治哥谭！！！ https://www.littlemissribbon.com/book/5asiiud/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.littlemissribbon.com/book/5asiiu3/
 - 躲避原书剧情五年后 https://www.littlemissribbon.com/book/5asiite/
 - [封神]圣人生欲 https://www.littlemissribbon.com/book/5asiisf/
+- 我不是正夫吗？ https://www.littlemissribbon.com/book/5asiisd/
 - 被四皇错看成小动物后 https://www.littlemissribbon.com/book/5asiisa/
 - 朕看上的少年是侠女 https://www.littlemissribbon.com/book/5asiirs/
 - 你，后室管理员 https://www.littlemissribbon.com/book/5asiir2/
@@ -335,7 +337,6 @@
 - 师妹为何要如此 https://www.littlemissribbon.com/book/h2t25e/
 - 御厨传人的小镇饭馆 [美食] https://www.littlemissribbon.com/book/h2t24h/
 - 龙傲天未婚妻不退婚了 https://www.littlemissribbon.com/book/h2t22l/
-- 冷傲上司绑定娇妻系统后 https://www.littlemissribbon.com/book/h2t21v/
 - 摄政长公主穿成炮灰女配[七零] https://www.littlemissribbon.com/book/h2t216/
 - 她来赎罪 https://www.littlemissribbon.com/book/h2t1on/
 - 逆序布鲁斯的好大儿 https://www.littlemissribbon.com/book/h2t1mj/

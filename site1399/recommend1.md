@@ -1,12 +1,11 @@
 
 # 佚名奇书小说 - 免费更新的小说阅读网站
 
-更新时间：2026-09-09 03:47:54
+更新时间：2026-09-10 03:48:17
 
 佚名奇书小说提供全网各类热门小说在线阅读服务，支持免费观看。这里汇集了丰富的小说资源，包括但不限于都市、玄幻、武侠等多种类型，并且保证章节更新及时，页面设计清爽无广告干扰，是广大书友不可多得的好去处。 https://www.yimingeduai.com
 
 ## 最新小说
-- 入梦修罗场，但我脸盲 https://www.yimingeduai.com/book/6adnppl/
 - 从1951开始 https://www.yimingeduai.com/book/6adng45/
 - 康熙宠妃日常 https://www.yimingeduai.com/book/6adng43/
 - 全民求生，但剑三 https://www.yimingeduai.com/book/6adng3v/
@@ -31,7 +30,7 @@
 - 魔尊闭关十年连生十一子？！ https://www.yimingeduai.com/book/6adng2h/
 - ［综英美］蝙蝠崽？我不是啊！ https://www.yimingeduai.com/book/6adng2b/
 - [足球]雏鸟 https://www.yimingeduai.com/book/6adng23/
-- 人，今晚土拨鼠站岗 https://www.yimingeduai.com/book/6adng1s/
+- 笨蛋土拨鼠站岗日志 https://www.yimingeduai.com/book/6adng1s/
 - SSS级异种都是我前任 https://www.yimingeduai.com/book/6adng1r/
 - 乖乖女的杂货铺[八零] https://www.yimingeduai.com/book/6adng1q/
 - 国运求生：我的金手指是生命树 https://www.yimingeduai.com/book/6adng1p/
@@ -61,15 +60,16 @@
 - 夫人每天都在伪装 https://www.yimingeduai.com/book/6adnfvo/
 - 魔咒请说普通话[西幻] https://www.yimingeduai.com/book/6adnfvm/
 - 二次分化后他怀了死对头的崽 https://www.yimingeduai.com/book/6adnfvh/
-- 欲和离？夫君他目不识丁 https://www.yimingeduai.com/book/6adnfve/
 - 魔改剧本后我爆火了[娱乐圈] https://www.yimingeduai.com/book/6adnfv9/
 - 恶毒男配只想躺平 https://www.yimingeduai.com/book/6adnfv8/
 - 在中世纪做奴隶 https://www.yimingeduai.com/book/6adnfv7/
 - 星露谷，但日本战国 https://www.yimingeduai.com/book/6adnfv5/
 - 暗恋的价格是三万块 https://www.yimingeduai.com/book/6adnfv4/
+- 限制文女王[快穿] https://www.yimingeduai.com/book/6adnff8/
 - 上个鬼班[无限] https://www.yimingeduai.com/book/6adnbdm/
 - [足球]足坛人生模拟器 https://www.yimingeduai.com/book/6adnbcs/
 - 让暴君Alpha怀崽后 https://www.yimingeduai.com/book/6adn89k/
+- 直播忏悔室，吃瓜养宠圈 https://www.yimingeduai.com/book/6adn7lh/
 - 在卷王和废物之间选择做吉祥物 https://www.yimingeduai.com/book/6adn37c/
 - 九零重组小家庭 https://www.yimingeduai.com/book/6adn1kr/
 - 从维多利亚时代开始 https://www.yimingeduai.com/book/6adn07r/
@@ -111,16 +111,14 @@
 - 开局绑定郭奉孝，谋定三国风云 https://www.yimingeduai.com/book/6adkj0a/
 - 死亡悖论[无限流] https://www.yimingeduai.com/book/6adkh1f/
 - 专业女配的自我修养（快穿） https://www.yimingeduai.com/book/6adkgl8/
-- 我只梦你一页 https://www.yimingeduai.com/book/6adkdh2/
 - 路人攻了主角攻［快穿］ https://www.yimingeduai.com/book/6adkda6/
 - 从童星开始杀穿港娱 https://www.yimingeduai.com/book/6adkbtd/
 - 清冷丞相怀了死对头的崽 https://www.yimingeduai.com/book/6adkbpv/
 - 阴阳师也可以打网球 https://www.yimingeduai.com/book/6adk98g/
 - 带清冷女主回乡养螃蟹[种田] https://www.yimingeduai.com/book/6adk8it/
 - 我有一座地下城 https://www.yimingeduai.com/book/6adk4q5/
-- 恶犬攻绑定上司的乖狗系统 https://www.yimingeduai.com/book/6adk499/
 - 天幕今天也在直播我搞基建 https://www.yimingeduai.com/book/6adk1a5/
-- 这个位面归我了！[经营] https://www.yimingeduai.com/book/6adjub0/
+- 和小肥啾的海岛经营游戏 https://www.yimingeduai.com/book/6adk048/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.yimingeduai.com/book/6adjsnj/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.yimingeduai.com/book/6adjr41/
 - 五条老师与他的封建妻子 https://www.yimingeduai.com/book/6adjq4i/
@@ -146,7 +144,7 @@
 - [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.yimingeduai.com/book/6adi811/
 - 老公对不起 https://www.yimingeduai.com/book/6adi7te/
 - 始乱终弃清冷首辅后 https://www.yimingeduai.com/book/6adi7lr/
-- 在民俗惊悚片被诸神庇护 https://www.yimingeduai.com/book/6adi7kq/
+- 恶犬品德 https://www.yimingeduai.com/book/6adi7kb/
 - 巨物致富：回乡开钓场 https://www.yimingeduai.com/book/6adi7il/
 - 成为养成系练习生后 https://www.yimingeduai.com/book/6adi7bm/
 - 清澈女大的六零年代 https://www.yimingeduai.com/book/6adi7ap/
@@ -156,6 +154,7 @@
 - 我是唯一地上神国 https://www.yimingeduai.com/book/6adi70r/
 - 五十年代港城日常 https://www.yimingeduai.com/book/6adi6nm/
 - 我有一座安全城 https://www.yimingeduai.com/book/6adi6ln/
+- 千禧年，拆迁分了十栋楼！ https://www.yimingeduai.com/book/6adi6ip/
 - 日化人生[科研] https://www.yimingeduai.com/book/6adi6g6/
 - 95美国贵族高中模拟 https://www.yimingeduai.com/book/6adi6e5/
 - 大瑛弟国 https://www.yimingeduai.com/book/6adi6bh/

@@ -1,7 +1,7 @@
 
 # 欣怡书屋 - 免费最新章节小说阅读,全本无弹窗
 
-更新时间：2026-09-09 03:50:34
+更新时间：2026-09-10 03:51:05
 
 欣怡书屋是最值得收藏的小说阅读网之一，提供大量热门网络小说的免费阅读服务。所有小说均为高质量，并且支持最新章节即时更新与全本无弹窗浏览体验。 https://www.znenghs.com
 
@@ -27,10 +27,12 @@
 - 求求你们别吃了 https://www.znenghs.com/book/5n2k93a/
 - 暴君偏头痛 https://www.znenghs.com/book/5n2k930/
 - 渡鬼 https://www.znenghs.com/book/5n2k927/
+- 痴情女配开始放手了（快穿） https://www.znenghs.com/book/5n2k91e/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.znenghs.com/book/5n2k8vh/
 - [封神]圣人生欲 https://www.znenghs.com/book/5n2k8uq/
 - 被四皇错看成小动物后 https://www.znenghs.com/book/5n2k8uh/
 - 朕看上的少年是侠女 https://www.znenghs.com/book/5n2k8u0/
+- 我不是正夫吗？ https://www.znenghs.com/book/5n2k8tj/
 - 你，后室管理员 https://www.znenghs.com/book/5n2k8th/
 - 高调装神，猥琐发育 https://www.znenghs.com/book/5n2k8sf/
 - 满级竹马从异世穿回来了 https://www.znenghs.com/book/5n2k8r3/
@@ -335,7 +337,6 @@
 - 樋口干部不干了 https://www.znenghs.com/book/i9t7o7/
 - 被离婚后嫁给了年代文大佬[穿书] https://www.znenghs.com/book/i9t7nt/
 - 下堂驸马追妻实录 https://www.znenghs.com/book/i9t7f5/
-- 冷傲上司绑定娇妻系统后 https://www.znenghs.com/book/i9t7ak/
 - 瓮中惊春 https://www.znenghs.com/book/i9t7ab/
 - 银发死鱼眼也要打排球 https://www.znenghs.com/book/i9t79b/
 - [足球]德意志小比也能拿冠军吗 https://www.znenghs.com/book/i9t75p/

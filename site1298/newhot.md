@@ -1,7 +1,7 @@
 
 # 笔趣屋-最热门的免费小说网 | 玄幻,网游,言情,穿越,都市小说全本在线阅读
 
-更新时间：2026-09-09 03:34:05
+更新时间：2026-09-10 03:34:18
 
 笔趣屋提供多种类型的好看小说在线阅读服务，包括但不限于玄幻、网游、言情、穿越及都市等热门分类。网站承诺无广告无弹窗干扰，页面简洁，方便用户享受纯净的阅读体验。 https://www.kmjike.com
 
@@ -25,10 +25,12 @@
 - 躲避原书剧情五年后 https://www.kmjike.com/book/4mlvlkt/
 - 青城玩家明明超强却过分谨慎 https://www.kmjike.com/book/4mlvlke/
 - [综英美]让我统治哥谭！！！ https://www.kmjike.com/book/4mlvlj6/
+- 痴情女配开始放手了（快穿） https://www.kmjike.com/book/4mlvlhv/
 - 暴君偏头痛 https://www.kmjike.com/book/4mlvlhg/
 - 渡鬼 https://www.kmjike.com/book/4mlvlha/
 - [封神]圣人生欲 https://www.kmjike.com/book/4mlvlgr/
 - 被四皇错看成小动物后 https://www.kmjike.com/book/4mlvlgd/
+- 我不是正夫吗？ https://www.kmjike.com/book/4mlvlfq/
 - 朕看上的少年是侠女 https://www.kmjike.com/book/4mlvleq/
 - 你，后室管理员 https://www.kmjike.com/book/4mlvlep/
 - 高调装神，猥琐发育 https://www.kmjike.com/book/4mlvlef/
@@ -340,7 +342,6 @@
 - 樋口干部不干了 https://www.kmjike.com/book/f27u76/
 - 养了一个废太子 https://www.kmjike.com/book/f27u23/
 - [HP]我和救世主有个约会 https://www.kmjike.com/book/f27u21/
-- 冷傲上司绑定娇妻系统后 https://www.kmjike.com/book/f27u0k/
 - 被离婚后嫁给了年代文大佬[穿书] https://www.kmjike.com/book/f27tu6/
 - 蝴蝶园 https://www.kmjike.com/book/f27ttu/
 - 破戒[娱乐圈] https://www.kmjike.com/book/f27ttd/

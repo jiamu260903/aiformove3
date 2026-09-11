@@ -1,11 +1,16 @@
 
 # 书迷村-免费高质量网络小说阅读网,热门男生女生小说大全
 
-更新时间：2026-09-09 03:25:50
+更新时间：2026-09-10 03:26:03
 
 书迷村是广大书友最值得收藏的网络小说阅读平台，提供最新最全的男生小说、女生小说以及孟静薇等作者的作品。在这里可以免费阅读到高质量的小说章节内容，是小说爱好者的首选网站。 https://www.aurorawj.com
 
 ## 最新小说
+- 穿成漫画反派的我又做错了什么 https://www.aurorawj.com/book/3bec5u2/
+- [综英美]蝙蝠崽但脆皮 https://www.aurorawj.com/book/3bec5r3/
+- 我拿的可是反派剧本 https://www.aurorawj.com/book/3bec53t/
+- 丧尸王有什么坏心思？ https://www.aurorawj.com/book/3bec4m0/
+- 这个替嫁让我来！ https://www.aurorawj.com/book/3bec49d/
 - 网球带给齐木的灾难 https://www.aurorawj.com/book/3bec31a/
 - 当甚尔转生成继国 https://www.aurorawj.com/book/3bec10e/
 - 节能型社恐靠交友存活打排球 https://www.aurorawj.com/book/3bec0a8/
@@ -63,6 +68,7 @@
 - 全天下都在求太子殿下别死！ https://www.aurorawj.com/book/3beabcd/
 - 可怜的天然呆直男[快穿] https://www.aurorawj.com/book/3beab3u/
 - 五美元在哥谭活一月 https://www.aurorawj.com/book/3beaapd/
+- 痴情女配开始放手了（快穿） https://www.aurorawj.com/book/3beaanc/
 - 我当县令那些年 https://www.aurorawj.com/book/3beaafk/
 - bl世界的路人不想被掰弯 https://www.aurorawj.com/book/3beaa8v/
 - [足球]听克圣的话，成了米兰金童 https://www.aurorawj.com/book/3beaa66/
@@ -301,7 +307,6 @@
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.aurorawj.com/book/3be91k7/
 - 穿进民国后宅从杂役做起 https://www.aurorawj.com/book/3be91j6/
 - 系统错绑后我成了顶级白富美 https://www.aurorawj.com/book/3be91gn/
-- 冷傲上司绑定娇妻系统后 https://www.aurorawj.com/book/3be918d/
 - 娇婚惯养 https://www.aurorawj.com/book/3be917j/
 - 被双胞胎竹马轮番娇养 https://www.aurorawj.com/book/3be916p/
 - 当烫男人走错了片场 https://www.aurorawj.com/book/3be9163/
@@ -415,7 +420,6 @@
 - 吐槽役审神者会爆改幕后大boss吗 https://www.aurorawj.com/book/3be8pq4/
 - 咒术师，但队友是侦探 https://www.aurorawj.com/book/3be8pnm/
 - “纯黑”苏格兰的蜂蜜陷阱 https://www.aurorawj.com/book/3be8pdi/
-- 刀子精手心的人偶崽崽 https://www.aurorawj.com/book/3be8p6b/
 - 每天都在和太宰互换身体 https://www.aurorawj.com/book/3be8p47/
 - 关于我虚构了一个男友这件事 https://www.aurorawj.com/book/3be8p1r/
 - 求生游戏：当邪神成为生活玩家后 https://www.aurorawj.com/book/3be8p09/
@@ -434,6 +438,7 @@
 - 满级竹马从异世穿回来了 https://www.aurorawj.com/book/3be7vme/
 - 丧尸老婆喂养日记 https://www.aurorawj.com/book/3be7nfk/
 - 朕看上的少年是侠女 https://www.aurorawj.com/book/3be6n6t/
+- 我不是正夫吗？ https://www.aurorawj.com/book/3be6mv1/
 - [封神]圣人生欲 https://www.aurorawj.com/book/3be6mnk/
 - 你，后室管理员 https://www.aurorawj.com/book/3be6mg7/
 - 被四皇错看成小动物后 https://www.aurorawj.com/book/3be6ljt/
