@@ -1,7 +1,7 @@
 
 # 书城读书网_免费小说在线阅读|无弹窗广告
 
-更新时间：2026-09-09 03:40:00
+更新时间：2026-09-10 03:40:08
 
 书城读书网是最热门的免费小说网站，提供包括玄幻、都市、言情等多种类型的小说在线阅读服务。这里不仅有最新章节的实时更新，还有全面的小说排行榜，让您轻松找到喜欢的作品。阅读体验极佳，全程无弹窗广告干扰，值得收藏！ https://www.shucheng168.com
 
@@ -33,6 +33,7 @@
 - 我比反派先崩坏[快穿] https://www.shucheng168.com/book/47fou4r/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.shucheng168.com/book/47fotq8/
 - 渡鬼 https://www.shucheng168.com/book/47fotpn/
+- 痴情女配开始放手了（快穿） https://www.shucheng168.com/book/47fotor/
 - cos温迪后玩到真崩铁了 https://www.shucheng168.com/book/47fopkg/
 - 我有嘉宾 https://www.shucheng168.com/book/47fop7g/
 - 娇气点怎么啦？［快穿］ https://www.shucheng168.com/book/47fop28/
@@ -55,6 +56,7 @@
 - 侦探立于百万生命之上 https://www.shucheng168.com/book/47fo47f/
 - 特殊魅力值，已到账 https://www.shucheng168.com/book/47fo3jj/
 - 昭暮 https://www.shucheng168.com/book/47fo26p/
+- 我不是正夫吗？ https://www.shucheng168.com/book/47fnujm/
 - 朕看上的少年是侠女 https://www.shucheng168.com/book/47fnuip/
 - 你，后室管理员 https://www.shucheng168.com/book/47fnugt/
 - 高调装神，猥琐发育 https://www.shucheng168.com/book/47fnn9t/
@@ -316,7 +318,6 @@
 - [足球]能不能好好模拟游戏 https://www.shucheng168.com/book/47fm1br/
 - [综英美]萌萌小蜘蛛在哥谭 https://www.shucheng168.com/book/47fm1ak/
 - 逆序布鲁斯的好大儿 https://www.shucheng168.com/book/47fm15r/
-- 冷傲上司绑定娇妻系统后 https://www.shucheng168.com/book/47fm14v/
 - [足球]德意志小比也能拿冠军吗 https://www.shucheng168.com/book/47fm13j/
 - 她来赎罪 https://www.shucheng168.com/book/47fm12i/
 - 瓮中惊春 https://www.shucheng168.com/book/47fm101/
@@ -414,7 +415,6 @@
 - 吐槽役审神者会爆改幕后大boss吗 https://www.shucheng168.com/book/47flok3/
 - 求生游戏：当邪神成为生活玩家后 https://www.shucheng168.com/book/47flmfj/
 - 我最讨厌打球了！ https://www.shucheng168.com/book/47flmei/
-- 刀子精手心的人偶崽崽 https://www.shucheng168.com/book/47flkbb/
 - [足球]小小鸟堂堂来袭 https://www.shucheng168.com/book/47fleov/
 - 幼崽假少爷选择回归寒门 https://www.shucheng168.com/book/47fleel/
 - 好巧，你也是妹控？[综崩铁] https://www.shucheng168.com/book/47flcgh/

@@ -1,7 +1,7 @@
 
 # 梦翔橙子小说网-全本小说最值得收藏的在线阅读平台
 
-更新时间：2026-09-09 03:35:49
+更新时间：2026-09-10 03:36:01
 
 梦翔橙子小说网为您提供最新、最热门的小说资源，拥有全网最全面的小说库。无论是全本还是连载中，都能在这里找到。是解决书荒问题的理想选择，让您的阅读体验更加流畅愉快。 https://www.mengxiang668.com
 
@@ -15,7 +15,6 @@
 - 强取师尊后 https://www.mengxiang668.com/book/2nrq7fd/
 - 恶毒男配只想躺平 https://www.mengxiang668.com/book/2nrq7fc/
 - 清穿女回来后[天幕] https://www.mengxiang668.com/book/2nrq7f7/
-- 欲和离？夫君他目不识丁 https://www.mengxiang668.com/book/2nrq7f4/
 - 魔咒请说普通话[西幻] https://www.mengxiang668.com/book/2nrq7f3/
 - 禁止继承限制级雌君 https://www.mengxiang668.com/book/2nrq7f2/
 - 仙尊心尖宠，但被魔尊抢了 https://www.mengxiang668.com/book/2nrq7f0/
@@ -24,7 +23,7 @@
 - 末世八年春，游戏降临 https://www.mengxiang668.com/book/2nrq7en/
 - 正是冬雪沸腾时 https://www.mengxiang668.com/book/2nrq7em/
 - 前妻她肯定会后悔 https://www.mengxiang668.com/book/2nrq7ej/
-- 人，今晚土拨鼠站岗 https://www.mengxiang668.com/book/2nrq7ei/
+- 笨蛋土拨鼠站岗日志 https://www.mengxiang668.com/book/2nrq7ei/
 - 在中世纪做奴隶 https://www.mengxiang668.com/book/2nrq7eh/
 - [全职高手]治疗什么的不干了！ https://www.mengxiang668.com/book/2nrq7eg/
 - 乖乖女的杂货铺[八零] https://www.mengxiang668.com/book/2nrq7ef/
@@ -130,7 +129,6 @@
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.mengxiang668.com/book/2nrmag1/
 - 妻主风流（女尊） https://www.mengxiang668.com/book/2nrm9s3/
 - 心动嫌疑人 https://www.mengxiang668.com/book/2nrm985/
-- 这个位面归我了！[经营] https://www.mengxiang668.com/book/2nrm7bg/
 - 带清冷女主回乡养螃蟹[种田] https://www.mengxiang668.com/book/2nrm5ol/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.mengxiang668.com/book/2nrm54n/
 - 村霸非要入赘受气包 https://www.mengxiang668.com/book/2nrm4pl/

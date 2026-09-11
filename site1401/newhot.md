@@ -1,11 +1,16 @@
 
 # 曹操SPA小说 - 小说的海洋，文学的殿堂 | 在线阅读与下载原创小说
 
-更新时间：2026-09-09 03:26:36
+更新时间：2026-09-10 03:26:51
 
 曹操SPA小说是一个专注于优质小说和文学创作的网站，这里是书迷们的天堂，提供丰富的原创网络小说、经典文学作品在线阅读与下载，致力于打造一个充满灵感与创意的文学世界。 https://www.caocaospa.com
 
 ## 最新小说
+- 穿成漫画反派的我又做错了什么 https://www.caocaospa.com/book/8q1ulhi/
+- [综英美]蝙蝠崽但脆皮 https://www.caocaospa.com/book/8q1ulg7/
+- 我拿的可是反派剧本 https://www.caocaospa.com/book/8q1ukom/
+- 丧尸王有什么坏心思？ https://www.caocaospa.com/book/8q1uk8v/
+- 这个替嫁让我来！ https://www.caocaospa.com/book/8q1ujsa/
 - 网球带给齐木的灾难 https://www.caocaospa.com/book/8q1uik9/
 - 当甚尔转生成继国 https://www.caocaospa.com/book/8q1ugnc/
 - 节能型社恐靠交友存活打排球 https://www.caocaospa.com/book/8q1ufvp/
@@ -62,6 +67,7 @@
 - 女装生崽，娃爹宇智波 https://www.caocaospa.com/book/8q1ss1o/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.caocaospa.com/book/8q1sro8/
 - 优质攻不做恋爱脑[快穿] https://www.caocaospa.com/book/8q1srnu/
+- 痴情女配开始放手了（快穿） https://www.caocaospa.com/book/8q1sra0/
 - 我当县令那些年 https://www.caocaospa.com/book/8q1sqqc/
 - 渡鬼 https://www.caocaospa.com/book/8q1sq3e/
 - [足球]听克圣的话，成了米兰金童 https://www.caocaospa.com/book/8q1sq1r/
@@ -335,7 +341,6 @@
 - 银发死鱼眼也要打排球 https://www.caocaospa.com/book/8q1rent/
 - 关于我想和太宰当一辈子的挚友可是他怎么居然想和我结婚这件事 https://www.caocaospa.com/book/8q1reip/
 - 朱棣造反被朱元璋表扬这事[直播剧透] https://www.caocaospa.com/book/8q1reih/
-- 冷傲上司绑定娇妻系统后 https://www.caocaospa.com/book/8q1rei6/
 - 她来赎罪 https://www.caocaospa.com/book/8q1refv/
 - 我让人生赢家俯首称臣的那些年 https://www.caocaospa.com/book/8q1red5/
 - 娇婚惯养 https://www.caocaospa.com/book/8q1re6k/
@@ -408,7 +413,6 @@
 - 普通高中生，但兼职咒术师 https://www.caocaospa.com/book/8q1r9me/
 - 神之子与排球的适配性 https://www.caocaospa.com/book/8q1r9jp/
 - 在重男兄弟间夹缝求生 https://www.caocaospa.com/book/8q1r9bc/
-- 刀子精手心的人偶崽崽 https://www.caocaospa.com/book/8q1r941/
 - 顶流他姐有神豪系统 https://www.caocaospa.com/book/8q1r92s/
 - 直播捏玩具被榜一大哥撅了 https://www.caocaospa.com/book/8q1r8sa/
 - 我靠玛丽苏系统伪装神女 https://www.caocaospa.com/book/8q1r8p8/
@@ -434,6 +438,7 @@
 - 满级竹马从异世穿回来了 https://www.caocaospa.com/book/8q1qffp/
 - 丧尸老婆喂养日记 https://www.caocaospa.com/book/8q1q7dm/
 - [封神]圣人生欲 https://www.caocaospa.com/book/8q1p7n1/
+- 我不是正夫吗？ https://www.caocaospa.com/book/8q1p769/
 - 你，后室管理员 https://www.caocaospa.com/book/8q1p6sv/
 - 被四皇错看成小动物后 https://www.caocaospa.com/book/8q1p6r4/
 - 朕看上的少年是侠女 https://www.caocaospa.com/book/8q1p6ae/

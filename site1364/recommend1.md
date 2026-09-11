@@ -1,7 +1,7 @@
 
 # 科幻读书-免费小说阅读|言情小说|小说排行榜|全本完本小说下载
 
-更新时间：2026-09-09 03:33:34
+更新时间：2026-09-10 03:33:49
 
 科幻读书提供海量完结全本小说在线阅读服务，涵盖言情、都市、耽美、穿越等多种类型，并定期更新连载章节及发布最新小说排行榜单。支持有声小说推荐与下载。 https://www.kehuan918.com
 
@@ -40,7 +40,7 @@
 - 失忆后和死对头有了崽 https://www.kehuan918.com/book/1d56hbi/
 - 谁说踢球就不能成为名侦探[足球] https://www.kehuan918.com/book/1d56hbd/
 - 国运求生：我的金手指是生命树 https://www.kehuan918.com/book/1d56hbb/
-- 人，今晚土拨鼠站岗 https://www.kehuan918.com/book/1d56hb9/
+- 笨蛋土拨鼠站岗日志 https://www.kehuan918.com/book/1d56hb9/
 - 谁都不爱的和亲公主 https://www.kehuan918.com/book/1d56hb6/
 - 炮灰的海外亲戚回国啦！ https://www.kehuan918.com/book/1d56hb3/
 - 暗恋的价格是三万块 https://www.kehuan918.com/book/1d56hb2/
@@ -70,7 +70,6 @@
 - 万人嫌从末世回来了 https://www.kehuan918.com/book/1d56h8u/
 - 病美人重生日记 https://www.kehuan918.com/book/1d56h8s/
 - 恐游作精女配求生指南 https://www.kehuan918.com/book/1d56h8m/
-- 欲和离？夫君他目不识丁 https://www.kehuan918.com/book/1d56h8l/
 - 起初，我只是想找个冤大头 https://www.kehuan918.com/book/1d5670g/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.kehuan918.com/book/1d564sl/
 - 上个鬼班[无限] https://www.kehuan918.com/book/1d560d8/
@@ -131,7 +130,6 @@
 - 妻主风流（女尊） https://www.kehuan918.com/book/1d52ip1/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.kehuan918.com/book/1d52i9g/
 - 带清冷女主回乡养螃蟹[种田] https://www.kehuan918.com/book/1d52hjo/
-- 这个位面归我了！[经营] https://www.kehuan918.com/book/1d52gck/
 - 清冷丞相怀了死对头的崽 https://www.kehuan918.com/book/1d52dqa/
 - [崩铁]请给玩家一个准确的血条！ https://www.kehuan918.com/book/1d52ddm/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.kehuan918.com/book/1d52cr1/

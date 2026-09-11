@@ -1,7 +1,7 @@
 
 # 落秋文学网 - 免费全本小说阅读,最新章节更新,无弹窗广告
 
-更新时间：2026-09-09 03:44:15
+更新时间：2026-09-10 03:44:29
 
 落秋文学网提供最快最新的网络小说更新服务，推荐最好看的网络小说排行榜。全站支持无弹窗广告阅读体验，全本小说均可免费在线阅读。 https://www.wenxue868.com
 
@@ -31,6 +31,7 @@
 - [足球]番外乐子集 https://www.wenxue868.com/book/rlcdkt/
 - 我超凶的！[快穿] https://www.wenxue868.com/book/rlcbqd/
 - 我比反派先崩坏[快穿] https://www.wenxue868.com/book/rlcavl/
+- 痴情女配开始放手了（快穿） https://www.wenxue868.com/book/rlcann/
 - 渡鬼 https://www.wenxue868.com/book/rlcan8/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.wenxue868.com/book/rlcaks/
 - cos温迪后玩到真崩铁了 https://www.wenxue868.com/book/rlc6h0/
@@ -55,6 +56,7 @@
 - 侦探立于百万生命之上 https://www.wenxue868.com/book/rlbgvs/
 - 特殊魅力值，已到账 https://www.wenxue868.com/book/rlbg8t/
 - 昭暮 https://www.wenxue868.com/book/rlbf34/
+- 我不是正夫吗？ https://www.wenxue868.com/book/rlbbek/
 - 你，后室管理员 https://www.wenxue868.com/book/rlbbca/
 - 朕看上的少年是侠女 https://www.wenxue868.com/book/rlbbbb/
 - 高调装神，猥琐发育 https://www.wenxue868.com/book/rlb4cb/
@@ -341,7 +343,6 @@
 - 女帝起家前录 https://www.wenxue868.com/book/rl9d4g/
 - 我让人生赢家俯首称臣的那些年 https://www.wenxue868.com/book/rl9d34/
 - 作家与读者 https://www.wenxue868.com/book/rl9d0o/
-- 冷傲上司绑定娇妻系统后 https://www.wenxue868.com/book/rl9cvp/
 - 逆序布鲁斯的好大儿 https://www.wenxue868.com/book/rl9cti/
 - 汉武帝戾太子什么含金量 https://www.wenxue868.com/book/rl9ciu/
 - 丧尸闻了闻你的恋爱脑 https://www.wenxue868.com/book/rl9cf4/
@@ -414,7 +415,6 @@
 - 吐槽役审神者会爆改幕后大boss吗 https://www.wenxue868.com/book/rl94l7/
 - 求生游戏：当邪神成为生活玩家后 https://www.wenxue868.com/book/rl92lo/
 - 我最讨厌打球了！ https://www.wenxue868.com/book/rl91ce/
-- 刀子精手心的人偶崽崽 https://www.wenxue868.com/book/rl91cd/
 - [足球]小小鸟堂堂来袭 https://www.wenxue868.com/book/rl8t64/
 - 幼崽假少爷选择回归寒门 https://www.wenxue868.com/book/rl8rr4/
 - 青城玩家明明超强却过分谨慎 https://www.wenxue868.com/book/rl8qra/

@@ -1,7 +1,7 @@
 
 # 笔趣阁小说网 - 免费在线阅读百万小说
 
-更新时间：2026-09-09 03:46:31
+更新时间：2026-09-10 03:46:53
 
 笔趣阁小说网提供免费的小说在线阅读服务，包括但不限于各类热门小说、经典文学等。网站支持书架同步功能，确保用户阅读进度永不丢失。快来加入我们，享受无障碍、无广告的纯净阅读体验吧！ https://www.xiaoshuo139.com
 
@@ -24,11 +24,13 @@
 - [综英美]让我统治哥谭！！！ https://www.xiaoshuo139.com/book/2ch7u5d/
 - 暴君偏头痛 https://www.xiaoshuo139.com/book/2ch7u58/
 - 青城玩家明明超强却过分谨慎 https://www.xiaoshuo139.com/book/2ch7u45/
+- 痴情女配开始放手了（快穿） https://www.xiaoshuo139.com/book/2ch7u42/
 - 渡鬼 https://www.xiaoshuo139.com/book/2ch7u3f/
 - 躲避原书剧情五年后 https://www.xiaoshuo139.com/book/2ch7u39/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.xiaoshuo139.com/book/2ch7u1q/
 - 你，后室管理员 https://www.xiaoshuo139.com/book/2ch7u0n/
 - 朕看上的少年是侠女 https://www.xiaoshuo139.com/book/2ch7u02/
+- 我不是正夫吗？ https://www.xiaoshuo139.com/book/2ch7tvk/
 - [封神]圣人生欲 https://www.xiaoshuo139.com/book/2ch7tus/
 - 被四皇错看成小动物后 https://www.xiaoshuo139.com/book/2ch7tup/
 - 高调装神，猥琐发育 https://www.xiaoshuo139.com/book/2ch7tuc/
@@ -334,7 +336,6 @@
 - 龙傲天未婚妻不退婚了 https://www.xiaoshuo139.com/book/7kv6js/
 - 您的榜一秦始皇已加入直播间 https://www.xiaoshuo139.com/book/7kv6f8/
 - 师妹为何要如此 https://www.xiaoshuo139.com/book/7kv6b9/
-- 冷傲上司绑定娇妻系统后 https://www.xiaoshuo139.com/book/7kv6b1/
 - 贵族学院F4中的第四人 https://www.xiaoshuo139.com/book/7kv6a2/
 - 这死beta老说我们不可能 https://www.xiaoshuo139.com/book/7kv67i/
 - 她来赎罪 https://www.xiaoshuo139.com/book/7kv65r/

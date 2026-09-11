@@ -1,13 +1,13 @@
 
 # 棉花糖小说网-最好的免费小说阅读网站
 
-更新时间：2026-09-09 03:34:59
+更新时间：2026-09-10 03:35:10
 
 棉花糖小说网提供当前最火热的小说资源，支持免费在线阅读及TXT格式下载，致力于为读者带来优质的阅读体验。 https://www.littlemissribbon.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.littlemissribbon.com/book/5asij4o/
 - [综英美]和亲友群穿哥谭以后 https://www.littlemissribbon.com/book/5asij4k/
-- 欲和离？夫君他目不识丁 https://www.littlemissribbon.com/book/5asij4j/
 - 暗恋的价格是三万块 https://www.littlemissribbon.com/book/5asij4i/
 - 恐游里的邻居们[万人迷] https://www.littlemissribbon.com/book/5asij4h/
 - 穿咒术，但杀猴现场 https://www.littlemissribbon.com/book/5asij4g/
@@ -46,7 +46,7 @@
 - 谁说踢球就不能成为名侦探[足球] https://www.littlemissribbon.com/book/5asij3d/
 - 病美人重生日记 https://www.littlemissribbon.com/book/5asij3c/
 - 占有欲Daddy是我老公？ https://www.littlemissribbon.com/book/5asij3b/
-- 人，今晚土拨鼠站岗 https://www.littlemissribbon.com/book/5asij3a/
+- 笨蛋土拨鼠站岗日志 https://www.littlemissribbon.com/book/5asij3a/
 - [洪荒]成为太清妹妹后 https://www.littlemissribbon.com/book/5asij39/
 - 漫画取材所引发的修罗场 https://www.littlemissribbon.com/book/5asij38/
 - 我只想上京赶考啊[聊斋] https://www.littlemissribbon.com/book/5asij37/
@@ -82,7 +82,7 @@
 - 始乱终弃清冷首辅后 https://www.littlemissribbon.com/book/5asiisp/
 - [封神]圣人生欲 https://www.littlemissribbon.com/book/5asiisf/
 - 十九世纪贵族厨房（美食） https://www.littlemissribbon.com/book/5asiisb/
-- 星际团宠小人鱼 https://www.littlemissribbon.com/book/5asiire/
+- 我只梦你一页 https://www.littlemissribbon.com/book/5asiiqi/
 - 高调装神，猥琐发育 https://www.littlemissribbon.com/book/5asiiqh/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.littlemissribbon.com/book/5asiim3/
 - 直男咒术师的限制级游戏 https://www.littlemissribbon.com/book/5asiilt/
@@ -101,7 +101,6 @@
 - 食明 https://www.littlemissribbon.com/book/5asfpdv/
 - 诡话第一boss https://www.littlemissribbon.com/book/5asfm5m/
 - 让暴君Alpha怀崽后 https://www.littlemissribbon.com/book/5asfi8b/
-- 仙门透明人被迫万人迷 https://www.littlemissribbon.com/book/5asfhaa/
 - 日化人生[科研] https://www.littlemissribbon.com/book/5asfff9/
 - 老实人妻，但顶级魅魔 https://www.littlemissribbon.com/book/5asfe2i/
 - 专业女配的自我修养（快穿） https://www.littlemissribbon.com/book/5asfe1p/
@@ -110,7 +109,6 @@
 - 让你们无剧本可走（快穿） https://www.littlemissribbon.com/book/5asf7bl/
 - 趁她之危 https://www.littlemissribbon.com/book/5asf5es/
 - 起初，我只是想找个冤大头 https://www.littlemissribbon.com/book/5asf225/
-- 摄政王家的咸鱼夫郎 https://www.littlemissribbon.com/book/5asf0eb/
 - 死遁的亡夫们都回来了 https://www.littlemissribbon.com/book/h2tnc8/
 - 天幕今天也在直播我搞基建 https://www.littlemissribbon.com/book/h2tj3b/
 - 沈助理又在隐藏他的超能力 https://www.littlemissribbon.com/book/h2ti9r/
@@ -134,7 +132,6 @@
 - 多梦你一会儿 https://www.littlemissribbon.com/book/h2sa2t/
 - 韩团绿卡不想忍了 https://www.littlemissribbon.com/book/h2s81e/
 - 被糟蹋的老实人决定反击 https://www.littlemissribbon.com/book/h2s7re/
-- 这个位面归我了！[经营] https://www.littlemissribbon.com/book/h2s5cv/
 - 清冷丞相怀了死对头的崽 https://www.littlemissribbon.com/book/h2s4hl/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.littlemissribbon.com/book/h2s4g2/
 - 村霸非要入赘受气包 https://www.littlemissribbon.com/book/h2s2qo/
@@ -160,6 +157,7 @@
 - 全民求生:从小木屋到魔法农场 https://www.littlemissribbon.com/book/1mlt9v/
 - [娱乐圈]过分美丽的她 https://www.littlemissribbon.com/book/5f01d/
 - 我是唯一地上神国 https://www.littlemissribbon.com/book/5evvo/
+- 月亮上的大筒木 https://www.littlemissribbon.com/book/5evuf/
 - 在魔法贵族学院当白月光 https://www.littlemissribbon.com/book/5evtd/
 ## 相关内容
 - [README](/README.md)

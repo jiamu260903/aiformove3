@@ -1,11 +1,16 @@
 
 # 耽美小说网 - 最热门的耽美小说在线阅读
 
-更新时间：2026-09-09 03:36:35
+更新时间：2026-09-10 03:36:45
 
 耽美小说网是一个广大书友喜欢的小说网，免费为您提供热门耽美小说、女生小说、都市言情小说无弹窗在线阅读和txt下载。 https://www.nvwagen.com
 
 ## 最新小说
+- 穿成漫画反派的我又做错了什么 https://www.nvwagen.com/book/8u4jimi/
+- [综英美]蝙蝠崽但脆皮 https://www.nvwagen.com/book/8u4jijk/
+- 我拿的可是反派剧本 https://www.nvwagen.com/book/8u4jhtn/
+- 丧尸王有什么坏心思？ https://www.nvwagen.com/book/8u4jhct/
+- 这个替嫁让我来！ https://www.nvwagen.com/book/8u4jh0j/
 - 网球带给齐木的灾难 https://www.nvwagen.com/book/8u4jfnk/
 - 当甚尔转生成继国 https://www.nvwagen.com/book/8u4jdo2/
 - 节能型社恐靠交友存活打排球 https://www.nvwagen.com/book/8u4jd43/
@@ -57,6 +62,7 @@
 - [足球]葡萄牙世界杯if线 https://www.nvwagen.com/book/8u4hq3b/
 - 优质攻不做恋爱脑[快穿] https://www.nvwagen.com/book/8u4hq34/
 - 暗堕本丸，在线直播 https://www.nvwagen.com/book/8u4hpm8/
+- 痴情女配开始放手了（快穿） https://www.nvwagen.com/book/8u4hoqs/
 - 可怜的天然呆直男[快穿] https://www.nvwagen.com/book/8u4hocb/
 - 全天下都在求太子殿下别死！ https://www.nvwagen.com/book/8u4ho3u/
 - 我当县令那些年 https://www.nvwagen.com/book/8u4ho0b/
@@ -331,7 +337,6 @@
 - 正常人成为虫母后沦陷修罗场 https://www.nvwagen.com/book/8u4gcej/
 - 女beta的星际悠闲生活 https://www.nvwagen.com/book/8u4gce6/
 - [综英美]忠诚的地球迎来了伟大的开拓者 https://www.nvwagen.com/book/8u4gcda/
-- 冷傲上司绑定娇妻系统后 https://www.nvwagen.com/book/8u4gca6/
 - 忍界观察日记 https://www.nvwagen.com/book/8u4gc6r/
 - 下堂驸马追妻实录 https://www.nvwagen.com/book/8u4gc6i/
 - [全职高手]问就是没钱 https://www.nvwagen.com/book/8u4gc5f/
@@ -399,7 +404,6 @@
 - 小狗向导，世界瑰宝！ https://www.nvwagen.com/book/8u4g7a4/
 - 吐槽役审神者会爆改幕后大boss吗 https://www.nvwagen.com/book/8u4g78u/
 - 关于我虚构了一个男友这件事 https://www.nvwagen.com/book/8u4g76m/
-- 刀子精手心的人偶崽崽 https://www.nvwagen.com/book/8u4g71j/
 - 在女仆咖啡店兼职被校草缠上后 https://www.nvwagen.com/book/8u4g6vj/
 - 无能的丈夫们 https://www.nvwagen.com/book/8u4g6r8/
 - 青山不渡 https://www.nvwagen.com/book/8u4g6r4/
@@ -433,6 +437,7 @@
 - 书呆子扮演渣攻翻车【快穿】 https://www.nvwagen.com/book/8u4fepg/
 - 满级竹马从异世穿回来了 https://www.nvwagen.com/book/8u4fbbr/
 - 丧尸老婆喂养日记 https://www.nvwagen.com/book/8u4f3fq/
+- 我不是正夫吗？ https://www.nvwagen.com/book/8u4e4gs/
 - 朕看上的少年是侠女 https://www.nvwagen.com/book/8u4e4c3/
 - 被四皇错看成小动物后 https://www.nvwagen.com/book/8u4e3ea/
 - 你，后室管理员 https://www.nvwagen.com/book/8u4e39t/

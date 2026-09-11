@@ -1,7 +1,7 @@
 
 # 看居中文网_免费小说在线阅读|无弹窗广告值得收藏
 
-更新时间：2026-09-09 03:32:30
+更新时间：2026-09-10 03:32:48
 
 看居中文网是最热门的免费小说网站，提供包括但不限于玄幻、都市、言情等多种类型的小说在线阅读服务。本站实时更新小说最新章节列表，拥有全面的小说排行榜，致力于为读者提供一个干净舒适的阅读环境，无弹窗广告干扰，是您寻找好书的理想之地。 https://www.kanju688.com
 
@@ -33,6 +33,7 @@
 - 我比反派先崩坏[快穿] https://www.kanju688.com/book/pavv69/
 - 渡鬼 https://www.kanju688.com/book/pavus0/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.kanju688.com/book/pavur9/
+- 痴情女配开始放手了（快穿） https://www.kanju688.com/book/pavuq8/
 - cos温迪后玩到真崩铁了 https://www.kanju688.com/book/pavqn8/
 - 我有嘉宾 https://www.kanju688.com/book/pavq5g/
 - 娇气点怎么啦？［快穿］ https://www.kanju688.com/book/pavq2g/
@@ -57,6 +58,7 @@
 - 昭暮 https://www.kanju688.com/book/pav3bk/
 - 朕看上的少年是侠女 https://www.kanju688.com/book/pauvle/
 - 你，后室管理员 https://www.kanju688.com/book/pauvl4/
+- 我不是正夫吗？ https://www.kanju688.com/book/pauvic/
 - 高调装神，猥琐发育 https://www.kanju688.com/book/pauoa8/
 - 我在无限游戏里假扮NPC[无限流] https://www.kanju688.com/book/paui9t/
 - 伪装路人后成了反派首领 https://www.kanju688.com/book/paui9r/
@@ -314,7 +316,6 @@
 - [HP]我和救世主有个约会 https://www.kanju688.com/book/pat2gr/
 - 白月光拒绝拯救反派 https://www.kanju688.com/book/pat2c0/
 - 关于我想和太宰当一辈子的挚友可是他怎么居然想和我结婚这件事 https://www.kanju688.com/book/pat2ba/
-- 冷傲上司绑定娇妻系统后 https://www.kanju688.com/book/pat279/
 - 破戒[娱乐圈] https://www.kanju688.com/book/pat26i/
 - 她来赎罪 https://www.kanju688.com/book/pat26d/
 - [综武侠]有间民宿 https://www.kanju688.com/book/pat24p/
@@ -412,7 +413,6 @@
 - 某柯学的正义伙伴 https://www.kanju688.com/book/pasr9i/
 - 穿成影后的作死前妻 https://www.kanju688.com/book/pasquh/
 - 吐槽役审神者会爆改幕后大boss吗 https://www.kanju688.com/book/pasns4/
-- 刀子精手心的人偶崽崽 https://www.kanju688.com/book/pasnap/
 - 我最讨厌打球了！ https://www.kanju688.com/book/pasls1/
 - 求生游戏：当邪神成为生活玩家后 https://www.kanju688.com/book/paslqv/
 - 幼崽假少爷选择回归寒门 https://www.kanju688.com/book/pasfis/

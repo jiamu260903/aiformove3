@@ -1,7 +1,7 @@
 
 # 生活文学小说-质感小说文学网站|高质量文学作品与创作交流平台
 
-更新时间：2026-09-09 03:39:15
+更新时间：2026-09-10 03:39:24
 
 生活文学小说是一个专注于提供质感小说文学的网站，致力于为文学爱好者打造一个高质量的文学作品和创作交流平台，在这里可以享受到独特的夜间文学之美。 https://www.shenghuo988.com
 
@@ -33,6 +33,7 @@
 - 我比反派先崩坏[快穿] https://www.shenghuo988.com/book/86garfo/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.shenghuo988.com/book/86gar8d/
 - 渡鬼 https://www.shenghuo988.com/book/86gar6m/
+- 痴情女配开始放手了（快穿） https://www.shenghuo988.com/book/86gar6i/
 - cos温迪后玩到真崩铁了 https://www.shenghuo988.com/book/86gan2m/
 - 我有嘉宾 https://www.shenghuo988.com/book/86gamiq/
 - 娇气点怎么啦？［快穿］ https://www.shenghuo988.com/book/86gamej/
@@ -55,6 +56,7 @@
 - 侦探立于百万生命之上 https://www.shenghuo988.com/book/86ga1fe/
 - 特殊魅力值，已到账 https://www.shenghuo988.com/book/86ga0tu/
 - 昭暮 https://www.shenghuo988.com/book/86g9vrb/
+- 我不是正夫吗？ https://www.shenghuo988.com/book/86g9rui/
 - 你，后室管理员 https://www.shenghuo988.com/book/86g9rs6/
 - 朕看上的少年是侠女 https://www.shenghuo988.com/book/86g9rmt/
 - 高调装神，猥琐发育 https://www.shenghuo988.com/book/86g9kll/
@@ -303,7 +305,6 @@
 - 师妹为何要如此 https://www.shenghuo988.com/book/86g7vsv/
 - 被离婚后嫁给了年代文大佬[穿书] https://www.shenghuo988.com/book/86g7vgk/
 - 作家与读者 https://www.shenghuo988.com/book/86g7vg1/
-- 冷傲上司绑定娇妻系统后 https://www.shenghuo988.com/book/86g7vep/
 - 豪门狗血文里的天才后妈 https://www.shenghuo988.com/book/86g7vc9/
 - 善逸拒绝成为咒术师 https://www.shenghuo988.com/book/86g7v7p/
 - [HP]我和救世主有个约会 https://www.shenghuo988.com/book/86g7v5o/
@@ -413,7 +414,6 @@
 - 司寝宫女 https://www.shenghuo988.com/book/86g7n8u/
 - 吐槽役审神者会爆改幕后大boss吗 https://www.shenghuo988.com/book/86g7kbk/
 - 我最讨厌打球了！ https://www.shenghuo988.com/book/86g7k68/
-- 刀子精手心的人偶崽崽 https://www.shenghuo988.com/book/86g7k2q/
 - 求生游戏：当邪神成为生活玩家后 https://www.shenghuo988.com/book/86g7ilc/
 - 幼崽假少爷选择回归寒门 https://www.shenghuo988.com/book/86g7ce8/
 - [足球]小小鸟堂堂来袭 https://www.shenghuo988.com/book/86g7cdu/

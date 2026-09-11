@@ -1,17 +1,17 @@
 
 # 笔看阁-最热门的免费小说网 | 玄幻、网游、言情、穿越、都市全本小说在线阅读
 
-更新时间：2026-09-09 03:28:14
+更新时间：2026-09-10 03:28:31
 
 笔看阁是最热门的免费小说网站之一，专注于提供包括玄幻、网游、言情、穿越、都市等多种类型的小说在线阅读服务。本站承诺不设任何弹窗广告，页面简洁易用，为读者创造一个纯净舒适的阅读环境。 https://www.dasenluan.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.dasenluan.com/book/3jmhknk/
 - 我只想上京赶考啊[聊斋] https://www.dasenluan.com/book/3jmhknd/
 - 热恋过期需重追 https://www.dasenluan.com/book/3jmhknb/
 - 八零法医，带全家致富 https://www.dasenluan.com/book/3jmhkna/
 - 恶毒男配只想躺平 https://www.dasenluan.com/book/3jmhkn8/
 - [综英美]和亲友群穿哥谭以后 https://www.dasenluan.com/book/3jmhkn4/
-- 欲和离？夫君他目不识丁 https://www.dasenluan.com/book/3jmhkmu/
 - 在年代文里跑运输 https://www.dasenluan.com/book/3jmhkmq/
 - 夫人每天都在伪装 https://www.dasenluan.com/book/3jmhkmo/
 - 在中世纪做奴隶 https://www.dasenluan.com/book/3jmhkmn/
@@ -39,7 +39,7 @@
 - [足球]小小鸟堂堂来袭 https://www.dasenluan.com/book/3jmhkks/
 - 穿为龙傲天发妻后 https://www.dasenluan.com/book/3jmhkkq/
 - 清穿女回来后[天幕] https://www.dasenluan.com/book/3jmhkkn/
-- 人，今晚土拨鼠站岗 https://www.dasenluan.com/book/3jmhkkl/
+- 笨蛋土拨鼠站岗日志 https://www.dasenluan.com/book/3jmhkkl/
 - 仙尊心尖宠，但被魔尊抢了 https://www.dasenluan.com/book/3jmhkkk/
 - 病美人重生日记 https://www.dasenluan.com/book/3jmhkkd/
 - [崩铁]请给玩家一个准确的血条！ https://www.dasenluan.com/book/3jmhkkb/
@@ -77,8 +77,8 @@
 - 上个鬼班[无限] https://www.dasenluan.com/book/3jmh4f0/
 - 原配夫人 https://www.dasenluan.com/book/3jmh3ed/
 - 始乱终弃清冷首辅后 https://www.dasenluan.com/book/3jmh3ea/
-- 星际团宠小人鱼 https://www.dasenluan.com/book/3jmh3e1/
 - 让暴君Alpha怀崽后 https://www.dasenluan.com/book/3jmh1t2/
+- 我只梦你一页 https://www.dasenluan.com/book/3jmh0a7/
 - 九零重组小家庭 https://www.dasenluan.com/book/3jmguv5/
 - [足球]足坛人生模拟器 https://www.dasenluan.com/book/3jmgs85/
 - 趁她之危 https://www.dasenluan.com/book/3jmgm6k/
@@ -93,11 +93,9 @@
 - 高调装神，猥琐发育 https://www.dasenluan.com/book/3jmfoig/
 - 起初，我只是想找个冤大头 https://www.dasenluan.com/book/3jmfoa3/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.dasenluan.com/book/3jmfk8j/
-- 仙门透明人被迫万人迷 https://www.dasenluan.com/book/3jmfidm/
 - 让你们无剧本可走（快穿） https://www.dasenluan.com/book/3jmfhdv/
 - [足球]我的游戏存档成真了？！ https://www.dasenluan.com/book/3jmfh4l/
 - 直男咒术师的限制级游戏 https://www.dasenluan.com/book/3jmfg4k/
-- 摄政王家的咸鱼夫郎 https://www.dasenluan.com/book/3jmfda7/
 - 我与龙傲天寿命共享 https://www.dasenluan.com/book/3jmfag5/
 - 如何正确哄睡暴君 https://www.dasenluan.com/book/3jmf8fu/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.dasenluan.com/book/3jmeurm/
@@ -106,6 +104,7 @@
 - 被天使之王骗婚后[诡秘之主] https://www.dasenluan.com/book/3jmesj1/
 - 在民俗惊悚片被诸神庇护 https://www.dasenluan.com/book/3jmeo9v/
 - 从童星开始杀穿港娱 https://www.dasenluan.com/book/3jmene3/
+- 月亮上的大筒木 https://www.dasenluan.com/book/3jmekq2/
 - 漂亮女配是万人迷［快穿］ https://www.dasenluan.com/book/3jmej81/
 - 我有一座地下城 https://www.dasenluan.com/book/3jmej3s/
 - 开局绑定郭奉孝，谋定三国风云 https://www.dasenluan.com/book/3jmehpa/
@@ -129,7 +128,6 @@
 - 妻主风流（女尊） https://www.dasenluan.com/book/3jmdoc8/
 - 韩团绿卡不想忍了 https://www.dasenluan.com/book/3jmdlfs/
 - 死亡悖论[无限流] https://www.dasenluan.com/book/3jmdj6c/
-- 这个位面归我了！[经营] https://www.dasenluan.com/book/3jmdit9/
 - 心动嫌疑人 https://www.dasenluan.com/book/3jmdinu/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.dasenluan.com/book/3jmdh22/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.dasenluan.com/book/3jmdgjo/

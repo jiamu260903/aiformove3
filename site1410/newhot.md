@@ -1,11 +1,12 @@
 
 # 新华 MBA雷火小说网 - 最新最全的小说阅读平台
 
-更新时间：2026-09-09 03:46:17
+更新时间：2026-09-10 03:46:39
 
 新华 MBA雷火小说网提供海量正版小说资源，在线免费阅读最新热门小说，支持手机电脑多端同步阅读，是书友们值得收藏的优质小说阅读网站。 https://www.xhmba.com
 
 ## 最新小说
+- 网球带给齐木的灾难 https://www.xhmba.com/book/7mj2l9k/
 - 当甚尔转生成继国 https://www.xhmba.com/book/7mj2jf2/
 - 节能型社恐靠交友存活打排球 https://www.xhmba.com/book/7mj2ioc/
 - 渣攻他疯了［快穿］ https://www.xhmba.com/book/7mj2i6g/
@@ -62,6 +63,7 @@
 - bl世界的路人不想被掰弯 https://www.xhmba.com/book/7mj0rmj/
 - 超A奶龙饲养指南 https://www.xhmba.com/book/7mj0rkh/
 - [综英美]flash小游戏，哥谭出品 https://www.xhmba.com/book/7mj0ril/
+- 那什么的小蜘蛛 https://www.xhmba.com/book/7mj0rhd/
 - [足球]听克圣的话，成了米兰金童 https://www.xhmba.com/book/7mj0rgq/
 - 我有一座城 https://www.xhmba.com/book/7mj0r5b/
 - 亚当斯与韦恩的适配性 https://www.xhmba.com/book/7mj0r57/
@@ -300,7 +302,6 @@
 - 师妹为何要如此 https://www.xhmba.com/book/7mivjni/
 - [综英美]忠诚的地球迎来了伟大的开拓者 https://www.xhmba.com/book/7mivjn9/
 - 魔尊他邪得发正 https://www.xhmba.com/book/7mivjjd/
-- 冷傲上司绑定娇妻系统后 https://www.xhmba.com/book/7mivjd4/
 - 女beta的星际悠闲生活 https://www.xhmba.com/book/7mivjd1/
 - 被离婚后嫁给了年代文大佬[穿书] https://www.xhmba.com/book/7mivjbv/
 - 我让人生赢家俯首称臣的那些年 https://www.xhmba.com/book/7mivjb8/
@@ -399,7 +400,6 @@
 - 穿成影后的作死前妻 https://www.xhmba.com/book/7mivclj/
 - 救命！猫尾巴藏不住了 https://www.xhmba.com/book/7mivckj/
 - 让我再吃一口 https://www.xhmba.com/book/7mivch2/
-- 刀子精手心的人偶崽崽 https://www.xhmba.com/book/7mivcg4/
 - 请问夫君你哪位 https://www.xhmba.com/book/7mivcfi/
 - 我靠玛丽苏系统伪装神女 https://www.xhmba.com/book/7mivcab/
 - 在重男兄弟间夹缝求生 https://www.xhmba.com/book/7mivc4f/
@@ -423,6 +423,7 @@
 - 自大狂 https://www.xhmba.com/book/7miuv26/
 - 书呆子扮演渣攻翻车【快穿】 https://www.xhmba.com/book/7miurhm/
 - 全天下都在求太子殿下别死！ https://www.xhmba.com/book/7miuo9p/
+- 痴情女配开始放手了（快穿） https://www.xhmba.com/book/7miulvt/
 - 暴君偏头痛 https://www.xhmba.com/book/7miulru/
 - 青城玩家明明超强却过分谨慎 https://www.xhmba.com/book/7miul1s/
 - 青空来信 https://www.xhmba.com/book/7miukvr/
@@ -434,6 +435,7 @@
 - 为她守节第十年 https://www.xhmba.com/book/7miu4he/
 - 朕看上的少年是侠女 https://www.xhmba.com/book/7mita8u/
 - 你，后室管理员 https://www.xhmba.com/book/7mit9dn/
+- 我不是正夫吗？ https://www.xhmba.com/book/7mit8sv/
 - [封神]圣人生欲 https://www.xhmba.com/book/7mit8aj/
 - 高调装神，猥琐发育 https://www.xhmba.com/book/7mit7ee/
 - 被四皇错看成小动物后 https://www.xhmba.com/book/7mit7c7/

@@ -1,16 +1,14 @@
 
 # 酷匠小说网 - 专注手机阅读，免费小说在线阅读及下载
 
-更新时间：2026-09-09 03:49:19
+更新时间：2026-09-10 03:49:47
 
 酷匠小说网提供最新免费小说在线阅读及下载。包括都市小说，玄幻小说，言情小说等。精致排版，每天更新，打造极致阅读体验，让您静享“精品阅读时光”。 https://www.yumin66.com
 
 ## 最新小说
-- 入梦修罗场，但我脸盲 https://www.yumin66.com/book/5q5nen/
 - 末世八年春，游戏降临 https://www.yumin66.com/book/5q5nej/
 - 暗恋的价格是三万块 https://www.yumin66.com/book/5q5nei/
 - 等我吃腻了再倒闭可以吗 https://www.yumin66.com/book/5q5neh/
-- 欲和离？夫君他目不识丁 https://www.yumin66.com/book/5q5neg/
 - 国运求生：我的金手指是生命树 https://www.yumin66.com/book/5q5nef/
 - [洪荒]成为太清妹妹后 https://www.yumin66.com/book/5q5nee/
 - 占有欲Daddy是我老公？ https://www.yumin66.com/book/5q5ned/
@@ -52,7 +50,7 @@
 - 正是冬雪沸腾时 https://www.yumin66.com/book/5q5nd8/
 - 国师 https://www.yumin66.com/book/5q5nd7/
 - 我只想上京赶考啊[聊斋] https://www.yumin66.com/book/5q5nd6/
-- 人，今晚土拨鼠站岗 https://www.yumin66.com/book/5q5nd5/
+- 笨蛋土拨鼠站岗日志 https://www.yumin66.com/book/5q5nd5/
 - 我们小区穿末世 https://www.yumin66.com/book/5q5nd4/
 - [崩铁]请给玩家一个准确的血条！ https://www.yumin66.com/book/5q5nd3/
 - SSS级异种都是我前任 https://www.yumin66.com/book/5q5nd2/
@@ -84,16 +82,19 @@
 - 十九世纪贵族厨房（美食） https://www.yumin66.com/book/5q5n54/
 - 始乱终弃清冷首辅后 https://www.yumin66.com/book/5q5n51/
 - 高调装神，猥琐发育 https://www.yumin66.com/book/5q5n4h/
-- 我只梦你一页 https://www.yumin66.com/book/5q5n4f/
 - 直男咒术师的限制级游戏 https://www.yumin66.com/book/5q5n44/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.yumin66.com/book/5q5n26/
+- 千禧年，拆迁分了十栋楼！ https://www.yumin66.com/book/5q5n22/
 - 六零之成了卷王的妹妹 https://www.yumin66.com/book/5q5lni/
 - 路人攻了主角攻［快穿］ https://www.yumin66.com/book/5q5llf/
 - 昭暮 https://www.yumin66.com/book/5q5c2s/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.yumin66.com/book/5q50qj/
+- 恶犬品德 https://www.yumin66.com/book/5q5048/
 - 老公对不起 https://www.yumin66.com/book/5q4ipa/
 - [足球]足坛人生模拟器 https://www.yumin66.com/book/5q46ss/
 - 九零重组小家庭 https://www.yumin66.com/book/5q45vl/
+- 直播忏悔室，吃瓜养宠圈 https://www.yumin66.com/book/5q44do/
+- 限制文女王[快穿] https://www.yumin66.com/book/5q3qbe/
 - 上个鬼班[无限] https://www.yumin66.com/book/5q3prn/
 - [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.yumin66.com/book/5q3msv/
 - 在卷王和废物之间选择做吉祥物 https://www.yumin66.com/book/5q3k66/
@@ -127,6 +128,7 @@
 - 我与龙傲天寿命共享 https://www.yumin66.com/book/il367/
 - 大唐守军家属 https://www.yumin66.com/book/il0tj/
 - 朕也要被强制吗？ https://www.yumin66.com/book/ikt8k/
+- 和小肥啾的海岛经营游戏 https://www.yumin66.com/book/ikrn6/
 - 在重生文里考科举 https://www.yumin66.com/book/ikqef/
 - 妻主风流（女尊） https://www.yumin66.com/book/iknma/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.yumin66.com/book/ikloj/
@@ -134,15 +136,12 @@
 - 韩团绿卡不想忍了 https://www.yumin66.com/book/ikis7/
 - 被糟蹋的老实人决定反击 https://www.yumin66.com/book/ikfkc/
 - 村霸非要入赘受气包 https://www.yumin66.com/book/ikffa/
-- 这个位面归我了！[经营] https://www.yumin66.com/book/ikfcm/
 - 清冷丞相怀了死对头的崽 https://www.yumin66.com/book/ike6i/
 - 卷王后妈，八零养娃 https://www.yumin66.com/book/ikdvf/
 - 和山神搭伙开农场的日子 https://www.yumin66.com/book/ikcbh/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.yumin66.com/book/ikahl/
 - 心动嫌疑人 https://www.yumin66.com/book/ik7o4/
-- 恶犬攻绑定上司的乖狗系统 https://www.yumin66.com/book/ik7li/
 - 假意逢承 https://www.yumin66.com/book/ik7h2/
-- 在民俗惊悚片被诸神庇护 https://www.yumin66.com/book/ik5hi/
 - 带清冷女主回乡养螃蟹[种田] https://www.yumin66.com/book/ik599/
 - 死亡悖论[无限流] https://www.yumin66.com/book/ik4rv/
 - 爱好和平但狂拆机甲 https://www.yumin66.com/book/ik278/

@@ -1,11 +1,12 @@
 
 # 书包网 - 免费小说阅读网_网络小说排行榜_最新小说推荐
 
-更新时间：2026-09-09 03:27:27
+更新时间：2026-09-10 03:27:41
 
 书包网提供最新最全的免费小说在线阅读，包括玄幻修真、都市言情、历史军事、科幻网游等各类网络小说，无弹窗广告，更新快速。 https://www.cialisgs.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.cialisgs.com/book/89ru3qm/
 - 占有欲Daddy是我老公？ https://www.cialisgs.com/book/89ru3qi/
 - 和治君只是饭搭子的关系 https://www.cialisgs.com/book/89ru3qh/
 - 谁说踢球就不能成为名侦探[足球] https://www.cialisgs.com/book/89ru3qg/
@@ -27,7 +28,7 @@
 - [足球]雏鸟 https://www.cialisgs.com/book/89ru3q0/
 - ［综英美］蝙蝠崽？我不是啊！ https://www.cialisgs.com/book/89ru3pv/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.cialisgs.com/book/89ru3pu/
-- 人，今晚土拨鼠站岗 https://www.cialisgs.com/book/89ru3pt/
+- 笨蛋土拨鼠站岗日志 https://www.cialisgs.com/book/89ru3pt/
 - 末世八年春，游戏降临 https://www.cialisgs.com/book/89ru3ps/
 - 清穿女回来后[天幕] https://www.cialisgs.com/book/89ru3pq/
 - 咦？我爸爸复活啦 https://www.cialisgs.com/book/89ru3pp/
@@ -65,7 +66,6 @@
 - 星露谷，但日本战国 https://www.cialisgs.com/book/89ru3op/
 - [综英美]哥谭市民，在线抽卡 https://www.cialisgs.com/book/89ru3oo/
 - 仙尊心尖宠，但被魔尊抢了 https://www.cialisgs.com/book/89ru3on/
-- 欲和离？夫君他目不识丁 https://www.cialisgs.com/book/89ru3om/
 - [洪荒]成为太清妹妹后 https://www.cialisgs.com/book/89ru3ol/
 - 死遁APP https://www.cialisgs.com/book/89ru3ok/
 - 强取师尊后 https://www.cialisgs.com/book/89ru3oj/
@@ -78,12 +78,12 @@
 - 我骗家里的钱养你啊 https://www.cialisgs.com/book/89ru3ob/
 - 正是冬雪沸腾时 https://www.cialisgs.com/book/89ru3oa/
 - 穿为龙傲天发妻后 https://www.cialisgs.com/book/89ru3o9/
-- 星际团宠小人鱼 https://www.cialisgs.com/book/89ru3is/
 - 始乱终弃清冷首辅后 https://www.cialisgs.com/book/89ru3in/
 - 原配夫人 https://www.cialisgs.com/book/89ru3ik/
 - [封神]圣人生欲 https://www.cialisgs.com/book/89ru3h9/
 - 十九世纪贵族厨房（美食） https://www.cialisgs.com/book/89ru3eg/
 - 高调装神，猥琐发育 https://www.cialisgs.com/book/89ru3ed/
+- 我只梦你一页 https://www.cialisgs.com/book/89ru3e3/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.cialisgs.com/book/89ru3ci/
 - 直男咒术师的限制级游戏 https://www.cialisgs.com/book/89ru3bn/
 - 六零之成了卷王的妹妹 https://www.cialisgs.com/book/89ru24b/
@@ -100,7 +100,6 @@
 - 如何嫁给当朝首辅 https://www.cialisgs.com/book/89rr9uc/
 - 食明 https://www.cialisgs.com/book/89rr96s/
 - 诡话第一boss https://www.cialisgs.com/book/89rr5sb/
-- 仙门透明人被迫万人迷 https://www.cialisgs.com/book/89rr4h7/
 - 让暴君Alpha怀崽后 https://www.cialisgs.com/book/89rqvcf/
 - 老实人妻，但顶级魅魔 https://www.cialisgs.com/book/89rquaf/
 - 日化人生[科研] https://www.cialisgs.com/book/89rqtj1/
@@ -110,7 +109,6 @@
 - 趁她之危 https://www.cialisgs.com/book/89rqor6/
 - 让你们无剧本可走（快穿） https://www.cialisgs.com/book/89rqo5n/
 - 起初，我只是想找个冤大头 https://www.cialisgs.com/book/89rqj2r/
-- 摄政王家的咸鱼夫郎 https://www.cialisgs.com/book/89rqile/
 - 死遁的亡夫们都回来了 https://www.cialisgs.com/book/qirl58/
 - 天幕今天也在直播我搞基建 https://www.cialisgs.com/book/qirkpv/
 - 沈助理又在隐藏他的超能力 https://www.cialisgs.com/book/qirhaa/
@@ -132,7 +130,6 @@
 - 妻主风流（女尊） https://www.cialisgs.com/book/qiqe40/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.cialisgs.com/book/qiq8it/
 - 多梦你一会儿 https://www.cialisgs.com/book/qiq6i6/
-- 这个位面归我了！[经营] https://www.cialisgs.com/book/qiq5rp/
 - 村霸非要入赘受气包 https://www.cialisgs.com/book/qiq5as/
 - 被糟蹋的老实人决定反击 https://www.cialisgs.com/book/qiq58l/
 - 韩团绿卡不想忍了 https://www.cialisgs.com/book/qiq4q7/
@@ -154,6 +151,7 @@
 - 海岛求生：生活玩家种田囤货 https://www.cialisgs.com/book/2l2hhm/
 - 我是唯一地上神国 https://www.cialisgs.com/book/2l2h5m/
 - 开局绑定郭奉孝，谋定三国风云 https://www.cialisgs.com/book/2l2ghh/
+- 月亮上的大筒木 https://www.cialisgs.com/book/2l2gft/
 - 苏娘子汴京摆摊日常（美食） https://www.cialisgs.com/book/2l2gau/
 - 清澈女大的六零年代 https://www.cialisgs.com/book/8g8j6/
 - 五十年代港城日常 https://www.cialisgs.com/book/8g8e2/

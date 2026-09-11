@@ -1,11 +1,16 @@
 
 # 瑞文文学网 - 最新穿越小说大全及热门小说排行榜
 
-更新时间：2026-09-09 03:24:57
+更新时间：2026-09-10 03:25:04
 
 瑞文文学网提供多种类型的小说推荐，包括最新的都市、玄幻、武侠等多种类别。无论您是喜欢穿越还是重生故事，或是对其他风格如历史、科幻感兴趣，在这里都能找到心仪的作品！ https://www.49ig.com
 
 ## 最新小说
+- 穿成漫画反派的我又做错了什么 https://www.49ig.com/book/436em7q/
+- [综英美]蝙蝠崽但脆皮 https://www.49ig.com/book/436em65/
+- 我拿的可是反派剧本 https://www.49ig.com/book/436elg6/
+- 丧尸王有什么坏心思？ https://www.49ig.com/book/436ekvo/
+- 这个替嫁让我来！ https://www.49ig.com/book/436ekhc/
 - 网球带给齐木的灾难 https://www.49ig.com/book/436ej95/
 - 当甚尔转生成继国 https://www.49ig.com/book/436ehbs/
 - 节能型社恐靠交友存活打排球 https://www.49ig.com/book/436egmf/
@@ -58,6 +63,7 @@
 - 女装生崽，娃爹宇智波 https://www.49ig.com/book/436ctdh/
 - 渡鬼 https://www.49ig.com/book/436cs28/
 - 五美元在哥谭活一月 https://www.49ig.com/book/436crv3/
+- 痴情女配开始放手了（快穿） https://www.49ig.com/book/436crjn/
 - 可怜的天然呆直男[快穿] https://www.49ig.com/book/436crbs/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.49ig.com/book/436cr8s/
 - 暗堕本丸，在线直播 https://www.49ig.com/book/436cr59/
@@ -321,7 +327,6 @@
 - [足球]罗蜜第一志愿 https://www.49ig.com/book/436bgah/
 - 娇婚惯养 https://www.49ig.com/book/436bg7q/
 - 书穿男主给反派卖萌苟命 https://www.49ig.com/book/436bg7d/
-- 冷傲上司绑定娇妻系统后 https://www.49ig.com/book/436bg16/
 - 白月光拒绝拯救反派 https://www.49ig.com/book/436bg0t/
 - 从伟大航道到黑暗大陆 https://www.49ig.com/book/436bg0r/
 - 女beta的星际悠闲生活 https://www.49ig.com/book/436bfvn/
@@ -400,7 +405,6 @@
 - 青城玩家明明超强却过分谨慎 https://www.49ig.com/book/436bb5v/
 - 在女仆咖啡店兼职被校草缠上后 https://www.49ig.com/book/436bb33/
 - 请问夫君你哪位 https://www.49ig.com/book/436bauu/
-- 刀子精手心的人偶崽崽 https://www.49ig.com/book/436baqr/
 - 好兄弟暴富后非要跟我结婚 https://www.49ig.com/book/436bapo/
 - “纯黑”苏格兰的蜂蜜陷阱 https://www.49ig.com/book/436bake/
 - 每天都在和太宰互换身体 https://www.49ig.com/book/436bai9/
@@ -437,6 +441,7 @@
 - 被四皇错看成小动物后 https://www.49ig.com/book/43697ic/
 - 高调装神，猥琐发育 https://www.49ig.com/book/4369798/
 - [封神]圣人生欲 https://www.49ig.com/book/43696e5/
+- 我不是正夫吗？ https://www.49ig.com/book/43696at/
 - 朕看上的少年是侠女 https://www.49ig.com/book/436954v/
 ## 相关内容
 - [README](/README.md)

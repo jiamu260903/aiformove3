@@ -1,7 +1,7 @@
 
 # 读者电子书-全本TXT小说免费下载,最新全集小说阅读
 
-更新时间：2026-09-09 03:28:29
+更新时间：2026-09-10 03:28:46
 
 读者电子书提供全本TXT小说下载及完整版电子书下载服务，涵盖各类最新最全的小说资源，支持手机等多终端阅读。每日更新，满足您的阅读需求。 https://www.duzhe368.com
 
@@ -13,9 +13,8 @@
 - 全民求生，但剑三 https://www.duzhe368.com/book/3hfvb76/
 - 正是冬雪沸腾时 https://www.duzhe368.com/book/3hfvb75/
 - SSS级异种都是我前任 https://www.duzhe368.com/book/3hfvb74/
-- 欲和离？夫君他目不识丁 https://www.duzhe368.com/book/3hfvb72/
 - 禁止继承限制级雌君 https://www.duzhe368.com/book/3hfvb70/
-- 人，今晚土拨鼠站岗 https://www.duzhe368.com/book/3hfvb6r/
+- 笨蛋土拨鼠站岗日志 https://www.duzhe368.com/book/3hfvb6r/
 - 星露谷，但日本战国 https://www.duzhe368.com/book/3hfvb6q/
 - 烈火焚身[巴黎圣母院] https://www.duzhe368.com/book/3hfvb6o/
 - 国运求生：我的金手指是生命树 https://www.duzhe368.com/book/3hfvb6n/
@@ -131,7 +130,6 @@
 - 妻主风流（女尊） https://www.duzhe368.com/book/3hfrdgf/
 - 心动嫌疑人 https://www.duzhe368.com/book/3hfrcu8/
 - 带清冷女主回乡养螃蟹[种田] https://www.duzhe368.com/book/3hfrbff/
-- 这个位面归我了！[经营] https://www.duzhe368.com/book/3hframm/
 - 趁她之危 https://www.duzhe368.com/book/3hfr9uq/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.duzhe368.com/book/3hfr8g0/
 - 村霸非要入赘受气包 https://www.duzhe368.com/book/3hfr7tn/

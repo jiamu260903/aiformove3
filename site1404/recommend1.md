@@ -1,12 +1,11 @@
 
 # 小顽童寻书网-最热门的免费小说阅读平台|全本玄幻言情网游穿越都市小说在线阅读
 
-更新时间：2026-09-09 03:47:22
+更新时间：2026-09-10 03:47:44
 
 小顽童寻书网提供一个无广告、无弹窗干扰的环境，让您享受纯净的小说阅读体验。涵盖玄幻、网游、言情、穿越、都市等多种类型的小说资源，在这里可以找到最新的章节更新以及完整的书籍内容。 https://www.xwt999.com
 
 ## 最新小说
-- 入梦修罗场，但我脸盲 https://www.xwt999.com/book/1u5ntds/
 - 炮灰的海外亲戚回国啦！ https://www.xwt999.com/book/1u5nhrc/
 - 末世八年春，游戏降临 https://www.xwt999.com/book/1u5nhr8/
 - [综英美]哥谭市民，在线抽卡 https://www.xwt999.com/book/1u5nhr7/
@@ -39,7 +38,7 @@
 - 暗恋的价格是三万块 https://www.xwt999.com/book/1u5nhoq/
 - 谁都不爱的和亲公主 https://www.xwt999.com/book/1u5nhop/
 - 我们小区穿末世 https://www.xwt999.com/book/1u5nhon/
-- 人，今晚土拨鼠站岗 https://www.xwt999.com/book/1u5nhok/
+- 笨蛋土拨鼠站岗日志 https://www.xwt999.com/book/1u5nhok/
 - ［综英美］蝙蝠崽？我不是啊！ https://www.xwt999.com/book/1u5nhof/
 - ［西幻］RPG就不要谈恋爱了吧！ https://www.xwt999.com/book/1u5nhoc/
 - [洪荒]成为太清妹妹后 https://www.xwt999.com/book/1u5nho5/
@@ -57,7 +56,6 @@
 - 大佬的漂亮老婆回来带崽了[八零] https://www.xwt999.com/book/1u5nhn6/
 - 万人嫌从末世回来了 https://www.xwt999.com/book/1u5nhn5/
 - 夫人每天都在伪装 https://www.xwt999.com/book/1u5nhmv/
-- 欲和离？夫君他目不识丁 https://www.xwt999.com/book/1u5nhmt/
 - 康熙宠妃日常 https://www.xwt999.com/book/1u5nhms/
 - 好心的俄罗斯人 https://www.xwt999.com/book/1u5nhmr/
 - 在中世纪做奴隶 https://www.xwt999.com/book/1u5nhmn/
@@ -68,9 +66,11 @@
 - 病美人重生日记 https://www.xwt999.com/book/1u5nhmc/
 - 天幕今天也在直播我搞基建 https://www.xwt999.com/book/1u5nhi5/
 - 起初，我只是想找个冤大头 https://www.xwt999.com/book/1u5nhhq/
+- 限制文女王[快穿] https://www.xwt999.com/book/1u5nbkv/
 - 上个鬼班[无限] https://www.xwt999.com/book/1u5na9l/
 - [足球]足坛人生模拟器 https://www.xwt999.com/book/1u5n9p3/
 - 让暴君Alpha怀崽后 https://www.xwt999.com/book/1u5n478/
+- 直播忏悔室，吃瓜养宠圈 https://www.xwt999.com/book/1u5n3k6/
 - 在卷王和废物之间选择做吉祥物 https://www.xwt999.com/book/1u5mvfb/
 - 从维多利亚时代开始 https://www.xwt999.com/book/1u5msad/
 - 昭暮 https://www.xwt999.com/book/1u5mo0o/
@@ -112,8 +112,8 @@
 - [足球]小小鸟堂堂来袭 https://www.xwt999.com/book/1u5kr4d/
 - 我187了，你敢见我吗？ https://www.xwt999.com/book/1u5kpug/
 - 和姐姐的前女友欢愉后 https://www.xwt999.com/book/1u5kld2/
-- 我只梦你一页 https://www.xwt999.com/book/1u5kkfv/
 - 朕也要被强制吗？ https://www.xwt999.com/book/1u5kf34/
+- 和小肥啾的海岛经营游戏 https://www.xwt999.com/book/1u5kf0k/
 - 心动嫌疑人 https://www.xwt999.com/book/1u5keo5/
 - 等我吃腻了再倒闭可以吗 https://www.xwt999.com/book/1u5keds/
 - 大唐守军家属 https://www.xwt999.com/book/1u5kcrh/
@@ -125,7 +125,6 @@
 - 穿咒术，但杀猴现场 https://www.xwt999.com/book/1u5k55s/
 - 妻主风流（女尊） https://www.xwt999.com/book/1u5k55q/
 - 带清冷女主回乡养螃蟹[种田] https://www.xwt999.com/book/1u5k401/
-- 这个位面归我了！[经营] https://www.xwt999.com/book/1u5k3ns/
 - 清冷丞相怀了死对头的崽 https://www.xwt999.com/book/1u5k2u6/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.xwt999.com/book/1u5k2do/
 - 村霸非要入赘受气包 https://www.xwt999.com/book/1u5jvo0/
@@ -134,7 +133,6 @@
 - 被糟蹋的老实人决定反击 https://www.xwt999.com/book/1u5jujn/
 - 权宋一只统 https://www.xwt999.com/book/1u5jn7b/
 - 娘娘扶摇直上 https://www.xwt999.com/book/1u5jmrn/
-- 恶犬攻绑定上司的乖狗系统 https://www.xwt999.com/book/1u5jlo1/
 - 爱好和平但狂拆机甲 https://www.xwt999.com/book/1u5jgu5/
 - 你让魔王组建勇者小队？ https://www.xwt999.com/book/1u5jdnl/
 - 全民求生:从小木屋到魔法农场 https://www.xwt999.com/book/1u5ihme/
@@ -145,7 +143,6 @@
 - 高调装神，猥琐发育 https://www.xwt999.com/book/1u5igkh/
 - 始乱终弃清冷首辅后 https://www.xwt999.com/book/1u5igjd/
 - 老公对不起 https://www.xwt999.com/book/1u5igh2/
-- 在民俗惊悚片被诸神庇护 https://www.xwt999.com/book/1u5iggl/
 - 我有一座安全城 https://www.xwt999.com/book/1u5iggd/
 - 成为养成系练习生后 https://www.xwt999.com/book/1u5igds/
 - 大瑛弟国 https://www.xwt999.com/book/1u5igde/
@@ -156,11 +153,13 @@
 - 海岛求生：生活玩家种田囤货 https://www.xwt999.com/book/1u5ife7/
 - 十九世纪贵族厨房（美食） https://www.xwt999.com/book/1u5ifc7/
 - 清澈女大的六零年代 https://www.xwt999.com/book/1u5ifb7/
+- 恶犬品德 https://www.xwt999.com/book/1u5if8v/
 - 原配夫人 https://www.xwt999.com/book/1u5if8o/
 - 完蛋！被恨孕男包围了！ https://www.xwt999.com/book/1u5if0d/
 - [封神]圣人生欲 https://www.xwt999.com/book/1u5ierl/
 - 趁她之危 https://www.xwt999.com/book/1u5ien8/
 - 卷王后妈，八零养娃 https://www.xwt999.com/book/1u5ien4/
+- 千禧年，拆迁分了十栋楼！ https://www.xwt999.com/book/1u5iecr/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1404/index.md)

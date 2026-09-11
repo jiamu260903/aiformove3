@@ -1,12 +1,11 @@
 
 # 无瑕天涯在线书库 - 免费小说在线阅读
 
-更新时间：2026-09-09 03:45:25
+更新时间：2026-09-10 03:45:43
 
 无瑕天涯在线书库自2003年创立至今，致力于提供包括武侠、言情、科幻等多种类型的小说免费在线阅读服务。页面设计简洁，持续优化用户体验，旨在为读者带来更好的阅读享受。 https://www.wuxia688.com
 
 ## 最新小说
-- 入梦修罗场，但我脸盲 https://www.wuxia688.com/book/2bjrga2/
 - 在中世纪做奴隶 https://www.wuxia688.com/book/2bjrg9s/
 - 好心的俄罗斯人 https://www.wuxia688.com/book/2bjrg9o/
 - 怨明月不独照 https://www.wuxia688.com/book/2bjrg9m/
@@ -59,14 +58,13 @@
 - 爱情的肯定句 https://www.wuxia688.com/book/2bjrg60/
 - 大佬的漂亮老婆回来带崽了[八零] https://www.wuxia688.com/book/2bjrg5s/
 - 恐游里的邻居们[万人迷] https://www.wuxia688.com/book/2bjrg5n/
-- 欲和离？夫君他目不识丁 https://www.wuxia688.com/book/2bjrg5m/
 - 炮灰的海外亲戚回国啦！ https://www.wuxia688.com/book/2bjrg5l/
 - 欲加之罪 https://www.wuxia688.com/book/2bjrg5j/
 - ［综英美］蝙蝠崽？我不是啊！ https://www.wuxia688.com/book/2bjrg5i/
 - 世界伏于她刀下[无限] https://www.wuxia688.com/book/2bjrg5e/
 - 国师 https://www.wuxia688.com/book/2bjrg5b/
 - 全民求生，但剑三 https://www.wuxia688.com/book/2bjrg5a/
-- 人，今晚土拨鼠站岗 https://www.wuxia688.com/book/2bjrg58/
+- 笨蛋土拨鼠站岗日志 https://www.wuxia688.com/book/2bjrg58/
 - 漫画取材所引发的修罗场 https://www.wuxia688.com/book/2bjrg55/
 - 我只想上京赶考啊[聊斋] https://www.wuxia688.com/book/2bjrg53/
 - 国运求生：我的金手指是生命树 https://www.wuxia688.com/book/2bjrg4t/
@@ -74,18 +72,20 @@
 - 起初，我只是想找个冤大头 https://www.wuxia688.com/book/2bjr5t1/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.wuxia688.com/book/2bjr3ob/
 - 上个鬼班[无限] https://www.wuxia688.com/book/2bjqvbg/
+- 限制文女王[快穿] https://www.wuxia688.com/book/2bjqprn/
 - 九零重组小家庭 https://www.wuxia688.com/book/2bjqojj/
 - 让暴君Alpha怀崽后 https://www.wuxia688.com/book/2bjqo2o/
 - [足球]足坛人生模拟器 https://www.wuxia688.com/book/2bjqnm6/
+- 直播忏悔室，吃瓜养宠圈 https://www.wuxia688.com/book/2bjqhpr/
 - 在卷王和废物之间选择做吉祥物 https://www.wuxia688.com/book/2bjqdf1/
 - 从维多利亚时代开始 https://www.wuxia688.com/book/2bjqaai/
 - 昭暮 https://www.wuxia688.com/book/2bjq899/
+- 恶犬品德 https://www.wuxia688.com/book/2bjq4j5/
 - 始乱终弃清冷首辅后 https://www.wuxia688.com/book/2bjq4gc/
 - 原配夫人 https://www.wuxia688.com/book/2bjq4du/
 - 十九世纪贵族厨房（美食） https://www.wuxia688.com/book/2bjq4d4/
 - 高调装神，猥琐发育 https://www.wuxia688.com/book/2bjptcu/
 - 完蛋！被恨孕男包围了！ https://www.wuxia688.com/book/2bjpt9g/
-- 我只梦你一页 https://www.wuxia688.com/book/2bjpt72/
 - 食明 https://www.wuxia688.com/book/2bjprbk/
 - 诡话第一boss https://www.wuxia688.com/book/2bjpo20/
 - 专业女配的自我修养（快穿） https://www.wuxia688.com/book/2bjplch/
@@ -97,7 +97,6 @@
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.wuxia688.com/book/2bjp5jk/
 - 我骗家里的钱养你啊 https://www.wuxia688.com/book/2bjp5fj/
 - 死遁的亡夫们都回来了 https://www.wuxia688.com/book/2bjp4k7/
-- 在民俗惊悚片被诸神庇护 https://www.wuxia688.com/book/2bjost0/
 - 死对头又在挑衅我 https://www.wuxia688.com/book/2bjor93/
 - 沈助理又在隐藏他的超能力 https://www.wuxia688.com/book/2bjoq58/
 - 被天使之王骗婚后[诡秘之主] https://www.wuxia688.com/book/2bjoojc/
@@ -122,6 +121,7 @@
 - 在魔法贵族学院当白月光 https://www.wuxia688.com/book/2bjo749/
 - 我187了，你敢见我吗？ https://www.wuxia688.com/book/2bjo4q9/
 - 和姐姐的前女友欢愉后 https://www.wuxia688.com/book/2bjo256/
+- 和小肥啾的海岛经营游戏 https://www.wuxia688.com/book/2bjnpik/
 - 大唐守军家属 https://www.wuxia688.com/book/2bjnokt/
 - 朕也要被强制吗？ https://www.wuxia688.com/book/2bjnncp/
 - 在重生文里考科举 https://www.wuxia688.com/book/2bjnn6t/
@@ -131,7 +131,6 @@
 - 死亡悖论[无限流] https://www.wuxia688.com/book/2bjnhn5/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.wuxia688.com/book/2bjnhia/
 - 带清冷女主回乡养螃蟹[种田] https://www.wuxia688.com/book/2bjng8e/
-- 这个位面归我了！[经营] https://www.wuxia688.com/book/2bjnetv/
 - [崩铁]请给玩家一个准确的血条！ https://www.wuxia688.com/book/2bjnd7c/
 - 清冷丞相怀了死对头的崽 https://www.wuxia688.com/book/2bjnd24/
 - 村霸非要入赘受气包 https://www.wuxia688.com/book/2bjnbpj/
@@ -140,7 +139,6 @@
 - 和山神搭伙开农场的日子 https://www.wuxia688.com/book/2bjn8ko/
 - 趁她之危 https://www.wuxia688.com/book/2bjn6sn/
 - 假意逢承 https://www.wuxia688.com/book/2bjn5og/
-- 恶犬攻绑定上司的乖狗系统 https://www.wuxia688.com/book/2bjn2hk/
 - 权宋一只统 https://www.wuxia688.com/book/2bjn1n1/
 - 爱好和平但狂拆机甲 https://www.wuxia688.com/book/2bjmr4n/
 - 我是唯一地上神国 https://www.wuxia688.com/book/2bjlv5n/
@@ -157,6 +155,7 @@
 - 我有一座安全城 https://www.wuxia688.com/book/2bjlt5a/
 - [娱乐圈]过分美丽的她 https://www.wuxia688.com/book/2bjlso5/
 - 全民求生:从小木屋到魔法农场 https://www.wuxia688.com/book/2bjlsnr/
+- 千禧年，拆迁分了十栋楼！ https://www.wuxia688.com/book/2bjlskd/
 - 老公对不起 https://www.wuxia688.com/book/2bjlsf8/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.wuxia688.com/book/2bjls8g/
 - 五十年代港城日常 https://www.wuxia688.com/book/2bjls7k/

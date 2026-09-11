@@ -1,7 +1,7 @@
 
 # 泡泡中文书社-无弹窗书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-09 03:41:03
+更新时间：2026-09-10 03:41:12
 
 泡泡中文书社是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。 https://www.shushe818.com
 
@@ -32,6 +32,7 @@
 - 我超凶的！[快穿] https://www.shushe818.com/book/29bbq4a/
 - 我比反派先崩坏[快穿] https://www.shushe818.com/book/29bbp9o/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.shushe818.com/book/29bbp07/
+- 痴情女配开始放手了（快穿） https://www.shushe818.com/book/29bbp05/
 - 渡鬼 https://www.shushe818.com/book/29bbou8/
 - cos温迪后玩到真崩铁了 https://www.shushe818.com/book/29bbkrs/
 - 我有嘉宾 https://www.shushe818.com/book/29bbkde/
@@ -57,6 +58,7 @@
 - 昭暮 https://www.shushe818.com/book/29batkp/
 - 你，后室管理员 https://www.shushe818.com/book/29baprb/
 - 朕看上的少年是侠女 https://www.shushe818.com/book/29bappi/
+- 我不是正夫吗？ https://www.shushe818.com/book/29bapll/
 - 高调装神，猥琐发育 https://www.shushe818.com/book/29baim3/
 - 某横滨的时间操纵 https://www.shushe818.com/book/29bachk/
 - 求求你们别吃了 https://www.shushe818.com/book/29bac4j/
@@ -341,7 +343,6 @@
 - 在横滨横行霸道的那些年 https://www.shushe818.com/book/29b8r4i/
 - 太子妃她不干了 https://www.shushe818.com/book/29b8r4a/
 - 汉武帝戾太子什么含金量 https://www.shushe818.com/book/29b8r43/
-- 冷傲上司绑定娇妻系统后 https://www.shushe818.com/book/29b8r3j/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.shushe818.com/book/29b8r3h/
 - [HP]我和救世主有个约会 https://www.shushe818.com/book/29b8qtl/
 - 樋口干部不干了 https://www.shushe818.com/book/29b8qov/
@@ -412,7 +413,6 @@
 - 癫骨 https://www.shushe818.com/book/29b8l0p/
 - 直播捏玩具被榜一大哥撅了 https://www.shushe818.com/book/29b8l0i/
 - 吐槽役审神者会爆改幕后大boss吗 https://www.shushe818.com/book/29b8kth/
-- 刀子精手心的人偶崽崽 https://www.shushe818.com/book/29b8hoj/
 - 我最讨厌打球了！ https://www.shushe818.com/book/29b8gk8/
 - 求生游戏：当邪神成为生活玩家后 https://www.shushe818.com/book/29b8gfr/
 - [足球]小小鸟堂堂来袭 https://www.shushe818.com/book/29b8b49/

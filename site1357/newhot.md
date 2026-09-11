@@ -1,7 +1,7 @@
 
 # 书香小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-09 03:41:18
+更新时间：2026-09-10 03:41:27
 
 书香小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。 https://www.shuxiang368.com
 
@@ -32,6 +32,7 @@
 - 我超凶的！[快穿] https://www.shuxiang368.com/book/3qknsfe/
 - 我比反派先崩坏[快穿] https://www.shuxiang368.com/book/3qknrll/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.shuxiang368.com/book/3qknrcl/
+- 痴情女配开始放手了（快穿） https://www.shuxiang368.com/book/3qknrc1/
 - 渡鬼 https://www.shuxiang368.com/book/3qknrbl/
 - cos温迪后玩到真崩铁了 https://www.shuxiang368.com/book/3qknn8g/
 - 我有嘉宾 https://www.shuxiang368.com/book/3qknmpj/
@@ -57,6 +58,7 @@
 - 昭暮 https://www.shuxiang368.com/book/3qkmvvc/
 - 朕看上的少年是侠女 https://www.shuxiang368.com/book/3qkms5r/
 - 你，后室管理员 https://www.shuxiang368.com/book/3qkms4i/
+- 我不是正夫吗？ https://www.shuxiang368.com/book/3qkmrur/
 - 高调装神，猥琐发育 https://www.shuxiang368.com/book/3qkmkum/
 - 某横滨的时间操纵 https://www.shuxiang368.com/book/3qkmed3/
 - 伪装路人后成了反派首领 https://www.shuxiang368.com/book/3qkmecf/
@@ -308,7 +310,6 @@
 - 摄政长公主穿成炮灰女配[七零] https://www.shuxiang368.com/book/3qkkvo1/
 - 瓮中惊春 https://www.shuxiang368.com/book/3qkkvns/
 - 她来赎罪 https://www.shuxiang368.com/book/3qkkvnp/
-- 冷傲上司绑定娇妻系统后 https://www.shuxiang368.com/book/3qkkvlc/
 - 当烫男人走错了片场 https://www.shuxiang368.com/book/3qkkvku/
 - 被双胞胎竹马轮番娇养 https://www.shuxiang368.com/book/3qkkvkf/
 - [全职高手]问就是没钱 https://www.shuxiang368.com/book/3qkkviu/
@@ -414,7 +415,6 @@
 - 吐槽役审神者会爆改幕后大boss吗 https://www.shuxiang368.com/book/3qkkkdk/
 - 我最讨厌打球了！ https://www.shuxiang368.com/book/3qkkj6b/
 - 求生游戏：当邪神成为生活玩家后 https://www.shuxiang368.com/book/3qkkj40/
-- 刀子精手心的人偶崽崽 https://www.shuxiang368.com/book/3qkkij4/
 - 幼崽假少爷选择回归寒门 https://www.shuxiang368.com/book/3qkkdml/
 - [足球]小小鸟堂堂来袭 https://www.shuxiang368.com/book/3qkkcov/
 - 好巧，你也是妹控？[综崩铁] https://www.shuxiang368.com/book/3qkkapc/

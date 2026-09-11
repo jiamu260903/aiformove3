@@ -1,11 +1,12 @@
 
 # 速阅阁小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-09-09 03:26:51
+更新时间：2026-09-10 03:27:06
 
 速阅阁小说网为您提供最新、最全的网络小说资源，在线阅读无限制，支持多种格式下载，打造书友们最爱的小说阅读体验。 https://www.ccccenergy.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.ccccenergy.com/book/7car6cn/
 - 星露谷，但日本战国 https://www.ccccenergy.com/book/7car6cj/
 - 恐游里的邻居们[万人迷] https://www.ccccenergy.com/book/7car6ci/
 - ［西幻］RPG就不要谈恋爱了吧！ https://www.ccccenergy.com/book/7car6ch/
@@ -49,7 +50,6 @@
 - 如何正确哄睡暴君 https://www.ccccenergy.com/book/7car6b9/
 - 正是冬雪沸腾时 https://www.ccccenergy.com/book/7car6b8/
 - 咦？我爸爸复活啦 https://www.ccccenergy.com/book/7car6b7/
-- 欲和离？夫君他目不识丁 https://www.ccccenergy.com/book/7car6b6/
 - [全职高手]治疗什么的不干了！ https://www.ccccenergy.com/book/7car6b5/
 - [足球]小小鸟堂堂来袭 https://www.ccccenergy.com/book/7car6b4/
 - [洪荒]成为太清妹妹后 https://www.ccccenergy.com/book/7car6b3/
@@ -71,7 +71,7 @@
 - 死遁APP https://www.ccccenergy.com/book/7car6aj/
 - 欲加之罪 https://www.ccccenergy.com/book/7car6ai/
 - 我只想上京赶考啊[聊斋] https://www.ccccenergy.com/book/7car6ah/
-- 人，今晚土拨鼠站岗 https://www.ccccenergy.com/book/7car6ag/
+- 笨蛋土拨鼠站岗日志 https://www.ccccenergy.com/book/7car6ag/
 - 乖乖女的杂货铺[八零] https://www.ccccenergy.com/book/7car6af/
 - 夫人每天都在伪装 https://www.ccccenergy.com/book/7car6ae/
 - 前妻她肯定会后悔 https://www.ccccenergy.com/book/7car6ad/
@@ -81,8 +81,8 @@
 - [封神]圣人生欲 https://www.ccccenergy.com/book/7car64n/
 - 原配夫人 https://www.ccccenergy.com/book/7car646/
 - 始乱终弃清冷首辅后 https://www.ccccenergy.com/book/7car63q/
-- 星际团宠小人鱼 https://www.ccccenergy.com/book/7car63c/
 - 十九世纪贵族厨房（美食） https://www.ccccenergy.com/book/7car633/
+- 我只梦你一页 https://www.ccccenergy.com/book/7car62h/
 - 高调装神，猥琐发育 https://www.ccccenergy.com/book/7car62g/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.ccccenergy.com/book/7car5vf/
 - 直男咒术师的限制级游戏 https://www.ccccenergy.com/book/7car5tj/
@@ -100,7 +100,6 @@
 - 如何嫁给当朝首辅 https://www.ccccenergy.com/book/7caod4t/
 - 食明 https://www.ccccenergy.com/book/7caocas/
 - 诡话第一boss https://www.ccccenergy.com/book/7cao8tl/
-- 仙门透明人被迫万人迷 https://www.ccccenergy.com/book/7cao6j7/
 - 让暴君Alpha怀崽后 https://www.ccccenergy.com/book/7cao41t/
 - 专业女配的自我修养（快穿） https://www.ccccenergy.com/book/7cao1v3/
 - 老实人妻，但顶级魅魔 https://www.ccccenergy.com/book/7cao13g/
@@ -110,7 +109,6 @@
 - [足球]我的游戏存档成真了？！ https://www.ccccenergy.com/book/7canroe/
 - 趁她之危 https://www.ccccenergy.com/book/7canqij/
 - 起初，我只是想找个冤大头 https://www.ccccenergy.com/book/7cankmh/
-- 摄政王家的咸鱼夫郎 https://www.ccccenergy.com/book/7cani3d/
 - 天幕今天也在直播我搞基建 https://www.ccccenergy.com/book/nkbb0r/
 - 死遁的亡夫们都回来了 https://www.ccccenergy.com/book/nkbacu/
 - 沈助理又在隐藏他的超能力 https://www.ccccenergy.com/book/nkb70f/
@@ -134,7 +132,6 @@
 - 逃出金丝笼，我力挽山河开国称帝 https://www.ccccenergy.com/book/nk9ula/
 - 韩团绿卡不想忍了 https://www.ccccenergy.com/book/nk9rkt/
 - 被糟蹋的老实人决定反击 https://www.ccccenergy.com/book/nk9qqh/
-- 这个位面归我了！[经营] https://www.ccccenergy.com/book/nk9pcg/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.ccccenergy.com/book/nk9ote/
 - 村霸非要入赘受气包 https://www.ccccenergy.com/book/nk9osj/
 - 卷王后妈，八零养娃 https://www.ccccenergy.com/book/nk9oar/
@@ -149,6 +146,7 @@
 - 权宋一只统 https://www.ccccenergy.com/book/nk9gq0/
 - 爱好和平但狂拆机甲 https://www.ccccenergy.com/book/nk9dah/
 - 大瑛弟国 https://www.ccccenergy.com/book/2bk4eo/
+- 月亮上的大筒木 https://www.ccccenergy.com/book/2bk464/
 - 我是唯一地上神国 https://www.ccccenergy.com/book/2bk43m/
 - 完蛋！被恨孕男包围了！ https://www.ccccenergy.com/book/2bk3q0/
 - 苏娘子汴京摆摊日常（美食） https://www.ccccenergy.com/book/2bk3po/

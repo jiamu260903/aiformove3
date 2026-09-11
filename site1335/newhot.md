@@ -1,7 +1,7 @@
 
 # 奇书网 - 奇书网epub,mobi,txt全本电子书免费下载
 
-更新时间：2026-09-09 03:31:57
+更新时间：2026-09-10 03:32:15
 
 奇书网提供最新的奇书网txt格式全本电子书资源免费下载服务，涵盖各种类型的小说，满足您的阅读需求。 https://www.jxbfsz.com
 
@@ -21,6 +21,7 @@
 - 禁止继承限制级雌君 https://www.jxbfsz.com/book/29i1p6o/
 - 渡鬼 https://www.jxbfsz.com/book/29i1oci/
 - 暴君偏头痛 https://www.jxbfsz.com/book/29i1ob8/
+- 痴情女配开始放手了（快穿） https://www.jxbfsz.com/book/29i1oam/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.jxbfsz.com/book/29i1o9t/
 - [足球]这只后锋小熊是你家俱乐部掉的吗？ https://www.jxbfsz.com/book/29i1mvm/
 - 修仙界都为我神魂颠倒 https://www.jxbfsz.com/book/29i1mva/
@@ -42,6 +43,7 @@
 - cos温迪后玩到真崩铁了 https://www.jxbfsz.com/book/29i18mb/
 - 你，后室管理员 https://www.jxbfsz.com/book/29i181q/
 - 朕看上的少年是侠女 https://www.jxbfsz.com/book/29i1810/
+- 我不是正夫吗？ https://www.jxbfsz.com/book/29i17vm/
 - 娇气点怎么啦？［快穿］ https://www.jxbfsz.com/book/29i17ut/
 - [崩铁]这丰饶孽物我当定了！ https://www.jxbfsz.com/book/29i1795/
 - 不义世界都是我马甲[综英美] https://www.jxbfsz.com/book/29i172u/
@@ -322,7 +324,6 @@
 - 下堂驸马追妻实录 https://www.jxbfsz.com/book/29hufkq/
 - 当烫男人走错了片场 https://www.jxbfsz.com/book/29hufje/
 - 哥你不能不要我 https://www.jxbfsz.com/book/29hufj7/
-- 冷傲上司绑定娇妻系统后 https://www.jxbfsz.com/book/29hufi6/
 - 豪门狗血文里的天才后妈 https://www.jxbfsz.com/book/29hufgo/
 - 瓮中惊春 https://www.jxbfsz.com/book/29hufce/
 - [全职高手]问就是没钱 https://www.jxbfsz.com/book/29huf61/
@@ -417,7 +418,6 @@
 - [足球]罗蜜第一志愿 https://www.jxbfsz.com/book/29hu27p/
 - 被四皇错看成小动物后 https://www.jxbfsz.com/book/29hu1i4/
 - 战死的阿爹回来了[年代] https://www.jxbfsz.com/book/29htsel/
-- 刀子精手心的人偶崽崽 https://www.jxbfsz.com/book/29htqbe/
 - [综英美]让我统治哥谭！！！ https://www.jxbfsz.com/book/29htq00/
 - 魔物堆里的人类幼崽 https://www.jxbfsz.com/book/29htm7i/
 - 好巧，你也是妹控？[综崩铁] https://www.jxbfsz.com/book/29htlit/

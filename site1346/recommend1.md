@@ -1,12 +1,11 @@
 
 # 奇幻凤影台小说-都市玄幻言情仙侠免费小说在线阅读
 
-更新时间：2026-09-09 03:37:36
+更新时间：2026-09-10 03:37:46
 
 奇幻凤影台小说提供都市玄幻、言情仙侠等类型的小说在线免费阅读服务。让您的通勤路上不再无聊，无论是日常出行还是夜晚静谧时刻，总有一本好书陪伴您度过美好时光。 https://www.qihuan868.com
 
 ## 最新小说
-- 入梦修罗场，但我脸盲 https://www.qihuan868.com/book/42idth0/
 - [全职高手]治疗什么的不干了！ https://www.qihuan868.com/book/42idtgq/
 - 从1951开始 https://www.qihuan868.com/book/42idtgp/
 - 魔尊闭关十年连生十一子？！ https://www.qihuan868.com/book/42idtgl/
@@ -53,7 +52,6 @@
 - 在中世纪做奴隶 https://www.qihuan868.com/book/42idtd6/
 - 穿为龙傲天发妻后 https://www.qihuan868.com/book/42idtd2/
 - 占有欲Daddy是我老公？ https://www.qihuan868.com/book/42idtcv/
-- 欲和离？夫君他目不识丁 https://www.qihuan868.com/book/42idtcu/
 - 魔咒请说普通话[西幻] https://www.qihuan868.com/book/42idtco/
 - 全世界名为爱的恶意 https://www.qihuan868.com/book/42idtci/
 - 我只想上京赶考啊[聊斋] https://www.qihuan868.com/book/42idtcg/
@@ -68,24 +66,26 @@
 - 康熙宠妃日常 https://www.qihuan868.com/book/42idtc2/
 - 八零法医，带全家致富 https://www.qihuan868.com/book/42idtc1/
 - 国运求生：我的金手指是生命树 https://www.qihuan868.com/book/42idtbt/
-- 人，今晚土拨鼠站岗 https://www.qihuan868.com/book/42idtbs/
+- 笨蛋土拨鼠站岗日志 https://www.qihuan868.com/book/42idtbs/
 - ［综英美］蝙蝠崽？我不是啊！ https://www.qihuan868.com/book/42idtbq/
 - 谁说踢球就不能成为名侦探[足球] https://www.qihuan868.com/book/42idtbo/
 - 起初，我只是想找个冤大头 https://www.qihuan868.com/book/42idjal/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.qihuan868.com/book/42idh6p/
 - 上个鬼班[无限] https://www.qihuan868.com/book/42idcmc/
+- 限制文女王[快穿] https://www.qihuan868.com/book/42id73t/
 - 九零重组小家庭 https://www.qihuan868.com/book/42id5si/
 - 让暴君Alpha怀崽后 https://www.qihuan868.com/book/42id5e2/
 - [足球]足坛人生模拟器 https://www.qihuan868.com/book/42id4uk/
+- 直播忏悔室，吃瓜养宠圈 https://www.qihuan868.com/book/42icuum/
 - 在卷王和废物之间选择做吉祥物 https://www.qihuan868.com/book/42icqmo/
 - 从维多利亚时代开始 https://www.qihuan868.com/book/42icngl/
 - 昭暮 https://www.qihuan868.com/book/42iclq4/
 - 十九世纪贵族厨房（美食） https://www.qihuan868.com/book/42icijr/
 - 原配夫人 https://www.qihuan868.com/book/42icija/
+- 恶犬品德 https://www.qihuan868.com/book/42icihc/
 - 始乱终弃清冷首辅后 https://www.qihuan868.com/book/42icief/
 - 完蛋！被恨孕男包围了！ https://www.qihuan868.com/book/42icbf7/
 - 高调装神，猥琐发育 https://www.qihuan868.com/book/42icbec/
-- 我只梦你一页 https://www.qihuan868.com/book/42icbbf/
 - 食明 https://www.qihuan868.com/book/42ic8k7/
 - 诡话第一boss https://www.qihuan868.com/book/42ic59r/
 - 老实人妻，但顶级魅魔 https://www.qihuan868.com/book/42ic3c8/
@@ -97,7 +97,6 @@
 - 死遁的亡夫们都回来了 https://www.qihuan868.com/book/42ibgl5/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.qihuan868.com/book/42ibg3m/
 - 我骗家里的钱养你啊 https://www.qihuan868.com/book/42ibg2r/
-- 在民俗惊悚片被诸神庇护 https://www.qihuan868.com/book/42ib9df/
 - 死对头又在挑衅我 https://www.qihuan868.com/book/42ib8e3/
 - 沈助理又在隐藏他的超能力 https://www.qihuan868.com/book/42ib7t2/
 - 被天使之王骗婚后[诡秘之主] https://www.qihuan868.com/book/42ib78o/
@@ -123,6 +122,7 @@
 - 我187了，你敢见我吗？ https://www.qihuan868.com/book/42iag3f/
 - 和姐姐的前女友欢愉后 https://www.qihuan868.com/book/42iafpv/
 - 朕也要被强制吗？ https://www.qihuan868.com/book/42ia61e/
+- 和小肥啾的海岛经营游戏 https://www.qihuan868.com/book/42ia5hb/
 - 大唐守军家属 https://www.qihuan868.com/book/42ia4ge/
 - 在重生文里考科举 https://www.qihuan868.com/book/42ia465/
 - [足球]小小鸟堂堂来袭 https://www.qihuan868.com/book/42ia3i0/
@@ -130,7 +130,6 @@
 - 死亡悖论[无限流] https://www.qihuan868.com/book/42ia0u2/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.qihuan868.com/book/42ia0ru/
 - 心动嫌疑人 https://www.qihuan868.com/book/42i9v1r/
-- 这个位面归我了！[经营] https://www.qihuan868.com/book/42i9rkk/
 - 带清冷女主回乡养螃蟹[种田] https://www.qihuan868.com/book/42i9rk2/
 - 趁她之危 https://www.qihuan868.com/book/42i9rff/
 - [崩铁]请给玩家一个准确的血条！ https://www.qihuan868.com/book/42i9q3b/
@@ -140,7 +139,6 @@
 - 和山神搭伙开农场的日子 https://www.qihuan868.com/book/42i9nj3/
 - 被糟蹋的老实人决定反击 https://www.qihuan868.com/book/42i9lv2/
 - 假意逢承 https://www.qihuan868.com/book/42i9l38/
-- 恶犬攻绑定上司的乖狗系统 https://www.qihuan868.com/book/42i9h8q/
 - 权宋一只统 https://www.qihuan868.com/book/42i9f24/
 - 爱好和平但狂拆机甲 https://www.qihuan868.com/book/42i987o/
 - 大瑛弟国 https://www.qihuan868.com/book/42i8cd9/
@@ -148,6 +146,7 @@
 - 巨物致富：回乡开钓场 https://www.qihuan868.com/book/42i8c2r/
 - 五十年代港城日常 https://www.qihuan868.com/book/42i8ben/
 - 海岛求生：生活玩家种田囤货 https://www.qihuan868.com/book/42i8b3f/
+- 千禧年，拆迁分了十栋楼！ https://www.qihuan868.com/book/42i8ao1/
 - 直男咒术师的限制级游戏 https://www.qihuan868.com/book/42i8anr/
 - 95美国贵族高中模拟 https://www.qihuan868.com/book/42i8amh/
 - 清澈女大的六零年代 https://www.qihuan868.com/book/42i8alm/

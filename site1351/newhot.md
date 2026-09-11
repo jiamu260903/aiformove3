@@ -1,7 +1,7 @@
 
 # 泡泡中文小说-无弹窗书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-09 03:46:49
+更新时间：2026-09-10 03:47:11
 
 泡泡中文小说是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。 https://www.xiaoshuo288.com
 
@@ -30,6 +30,7 @@
 - 渣攻他疯了［快穿］ https://www.xiaoshuo288.com/book/dm3lup/
 - [足球]番外乐子集 https://www.xiaoshuo288.com/book/dm3lps/
 - 我超凶的！[快穿] https://www.xiaoshuo288.com/book/dm3ju7/
+- 痴情女配开始放手了（快穿） https://www.xiaoshuo288.com/book/dm3j40/
 - 渡鬼 https://www.xiaoshuo288.com/book/dm3j3u/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.xiaoshuo288.com/book/dm3j3e/
 - 我比反派先崩坏[快穿] https://www.xiaoshuo288.com/book/dm3j2u/
@@ -55,6 +56,7 @@
 - 侦探立于百万生命之上 https://www.xiaoshuo288.com/book/dm2p1p/
 - 特殊魅力值，已到账 https://www.xiaoshuo288.com/book/dm2oi3/
 - 昭暮 https://www.xiaoshuo288.com/book/dm2nph/
+- 我不是正夫吗？ https://www.xiaoshuo288.com/book/dm2kft/
 - 你，后室管理员 https://www.xiaoshuo288.com/book/dm2ke8/
 - 朕看上的少年是侠女 https://www.xiaoshuo288.com/book/dm2k90/
 - 高调装神，猥琐发育 https://www.xiaoshuo288.com/book/dm2dan/
@@ -303,7 +305,6 @@
 - 这谁的沙雕二次元心声！ https://www.xiaoshuo288.com/book/dm0ni5/
 - 我养龙傲天的那些年 https://www.xiaoshuo288.com/book/dm0ng4/
 - 银发死鱼眼也要打排球 https://www.xiaoshuo288.com/book/dm0neu/
-- 冷傲上司绑定娇妻系统后 https://www.xiaoshuo288.com/book/dm0nd7/
 - 你猜 https://www.xiaoshuo288.com/book/dm0n65/
 - 关于我想和太宰当一辈子的挚友可是他怎么居然想和我结婚这件事 https://www.xiaoshuo288.com/book/dm0n5f/
 - 作家与读者 https://www.xiaoshuo288.com/book/dm0n4k/
@@ -414,7 +415,6 @@
 - 吐槽役审神者会爆改幕后大boss吗 https://www.xiaoshuo288.com/book/dm0bs4/
 - 求生游戏：当邪神成为生活玩家后 https://www.xiaoshuo288.com/book/dm0b7t/
 - 我最讨厌打球了！ https://www.xiaoshuo288.com/book/dm09rc/
-- 刀子精手心的人偶崽崽 https://www.xiaoshuo288.com/book/dm0950/
 - 幼崽假少爷选择回归寒门 https://www.xiaoshuo288.com/book/dm04sq/
 - [足球]小小鸟堂堂来袭 https://www.xiaoshuo288.com/book/dm03uc/
 - 青城玩家明明超强却过分谨慎 https://www.xiaoshuo288.com/book/dm01s4/

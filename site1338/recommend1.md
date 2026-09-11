@@ -1,11 +1,12 @@
 
 # 笔下文学-无广告免费在线小说阅读网站
 
-更新时间：2026-09-09 03:29:17
+更新时间：2026-09-10 03:29:35
 
 笔下文学提供了一个完全免费的小说在线阅读与下载平台。我们承诺给用户一个无广告、无弹窗干扰的阅读环境，让每位读者都能享受纯净舒适的阅读体验。 https://www.fshxjd.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.fshxjd.com/book/74i3mtk/
 - 烈火焚身[巴黎圣母院] https://www.fshxjd.com/book/74i3mtc/
 - 世界伏于她刀下[无限] https://www.fshxjd.com/book/74i3mtb/
 - 占有欲Daddy是我老公？ https://www.fshxjd.com/book/74i3mt8/
@@ -64,7 +65,6 @@
 - 正是冬雪沸腾时 https://www.fshxjd.com/book/74i3mp2/
 - SSS级异种都是我前任 https://www.fshxjd.com/book/74i3mou/
 - 魔法种田，从退队经营农场开始 https://www.fshxjd.com/book/74i3mot/
-- 欲和离？夫君他目不识丁 https://www.fshxjd.com/book/74i3mos/
 - [崩铁]请给玩家一个准确的血条！ https://www.fshxjd.com/book/74i3mon/
 - 谁说踢球就不能成为名侦探[足球] https://www.fshxjd.com/book/74i3mol/
 - 我们小区穿末世 https://www.fshxjd.com/book/74i3mok/
@@ -72,13 +72,13 @@
 - 炮灰的海外亲戚回国啦！ https://www.fshxjd.com/book/74i3mog/
 - 末世八年春，游戏降临 https://www.fshxjd.com/book/74i3moe/
 - 怨明月不独照 https://www.fshxjd.com/book/74i3mod/
-- 人，今晚土拨鼠站岗 https://www.fshxjd.com/book/74i3mo9/
+- 笨蛋土拨鼠站岗日志 https://www.fshxjd.com/book/74i3mo9/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.fshxjd.com/book/74i3gio/
 - 上个鬼班[无限] https://www.fshxjd.com/book/74i36j6/
 - 始乱终弃清冷首辅后 https://www.fshxjd.com/book/74i35j2/
 - 原配夫人 https://www.fshxjd.com/book/74i35i7/
-- 星际团宠小人鱼 https://www.fshxjd.com/book/74i35i1/
 - 让暴君Alpha怀崽后 https://www.fshxjd.com/book/74i343c/
+- 我只梦你一页 https://www.fshxjd.com/book/74i32f5/
 - 九零重组小家庭 https://www.fshxjd.com/book/74i316e/
 - [足球]足坛人生模拟器 https://www.fshxjd.com/book/74i2uak/
 - 趁她之危 https://www.fshxjd.com/book/74i2odm/
@@ -94,10 +94,8 @@
 - 起初，我只是想找个冤大头 https://www.fshxjd.com/book/74i1qp7/
 - 直男咒术师的限制级游戏 https://www.fshxjd.com/book/74i1j0m/
 - [足球]我的游戏存档成真了？！ https://www.fshxjd.com/book/74i1ils/
-- 仙门透明人被迫万人迷 https://www.fshxjd.com/book/74i1ika/
 - 让你们无剧本可走（快穿） https://www.fshxjd.com/book/74i1iit/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.fshxjd.com/book/74i1ibd/
-- 摄政王家的咸鱼夫郎 https://www.fshxjd.com/book/74i1hig/
 - 我与龙傲天寿命共享 https://www.fshxjd.com/book/74i1dtl/
 - 如何正确哄睡暴君 https://www.fshxjd.com/book/74i19fl/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.fshxjd.com/book/74i12fe/
@@ -106,6 +104,7 @@
 - 死对头又在挑衅我 https://www.fshxjd.com/book/74i0tq0/
 - 在民俗惊悚片被诸神庇护 https://www.fshxjd.com/book/74i0pok/
 - 从童星开始杀穿港娱 https://www.fshxjd.com/book/74i0pk1/
+- 月亮上的大筒木 https://www.fshxjd.com/book/74i0ml1/
 - 我有一座地下城 https://www.fshxjd.com/book/74i0lun/
 - 漂亮女配是万人迷［快穿］ https://www.fshxjd.com/book/74i0lb5/
 - 开局绑定郭奉孝，谋定三国风云 https://www.fshxjd.com/book/74i0jfn/
@@ -130,7 +129,6 @@
 - 韩团绿卡不想忍了 https://www.fshxjd.com/book/74hvnqo/
 - 死亡悖论[无限流] https://www.fshxjd.com/book/74hvn4b/
 - 心动嫌疑人 https://www.fshxjd.com/book/74hvl43/
-- 这个位面归我了！[经营] https://www.fshxjd.com/book/74hvkp3/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.fshxjd.com/book/74hvioi/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.fshxjd.com/book/74hvih0/
 - 带清冷女主回乡养螃蟹[种田] https://www.fshxjd.com/book/74hvi48/

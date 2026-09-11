@@ -1,7 +1,7 @@
 
 # 看书小说网 - 全本完结小说免费阅读, 最新章节更新最快, 网络小说排行榜
 
-更新时间：2026-09-09 03:33:01
+更新时间：2026-09-10 03:33:17
 
 看书小说网提供全本完结小说免费阅读服务，包括但不限于言情小说等类型。网站内所有小说均可免费阅读且无任何弹窗广告干扰。这里汇集了最好看的网络小说，同时保证了最新章节的快速更新。 https://www.kanshu666.com
 
@@ -24,6 +24,7 @@
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.kanshu666.com/book/8jv7ici/
 - [综英美]让我统治哥谭！！！ https://www.kanshu666.com/book/8jv7ice/
 - 青城玩家明明超强却过分谨慎 https://www.kanshu666.com/book/8jv7ic9/
+- 痴情女配开始放手了（快穿） https://www.kanshu666.com/book/8jv7ibt/
 - 渡鬼 https://www.kanshu666.com/book/8jv7ib3/
 - 躲避原书剧情五年后 https://www.kanshu666.com/book/8jv7i9n/
 - 暴君偏头痛 https://www.kanshu666.com/book/8jv7i9m/
@@ -31,6 +32,7 @@
 - 你，后室管理员 https://www.kanshu666.com/book/8jv7i87/
 - 朕看上的少年是侠女 https://www.kanshu666.com/book/8jv7i7m/
 - 被四皇错看成小动物后 https://www.kanshu666.com/book/8jv7i70/
+- 我不是正夫吗？ https://www.kanshu666.com/book/8jv7i6q/
 - 高调装神，猥琐发育 https://www.kanshu666.com/book/8jv7i6h/
 - 魔物堆里的人类幼崽 https://www.kanshu666.com/book/8jv7i5g/
 - 京秋婚约 https://www.kanshu666.com/book/8jv7i5c/
@@ -347,7 +349,6 @@
 - 穿进忍界后每天迫害黑绝 https://www.kanshu666.com/book/rj5hb4/
 - 邪神祂总被觊觎 https://www.kanshu666.com/book/rj5hao/
 - 银发死鱼眼也要打排球 https://www.kanshu666.com/book/rj5h98/
-- 冷傲上司绑定娇妻系统后 https://www.kanshu666.com/book/rj5h65/
 - [HP]我和救世主有个约会 https://www.kanshu666.com/book/rj5gvn/
 - 经纪人砸钱整顿内娱爆火了 https://www.kanshu666.com/book/rj5gup/
 - 蝴蝶园 https://www.kanshu666.com/book/rj5gpb/

@@ -1,7 +1,7 @@
 
 # 笔看阁-最热门的免费小说网 | 玄幻、网游、言情、穿越、都市全本小说在线阅读
 
-更新时间：2026-09-09 03:28:14
+更新时间：2026-09-10 03:28:31
 
 笔看阁是最热门的免费小说网站之一，专注于提供包括玄幻、网游、言情、穿越、都市等多种类型的小说在线阅读服务。本站承诺不设任何弹窗广告，页面简洁易用，为读者创造一个纯净舒适的阅读环境。 https://www.dasenluan.com
 
@@ -21,6 +21,7 @@
 - ［综英美］蝙蝠崽？我不是啊！ https://www.dasenluan.com/book/3jmhkie/
 - 暴君偏头痛 https://www.dasenluan.com/book/3jmhjo7/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.dasenluan.com/book/3jmhjns/
+- 痴情女配开始放手了（快穿） https://www.dasenluan.com/book/3jmhjm4/
 - 渡鬼 https://www.dasenluan.com/book/3jmhjkt/
 - [足球]这只后锋小熊是你家俱乐部掉的吗？ https://www.dasenluan.com/book/3jmhie0/
 - 修仙界都为我神魂颠倒 https://www.dasenluan.com/book/3jmhic6/
@@ -41,6 +42,7 @@
 - 我比反派先崩坏[快穿] https://www.dasenluan.com/book/3jmh8ct/
 - cos温迪后玩到真崩铁了 https://www.dasenluan.com/book/3jmh40g/
 - 娇气点怎么啦？［快穿］ https://www.dasenluan.com/book/3jmh3gc/
+- 我不是正夫吗？ https://www.dasenluan.com/book/3jmh3f0/
 - 朕看上的少年是侠女 https://www.dasenluan.com/book/3jmh3bq/
 - 你，后室管理员 https://www.dasenluan.com/book/3jmh3bc/
 - [崩铁]这丰饶孽物我当定了！ https://www.dasenluan.com/book/3jmh2ln/
@@ -317,7 +319,6 @@
 - 魔尊他邪得发正 https://www.dasenluan.com/book/3jmebe6/
 - 豪门狗血文里的天才后妈 https://www.dasenluan.com/book/3jmebde/
 - 正常人成为虫母后沦陷修罗场 https://www.dasenluan.com/book/3jmebd5/
-- 冷傲上司绑定娇妻系统后 https://www.dasenluan.com/book/3jmeb6l/
 - 在横滨横行霸道的那些年 https://www.dasenluan.com/book/3jmeb4h/
 - 太子妃她不干了 https://www.dasenluan.com/book/3jmeb4c/
 - 娇婚惯养 https://www.dasenluan.com/book/3jmeb3q/
@@ -416,7 +417,6 @@
 - 可怜的天然呆直男[快穿] https://www.dasenluan.com/book/3jmdusu/
 - [足球]罗蜜第一志愿 https://www.dasenluan.com/book/3jmdtl5/
 - 被四皇错看成小动物后 https://www.dasenluan.com/book/3jmdt5i/
-- 刀子精手心的人偶崽崽 https://www.dasenluan.com/book/3jmdnje/
 - 战死的阿爹回来了[年代] https://www.dasenluan.com/book/3jmdlf8/
 - [综英美]让我统治哥谭！！！ https://www.dasenluan.com/book/3jmdl2f/
 - 欢迎来到重生点 https://www.dasenluan.com/book/3jmdi08/

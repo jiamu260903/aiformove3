@@ -1,7 +1,7 @@
 
 # 爱你中文网-最热门的免费小说网|全本小说在线阅读
 
-更新时间：2026-09-09 03:35:17
+更新时间：2026-09-10 03:35:28
 
 爱你中文网致力于打造一个无广告无弹窗的在线小说阅读平台，提供包括但不限于玄幻、网游、言情、穿越及都市等多种类型的小说在线阅读服务。网站页面简洁，支持小说最新章节快速更新。 https://www.longjiangstone.com
 
@@ -25,12 +25,14 @@
 - [综英美]让我统治哥谭！！！ https://www.longjiangstone.com/book/34b4np/
 - 躲避原书剧情五年后 https://www.longjiangstone.com/book/34b4m9/
 - 暴君偏头痛 https://www.longjiangstone.com/book/34b4m4/
+- 痴情女配开始放手了（快穿） https://www.longjiangstone.com/book/34b4ln/
 - 青城玩家明明超强却过分谨慎 https://www.longjiangstone.com/book/34b4ki/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.longjiangstone.com/book/34b4kh/
 - 你，后室管理员 https://www.longjiangstone.com/book/34b4hl/
 - 朕看上的少年是侠女 https://www.longjiangstone.com/book/34b4hc/
 - [封神]圣人生欲 https://www.longjiangstone.com/book/34b4ha/
 - 被四皇错看成小动物后 https://www.longjiangstone.com/book/34b4h7/
+- 我不是正夫吗？ https://www.longjiangstone.com/book/34b4gk/
 - 高调装神，猥琐发育 https://www.longjiangstone.com/book/34b4gf/
 - 满级竹马从异世穿回来了 https://www.longjiangstone.com/book/34b4fo/
 - 直男咒术师的限制级游戏 https://www.longjiangstone.com/book/34b4cq/
@@ -344,7 +346,6 @@
 - 女beta的星际悠闲生活 https://www.longjiangstone.com/book/a2m4o/
 - 少年天师，国外爆红 https://www.longjiangstone.com/book/a2lva/
 - 炮灰今天也在加班[快穿] https://www.longjiangstone.com/book/a2lta/
-- 冷傲上司绑定娇妻系统后 https://www.longjiangstone.com/book/a2loe/
 - 破戒[娱乐圈] https://www.longjiangstone.com/book/a2ln1/
 - 豪门狗血文里的天才后妈 https://www.longjiangstone.com/book/a2ln0/
 - 这死beta老说我们不可能 https://www.longjiangstone.com/book/a2lm2/

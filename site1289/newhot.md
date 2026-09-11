@@ -1,7 +1,7 @@
 
 # 三三言情小说 - 全本网文免费阅读, 最新最热言情故事
 
-更新时间：2026-09-09 03:49:43
+更新时间：2026-09-10 03:50:15
 
 三三言情小说为您提供海量全本完结的言情小说资源，在这里您可以免费在线阅读最新、最受欢迎的爱情故事。无论您是喜欢经典还是追求潮流的新作，我们都有丰富的选择等待着您来探索。 https://www.zhaoxingangjiegou.com
 
@@ -22,6 +22,7 @@
 - 全世界名为爱的恶意 https://www.zhaoxingangjiegou.com/book/1duot2g/
 - 禁止继承限制级雌君 https://www.zhaoxingangjiegou.com/book/1duot2f/
 - 暴君偏头痛 https://www.zhaoxingangjiegou.com/book/1duot11/
+- 痴情女配开始放手了（快穿） https://www.zhaoxingangjiegou.com/book/1duot10/
 - 青城玩家明明超强却过分谨慎 https://www.zhaoxingangjiegou.com/book/1duot0q/
 - 躲避原书剧情五年后 https://www.zhaoxingangjiegou.com/book/1duot0f/
 - 渡鬼 https://www.zhaoxingangjiegou.com/book/1duot05/
@@ -30,6 +31,7 @@
 - 被四皇错看成小动物后 https://www.zhaoxingangjiegou.com/book/1duossn/
 - 朕看上的少年是侠女 https://www.zhaoxingangjiegou.com/book/1duosrf/
 - 你，后室管理员 https://www.zhaoxingangjiegou.com/book/1duosrb/
+- 我不是正夫吗？ https://www.zhaoxingangjiegou.com/book/1duosqn/
 - [封神]圣人生欲 https://www.zhaoxingangjiegou.com/book/1duosql/
 - 高调装神，猥琐发育 https://www.zhaoxingangjiegou.com/book/1duosqh/
 - 京秋婚约 https://www.zhaoxingangjiegou.com/book/1duosq0/
@@ -317,7 +319,6 @@
 - 汉武帝戾太子什么含金量 https://www.zhaoxingangjiegou.com/book/4j44lh/
 - 女帝起家前录 https://www.zhaoxingangjiegou.com/book/4j44e4/
 - 白月光拒绝拯救反派 https://www.zhaoxingangjiegou.com/book/4j44dk/
-- 冷傲上司绑定娇妻系统后 https://www.zhaoxingangjiegou.com/book/4j43ud/
 - 她来赎罪 https://www.zhaoxingangjiegou.com/book/4j43td/
 - 这死beta老说我们不可能 https://www.zhaoxingangjiegou.com/book/4j43ot/
 - 瓮中惊春 https://www.zhaoxingangjiegou.com/book/4j43n6/

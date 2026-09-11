@@ -1,12 +1,11 @@
 
 # 作品思路客-免费全本小说无弹窗阅读
 
-更新时间：2026-09-09 03:50:52
+更新时间：2026-09-10 03:51:23
 
 作品思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等全本小说免费阅读,最新完本小说阅读就在思路客。 https://www.zuopin666.com
 
 ## 最新小说
-- 入梦修罗场，但我脸盲 https://www.zuopin666.com/book/8befhkm/
 - 怨明月不独照 https://www.zuopin666.com/book/8befhki/
 - 病美人重生日记 https://www.zuopin666.com/book/8befhkh/
 - 夫人每天都在伪装 https://www.zuopin666.com/book/8befhkg/
@@ -37,7 +36,6 @@
 - ［综英美］蝙蝠崽？我不是啊！ https://www.zuopin666.com/book/8befhjn/
 - 前妻她肯定会后悔 https://www.zuopin666.com/book/8befhjm/
 - 强取师尊后 https://www.zuopin666.com/book/8befhjl/
-- 欲和离？夫君他目不识丁 https://www.zuopin666.com/book/8befhjk/
 - 烈火焚身[巴黎圣母院] https://www.zuopin666.com/book/8befhjj/
 - 等我吃腻了再倒闭可以吗 https://www.zuopin666.com/book/8befhji/
 - 星露谷，但日本战国 https://www.zuopin666.com/book/8befhjh/
@@ -54,7 +52,7 @@
 - ［西幻］RPG就不要谈恋爱了吧！ https://www.zuopin666.com/book/8befhj5/
 - [足球]雏鸟 https://www.zuopin666.com/book/8befhj4/
 - [综英美]和亲友群穿哥谭以后 https://www.zuopin666.com/book/8befhj3/
-- 人，今晚土拨鼠站岗 https://www.zuopin666.com/book/8befhj2/
+- 笨蛋土拨鼠站岗日志 https://www.zuopin666.com/book/8befhj2/
 - 欲加之罪 https://www.zuopin666.com/book/8befhj1/
 - 在年代文里跑运输 https://www.zuopin666.com/book/8befhj0/
 - 在中世纪做奴隶 https://www.zuopin666.com/book/8befhiv/
@@ -84,18 +82,21 @@
 - 十九世纪贵族厨房（美食） https://www.zuopin666.com/book/8befhbj/
 - 始乱终弃清冷首辅后 https://www.zuopin666.com/book/8befhan/
 - 高调装神，猥琐发育 https://www.zuopin666.com/book/8befhaf/
-- 我只梦你一页 https://www.zuopin666.com/book/8befhae/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.zuopin666.com/book/8befh7s/
 - 直男咒术师的限制级游戏 https://www.zuopin666.com/book/8befh71/
+- 千禧年，拆迁分了十栋楼！ https://www.zuopin666.com/book/8befh6u/
 - 六零之成了卷王的妹妹 https://www.zuopin666.com/book/8befftp/
 - 路人攻了主角攻［快穿］ https://www.zuopin666.com/book/8beffqi/
 - 昭暮 https://www.zuopin666.com/book/8bef68s/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.zuopin666.com/book/8beeqsd/
+- 恶犬品德 https://www.zuopin666.com/book/8beeq58/
 - 老公对不起 https://www.zuopin666.com/book/8beecq6/
 - [足球]足坛人生模拟器 https://www.zuopin666.com/book/8beds13/
+- 直播忏悔室，吃瓜养宠圈 https://www.zuopin666.com/book/8bedrjh/
 - 上个鬼班[无限] https://www.zuopin666.com/book/8bedqbs/
 - 九零重组小家庭 https://www.zuopin666.com/book/8bedltd/
 - [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.zuopin666.com/book/8bedh39/
+- 限制文女王[快穿] https://www.zuopin666.com/book/8bedgnl/
 - 在卷王和废物之间选择做吉祥物 https://www.zuopin666.com/book/8bede1m/
 - 从维多利亚时代开始 https://www.zuopin666.com/book/8bed7jq/
 - 如何嫁给当朝首辅 https://www.zuopin666.com/book/8becom6/
@@ -128,6 +129,7 @@
 - 大唐守军家属 https://www.zuopin666.com/book/qnsbmj/
 - 朕也要被强制吗？ https://www.zuopin666.com/book/qnsajp/
 - 在重生文里考科举 https://www.zuopin666.com/book/qns9p4/
+- 和小肥啾的海岛经营游戏 https://www.zuopin666.com/book/qns7cs/
 - 妻主风流（女尊） https://www.zuopin666.com/book/qns4sd/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.zuopin666.com/book/qns076/
 - 多梦你一会儿 https://www.zuopin666.com/book/qns012/
@@ -135,13 +137,10 @@
 - 韩团绿卡不想忍了 https://www.zuopin666.com/book/qnruu6/
 - 清冷丞相怀了死对头的崽 https://www.zuopin666.com/book/qnrrnk/
 - 卷王后妈，八零养娃 https://www.zuopin666.com/book/qnrr1i/
-- 这个位面归我了！[经营] https://www.zuopin666.com/book/qnrq5t/
 - 村霸非要入赘受气包 https://www.zuopin666.com/book/qnrq1o/
 - 和山神搭伙开农场的日子 https://www.zuopin666.com/book/qnrp22/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.zuopin666.com/book/qnrncg/
 - 心动嫌疑人 https://www.zuopin666.com/book/qnrmel/
-- 恶犬攻绑定上司的乖狗系统 https://www.zuopin666.com/book/qnrkk1/
-- 在民俗惊悚片被诸神庇护 https://www.zuopin666.com/book/qnrjpu/
 - 死亡悖论[无限流] https://www.zuopin666.com/book/qnrjme/
 - 带清冷女主回乡养螃蟹[种田] https://www.zuopin666.com/book/qnrj4s/
 - 假意逢承 https://www.zuopin666.com/book/qnricj/

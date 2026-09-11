@@ -1,11 +1,12 @@
 
 # 奇书网 - 奇书网epub,mobi,txt全本电子书免费下载
 
-更新时间：2026-09-09 03:31:57
+更新时间：2026-09-10 03:32:15
 
 奇书网提供最新的奇书网txt格式全本电子书资源免费下载服务，涵盖各种类型的小说，满足您的阅读需求。 https://www.jxbfsz.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.jxbfsz.com/book/29i1pb7/
 - 仙尊心尖宠，但被魔尊抢了 https://www.jxbfsz.com/book/29i1pav/
 - [崩铁]请给玩家一个准确的血条！ https://www.jxbfsz.com/book/29i1pau/
 - 烈火焚身[巴黎圣母院] https://www.jxbfsz.com/book/29i1par/
@@ -41,7 +42,6 @@
 - 世界伏于她刀下[无限] https://www.jxbfsz.com/book/29i1p8u/
 - 等我吃腻了再倒闭可以吗 https://www.jxbfsz.com/book/29i1p8p/
 - 全世界名为爱的恶意 https://www.jxbfsz.com/book/29i1p8n/
-- 欲和离？夫君他目不识丁 https://www.jxbfsz.com/book/29i1p8l/
 - 死遁APP https://www.jxbfsz.com/book/29i1p8j/
 - ［西幻］RPG就不要谈恋爱了吧！ https://www.jxbfsz.com/book/29i1p8i/
 - 我只想上京赶考啊[聊斋] https://www.jxbfsz.com/book/29i1p8c/
@@ -54,7 +54,7 @@
 - 怨明月不独照 https://www.jxbfsz.com/book/29i1p7l/
 - 国运求生：我的金手指是生命树 https://www.jxbfsz.com/book/29i1p7h/
 - 在中世纪做奴隶 https://www.jxbfsz.com/book/29i1p7d/
-- 人，今晚土拨鼠站岗 https://www.jxbfsz.com/book/29i1p7c/
+- 笨蛋土拨鼠站岗日志 https://www.jxbfsz.com/book/29i1p7c/
 - 魔咒请说普通话[西幻] https://www.jxbfsz.com/book/29i1p78/
 - 万人嫌从末世回来了 https://www.jxbfsz.com/book/29i1p77/
 - SSS级异种都是我前任 https://www.jxbfsz.com/book/29i1p75/
@@ -77,8 +77,8 @@
 - 上个鬼班[无限] https://www.jxbfsz.com/book/29i190q/
 - 原配夫人 https://www.jxbfsz.com/book/29i181d/
 - 始乱终弃清冷首辅后 https://www.jxbfsz.com/book/29i1807/
-- 星际团宠小人鱼 https://www.jxbfsz.com/book/29i17vc/
 - 让暴君Alpha怀崽后 https://www.jxbfsz.com/book/29i16it/
+- 我只梦你一页 https://www.jxbfsz.com/book/29i14rd/
 - 九零重组小家庭 https://www.jxbfsz.com/book/29i13j5/
 - [足球]足坛人生模拟器 https://www.jxbfsz.com/book/29i10pe/
 - 趁她之危 https://www.jxbfsz.com/book/29i0qqn/
@@ -95,9 +95,7 @@
 - [足球]我的游戏存档成真了？！ https://www.jxbfsz.com/book/29hvmgd/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.jxbfsz.com/book/29hvmbi/
 - 让你们无剧本可走（快穿） https://www.jxbfsz.com/book/29hvm83/
-- 仙门透明人被迫万人迷 https://www.jxbfsz.com/book/29hvlap/
 - 直男咒术师的限制级游戏 https://www.jxbfsz.com/book/29hvl7t/
-- 摄政王家的咸鱼夫郎 https://www.jxbfsz.com/book/29hvic0/
 - 我与龙傲天寿命共享 https://www.jxbfsz.com/book/29hvgeq/
 - 如何正确哄睡暴君 https://www.jxbfsz.com/book/29hvemd/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.jxbfsz.com/book/29hv5o7/
@@ -106,6 +104,7 @@
 - 沈助理又在隐藏他的超能力 https://www.jxbfsz.com/book/29hv1ir/
 - 在民俗惊悚片被诸神庇护 https://www.jxbfsz.com/book/29hussh/
 - 从童星开始杀穿港娱 https://www.jxbfsz.com/book/29hurvk/
+- 月亮上的大筒木 https://www.jxbfsz.com/book/29hup6k/
 - 我有一座地下城 https://www.jxbfsz.com/book/29huoit/
 - 漂亮女配是万人迷［快穿］ https://www.jxbfsz.com/book/29huoig/
 - 开局绑定郭奉孝，谋定三国风云 https://www.jxbfsz.com/book/29hulmc/
@@ -130,7 +129,6 @@
 - 韩团绿卡不想忍了 https://www.jxbfsz.com/book/29htq3g/
 - 死亡悖论[无限流] https://www.jxbfsz.com/book/29htpmv/
 - 心动嫌疑人 https://www.jxbfsz.com/book/29hto8d/
-- 这个位面归我了！[经营] https://www.jxbfsz.com/book/29htnub/
 - 带清冷女主回乡养螃蟹[种田] https://www.jxbfsz.com/book/29htm0g/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.jxbfsz.com/book/29htlsg/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.jxbfsz.com/book/29htl3m/

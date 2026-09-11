@@ -1,12 +1,11 @@
 
 # 微雨数据小说,新笔趣小说阅读网,顶点小说网备份-热门小说大全
 
-更新时间：2026-09-09 03:43:12
+更新时间：2026-09-10 03:43:26
 
 微雨数据小说网作为广大书友喜爱的平台之一，同时也是顶点小说阅读网的官方备份网站，汇集了当前最受欢迎和最火热的小说资源。当遇到顶点小说网无法访问时，请访问笔趣看小说网继续享受精彩内容！ https://www.weiyushuju.com
 
 ## 最新小说
-- 入梦修罗场，但我脸盲 https://www.weiyushuju.com/book/6rf7mb5/
 - 强取师尊后 https://www.weiyushuju.com/book/6rf7anc/
 - 漫画取材所引发的修罗场 https://www.weiyushuju.com/book/6rf7anb/
 - 恐游里的邻居们[万人迷] https://www.weiyushuju.com/book/6rf7an7/
@@ -27,12 +26,11 @@
 - 康熙宠妃日常 https://www.weiyushuju.com/book/6rf7alv/
 - [原神]魔法使恋爱指南 https://www.weiyushuju.com/book/6rf7alr/
 - 万人嫌从末世回来了 https://www.weiyushuju.com/book/6rf7alm/
-- 欲和离？夫君他目不识丁 https://www.weiyushuju.com/book/6rf7ald/
 - [足球]雏鸟 https://www.weiyushuju.com/book/6rf7alc/
 - 前妻她肯定会后悔 https://www.weiyushuju.com/book/6rf7al8/
 - 恐游作精女配求生指南 https://www.weiyushuju.com/book/6rf7al2/
 - 专业女配的自我修养（快穿） https://www.weiyushuju.com/book/6rf7al0/
-- 人，今晚土拨鼠站岗 https://www.weiyushuju.com/book/6rf7akt/
+- 笨蛋土拨鼠站岗日志 https://www.weiyushuju.com/book/6rf7akt/
 - 爱情的肯定句 https://www.weiyushuju.com/book/6rf7akr/
 - 热恋过期需重追 https://www.weiyushuju.com/book/6rf7akq/
 - 魔咒请说普通话[西幻] https://www.weiyushuju.com/book/6rf7akm/
@@ -68,9 +66,11 @@
 - 我只想上京赶考啊[聊斋] https://www.weiyushuju.com/book/6rf7aid/
 - 起初，我只是想找个冤大头 https://www.weiyushuju.com/book/6rf7ads/
 - 天幕今天也在直播我搞基建 https://www.weiyushuju.com/book/6rf7acc/
+- 限制文女王[快穿] https://www.weiyushuju.com/book/6rf74ev/
 - 上个鬼班[无限] https://www.weiyushuju.com/book/6rf737i/
 - [足球]足坛人生模拟器 https://www.weiyushuju.com/book/6rf72l3/
 - 让暴君Alpha怀崽后 https://www.weiyushuju.com/book/6rf6t44/
+- 直播忏悔室，吃瓜养宠圈 https://www.weiyushuju.com/book/6rf6sh8/
 - 在卷王和废物之间选择做吉祥物 https://www.weiyushuju.com/book/6rf6o4b/
 - 从维多利亚时代开始 https://www.weiyushuju.com/book/6rf6lb0/
 - 昭暮 https://www.weiyushuju.com/book/6rf6h2g/
@@ -112,11 +112,11 @@
 - 五条老师与他的封建妻子 https://www.weiyushuju.com/book/6rf4kh2/
 - 我187了，你敢见我吗？ https://www.weiyushuju.com/book/6rf4jkm/
 - 和姐姐的前女友欢愉后 https://www.weiyushuju.com/book/6rf4f7t/
-- 我只梦你一页 https://www.weiyushuju.com/book/6rf4b6e/
 - 等我吃腻了再倒闭可以吗 https://www.weiyushuju.com/book/6rf47jl/
 - 心动嫌疑人 https://www.weiyushuju.com/book/6rf479p/
 - 大唐守军家属 https://www.weiyushuju.com/book/6rf46sk/
 - 朕也要被强制吗？ https://www.weiyushuju.com/book/6rf46qj/
+- 和小肥啾的海岛经营游戏 https://www.weiyushuju.com/book/6rf463f/
 - 死亡悖论[无限流] https://www.weiyushuju.com/book/6rf4540/
 - [崩铁]请给玩家一个准确的血条！ https://www.weiyushuju.com/book/6rf44i2/
 - 在重生文里考科举 https://www.weiyushuju.com/book/6rf42m1/
@@ -124,7 +124,6 @@
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.weiyushuju.com/book/6rf400c/
 - 带清冷女主回乡养螃蟹[种田] https://www.weiyushuju.com/book/6rf3tsg/
 - 穿咒术，但杀猴现场 https://www.weiyushuju.com/book/6rf3tp3/
-- 这个位面归我了！[经营] https://www.weiyushuju.com/book/6rf3tmu/
 - 妻主风流（女尊） https://www.weiyushuju.com/book/6rf3sr4/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.weiyushuju.com/book/6rf3rb6/
 - 清冷丞相怀了死对头的崽 https://www.weiyushuju.com/book/6rf3r4d/
@@ -132,7 +131,6 @@
 - 假意逢承 https://www.weiyushuju.com/book/6rf3npj/
 - 被糟蹋的老实人决定反击 https://www.weiyushuju.com/book/6rf3n8d/
 - 和山神搭伙开农场的日子 https://www.weiyushuju.com/book/6rf3mm9/
-- 恶犬攻绑定上司的乖狗系统 https://www.weiyushuju.com/book/6rf3gb8/
 - 权宋一只统 https://www.weiyushuju.com/book/6rf3g81/
 - 娘娘扶摇直上 https://www.weiyushuju.com/book/6rf3frl/
 - 爱好和平但狂拆机甲 https://www.weiyushuju.com/book/6rf38vh/
@@ -145,6 +143,7 @@
 - 始乱终弃清冷首辅后 https://www.weiyushuju.com/book/6rf298m/
 - [封神]圣人生欲 https://www.weiyushuju.com/book/6rf295t/
 - 六零之成了卷王的妹妹 https://www.weiyushuju.com/book/6rf293s/
+- 千禧年，拆迁分了十栋楼！ https://www.weiyushuju.com/book/6rf28uh/
 - 巨物致富：回乡开钓场 https://www.weiyushuju.com/book/6rf28jc/
 - 清澈女大的六零年代 https://www.weiyushuju.com/book/6rf28gp/
 - 完蛋！被恨孕男包围了！ https://www.weiyushuju.com/book/6rf28g3/
@@ -159,7 +158,7 @@
 - 五十年代港城日常 https://www.weiyushuju.com/book/6rf27te/
 - 我是唯一地上神国 https://www.weiyushuju.com/book/6rf27qj/
 - 成为养成系练习生后 https://www.weiyushuju.com/book/6rf27nd/
-- 在民俗惊悚片被诸神庇护 https://www.weiyushuju.com/book/6rf27lj/
+- 恶犬品德 https://www.weiyushuju.com/book/6rf27hp/
 - 十九世纪贵族厨房（美食） https://www.weiyushuju.com/book/6rf27h2/
 ## 相关内容
 - [README](/README.md)

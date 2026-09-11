@@ -1,7 +1,7 @@
 
 # 文学小说668 - 全球最新最热的小说阅读平台
 
-更新时间：2026-09-09 03:44:00
+更新时间：2026-09-10 03:44:14
 
 文学小说668是全球最新、最热的小说阅读网站之一，汇集了包括言情小说、玄幻小说、穿越小说在内的各类优质小说资源，让读者能够尽情享受阅读的乐趣。 https://www.wenxue668.com
 
@@ -30,6 +30,7 @@
 - 渣攻他疯了［快穿］ https://www.wenxue668.com/book/44feo2r/
 - [足球]番外乐子集 https://www.wenxue668.com/book/44fenvo/
 - 我超凶的！[快穿] https://www.wenxue668.com/book/44fem2u/
+- 痴情女配开始放手了（快穿） https://www.wenxue668.com/book/44fel9j/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.wenxue668.com/book/44fel8m/
 - 渡鬼 https://www.wenxue668.com/book/44fel8g/
 - 我比反派先崩坏[快穿] https://www.wenxue668.com/book/44fel76/
@@ -55,6 +56,7 @@
 - 侦探立于百万生命之上 https://www.wenxue668.com/book/44fdrcb/
 - 特殊魅力值，已到账 https://www.wenxue668.com/book/44fdqhu/
 - 昭暮 https://www.wenxue668.com/book/44fdpo2/
+- 我不是正夫吗？ https://www.wenxue668.com/book/44fdmf0/
 - 朕看上的少年是侠女 https://www.wenxue668.com/book/44fdmdd/
 - 你，后室管理员 https://www.wenxue668.com/book/44fdmc9/
 - 高调装神，猥琐发育 https://www.wenxue668.com/book/44fdfj3/
@@ -308,7 +310,6 @@
 - 被离婚后嫁给了年代文大佬[穿书] https://www.wenxue668.com/book/44fbpet/
 - 当烫男人走错了片场 https://www.wenxue668.com/book/44fbpe9/
 - cos穿，但美强惨刀子精 https://www.wenxue668.com/book/44fbpcd/
-- 冷傲上司绑定娇妻系统后 https://www.wenxue668.com/book/44fbp9u/
 - 作家与读者 https://www.wenxue668.com/book/44fbp89/
 - 破戒[娱乐圈] https://www.wenxue668.com/book/44fbp6i/
 - 白月光拒绝拯救反派 https://www.wenxue668.com/book/44fbp6h/
@@ -413,7 +414,6 @@
 - 虫族治愈师，但恐虫 https://www.wenxue668.com/book/44fbgu5/
 - 吐槽役审神者会爆改幕后大boss吗 https://www.wenxue668.com/book/44fbft4/
 - 我最讨厌打球了！ https://www.wenxue668.com/book/44fbd6l/
-- 刀子精手心的人偶崽崽 https://www.wenxue668.com/book/44fbcnp/
 - 求生游戏：当邪神成为生活玩家后 https://www.wenxue668.com/book/44fbbau/
 - [足球]小小鸟堂堂来袭 https://www.wenxue668.com/book/44fb7i3/
 - 幼崽假少爷选择回归寒门 https://www.wenxue668.com/book/44fb6jq/

@@ -1,12 +1,11 @@
 
 # 探秘笔神阁小说-好看小说快速更新,页面清新流畅的免费小说网
 
-更新时间：2026-09-09 03:42:03
+更新时间：2026-09-10 03:42:12
 
 探秘笔神阁小说收录了大量受欢迎的小说作品，以极快的速度进行更新，并且保证用户在阅读时能够享受到清新流畅的页面体验。作为一个完全免费的小说网站，它深受广大网友的喜爱。 https://www.tanmi818.com
 
 ## 最新小说
-- 入梦修罗场，但我脸盲 https://www.tanmi818.com/book/977fhbn/
 - ［综英美］蝙蝠崽？我不是啊！ https://www.tanmi818.com/book/977fhbg/
 - 恐游里的邻居们[万人迷] https://www.tanmi818.com/book/977fhba/
 - 占有欲Daddy是我老公？ https://www.tanmi818.com/book/977fhb7/
@@ -26,7 +25,6 @@
 - 暗恋的价格是三万块 https://www.tanmi818.com/book/977fh9v/
 - 热恋过期需重追 https://www.tanmi818.com/book/977fh9u/
 - 八零法医，带全家致富 https://www.tanmi818.com/book/977fh9r/
-- 欲和离？夫君他目不识丁 https://www.tanmi818.com/book/977fh9n/
 - 在中世纪做奴隶 https://www.tanmi818.com/book/977fh9j/
 - 失忆后和死对头有了崽 https://www.tanmi818.com/book/977fh9g/
 - 病美人重生日记 https://www.tanmi818.com/book/977fh9d/
@@ -46,7 +44,7 @@
 - 你让魔王组建勇者小队？ https://www.tanmi818.com/book/977fh8k/
 - 全民求生，但剑三 https://www.tanmi818.com/book/977fh8j/
 - 夫人每天都在伪装 https://www.tanmi818.com/book/977fh8h/
-- 人，今晚土拨鼠站岗 https://www.tanmi818.com/book/977fh8f/
+- 笨蛋土拨鼠站岗日志 https://www.tanmi818.com/book/977fh8f/
 - [全职高手]治疗什么的不干了！ https://www.tanmi818.com/book/977fh8c/
 - [综英美]哥谭市民，在线抽卡 https://www.tanmi818.com/book/977fh88/
 - 娘娘扶摇直上 https://www.tanmi818.com/book/977fh86/
@@ -74,16 +72,18 @@
 - 起初，我只是想找个冤大头 https://www.tanmi818.com/book/977f76h/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.tanmi818.com/book/977f55h/
 - 上个鬼班[无限] https://www.tanmi818.com/book/977f0gd/
+- 限制文女王[快穿] https://www.tanmi818.com/book/977eqp7/
 - 九零重组小家庭 https://www.tanmi818.com/book/977epkh/
 - 让暴君Alpha怀崽后 https://www.tanmi818.com/book/977epb3/
 - [足球]足坛人生模拟器 https://www.tanmi818.com/book/977eopt/
+- 直播忏悔室，吃瓜养宠圈 https://www.tanmi818.com/book/977ein4/
 - 在卷王和废物之间选择做吉祥物 https://www.tanmi818.com/book/977eenf/
 - 从维多利亚时代开始 https://www.tanmi818.com/book/977ebc1/
 - 昭暮 https://www.tanmi818.com/book/977e9hu/
+- 恶犬品德 https://www.tanmi818.com/book/977e6e5/
 - 十九世纪贵族厨房（美食） https://www.tanmi818.com/book/977e6d7/
 - 原配夫人 https://www.tanmi818.com/book/977e6bh/
 - 始乱终弃清冷首辅后 https://www.tanmi818.com/book/977e67f/
-- 我只梦你一页 https://www.tanmi818.com/book/977dvcg/
 - 完蛋！被恨孕男包围了！ https://www.tanmi818.com/book/977dvb2/
 - 高调装神，猥琐发育 https://www.tanmi818.com/book/977dv7j/
 - 食明 https://www.tanmi818.com/book/977ds7p/
@@ -99,7 +99,6 @@
 - 死遁的亡夫们都回来了 https://www.tanmi818.com/book/977d5bi/
 - 死对头又在挑衅我 https://www.tanmi818.com/book/977ctk1/
 - 沈助理又在隐藏他的超能力 https://www.tanmi818.com/book/977ct1c/
-- 在民俗惊悚片被诸神庇护 https://www.tanmi818.com/book/977cr9l/
 - 被天使之王骗婚后[诡秘之主] https://www.tanmi818.com/book/977cqf5/
 - 从童星开始杀穿港娱 https://www.tanmi818.com/book/977co16/
 - 同时扮演贵族学院F4和平民校花 https://www.tanmi818.com/book/977cnuh/
@@ -122,6 +121,7 @@
 - 在魔法贵族学院当白月光 https://www.tanmi818.com/book/977c7in/
 - 我187了，你敢见我吗？ https://www.tanmi818.com/book/977c5um/
 - 和姐姐的前女友欢愉后 https://www.tanmi818.com/book/977c2bg/
+- 和小肥啾的海岛经营游戏 https://www.tanmi818.com/book/977bql8/
 - 朕也要被强制吗？ https://www.tanmi818.com/book/977bq86/
 - 大唐守军家属 https://www.tanmi818.com/book/977bpgj/
 - 在重生文里考科举 https://www.tanmi818.com/book/977bp4d/
@@ -131,7 +131,6 @@
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.tanmi818.com/book/977bits/
 - 心动嫌疑人 https://www.tanmi818.com/book/977bies/
 - 带清冷女主回乡养螃蟹[种田] https://www.tanmi818.com/book/977bflm/
-- 这个位面归我了！[经营] https://www.tanmi818.com/book/977bf9t/
 - 趁她之危 https://www.tanmi818.com/book/977bf8b/
 - 村霸非要入赘受气包 https://www.tanmi818.com/book/977bf2d/
 - [崩铁]请给玩家一个准确的血条！ https://www.tanmi818.com/book/977beds/
@@ -140,10 +139,10 @@
 - 和山神搭伙开农场的日子 https://www.tanmi818.com/book/977ba3b/
 - 被糟蹋的老实人决定反击 https://www.tanmi818.com/book/977b9nk/
 - 假意逢承 https://www.tanmi818.com/book/977b8vt/
-- 恶犬攻绑定上司的乖狗系统 https://www.tanmi818.com/book/977b3kl/
 - 权宋一只统 https://www.tanmi818.com/book/977b338/
 - 爱好和平但狂拆机甲 https://www.tanmi818.com/book/977arst/
 - 我是唯一地上神国 https://www.tanmi818.com/book/977a02d/
+- 千禧年，拆迁分了十栋楼！ https://www.tanmi818.com/book/9779vtk/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.tanmi818.com/book/9779vn4/
 - 海岛求生：生活玩家种田囤货 https://www.tanmi818.com/book/9779vh5/
 - 五十年代港城日常 https://www.tanmi818.com/book/9779v2c/

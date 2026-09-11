@@ -1,13 +1,12 @@
 
 # 阅读大文学 - 弘扬华夏文化的综合小说阅读平台
 
-更新时间：2026-09-09 03:48:31
+更新时间：2026-09-10 03:48:58
 
 阅读大文学致力于弘扬华夏文化，提供丰富的小说资源供免费阅读，涵盖但不限于古典文学、现代文学、当代文学及各类流行小说如言情、都市、玄幻等。 https://www.yuedu188.com
 
 ## 最新小说
-- 入梦修罗场，但我脸盲 https://www.yuedu188.com/book/1egriea/
-- 人，今晚土拨鼠站岗 https://www.yuedu188.com/book/1egrie7/
+- 笨蛋土拨鼠站岗日志 https://www.yuedu188.com/book/1egrie7/
 - 魔改剧本后我爆火了[娱乐圈] https://www.yuedu188.com/book/1egrie4/
 - 我只想上京赶考啊[聊斋] https://www.yuedu188.com/book/1egrie3/
 - 二次分化后他怀了死对头的崽 https://www.yuedu188.com/book/1egrie0/
@@ -27,7 +26,6 @@
 - 仙尊心尖宠，但被魔尊抢了 https://www.yuedu188.com/book/1egrico/
 - 双生子反派的端水抑郁妈[九零] https://www.yuedu188.com/book/1egricm/
 - 烈火焚身[巴黎圣母院] https://www.yuedu188.com/book/1egrick/
-- 欲和离？夫君他目不识丁 https://www.yuedu188.com/book/1egricj/
 - 禁止继承限制级雌君 https://www.yuedu188.com/book/1egrici/
 - 谁都不爱的和亲公主 https://www.yuedu188.com/book/1egrich/
 - 全民求生，但剑三 https://www.yuedu188.com/book/1egricg/
@@ -74,18 +72,20 @@
 - 起初，我只是想找个冤大头 https://www.yuedu188.com/book/1egr89l/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.yuedu188.com/book/1egr6bi/
 - 上个鬼班[无限] https://www.yuedu188.com/book/1egr1h9/
+- 限制文女王[快穿] https://www.yuedu188.com/book/1egqrtv/
 - 让暴君Alpha怀崽后 https://www.yuedu188.com/book/1egqqnn/
 - 九零重组小家庭 https://www.yuedu188.com/book/1egqqn6/
 - [足球]足坛人生模拟器 https://www.yuedu188.com/book/1egqpqf/
+- 直播忏悔室，吃瓜养宠圈 https://www.yuedu188.com/book/1egqjop/
 - 在卷王和废物之间选择做吉祥物 https://www.yuedu188.com/book/1egqfkq/
 - 从维多利亚时代开始 https://www.yuedu188.com/book/1egqcg2/
 - 昭暮 https://www.yuedu188.com/book/1egqapn/
 - 始乱终弃清冷首辅后 https://www.yuedu188.com/book/1egq868/
+- 恶犬品德 https://www.yuedu188.com/book/1egq83d/
 - 原配夫人 https://www.yuedu188.com/book/1egq82e/
 - 十九世纪贵族厨房（美食） https://www.yuedu188.com/book/1egq7re/
 - 高调装神，猥琐发育 https://www.yuedu188.com/book/1egq124/
 - 完蛋！被恨孕男包围了！ https://www.yuedu188.com/book/1egq0vg/
-- 我只梦你一页 https://www.yuedu188.com/book/1egq0rv/
 - 食明 https://www.yuedu188.com/book/1egptdc/
 - 诡话第一boss https://www.yuedu188.com/book/1egpq7v/
 - 专业女配的自我修养（快穿） https://www.yuedu188.com/book/1egpmp1/
@@ -98,7 +98,6 @@
 - 我骗家里的钱养你啊 https://www.yuedu188.com/book/1egp5hn/
 - 死遁的亡夫们都回来了 https://www.yuedu188.com/book/1egp503/
 - 死对头又在挑衅我 https://www.yuedu188.com/book/4kuqem/
-- 在民俗惊悚片被诸神庇护 https://www.yuedu188.com/book/4kuqan/
 - 沈助理又在隐藏他的超能力 https://www.yuedu188.com/book/4kuo0v/
 - 被天使之王骗婚后[诡秘之主] https://www.yuedu188.com/book/4kuma2/
 - 同时扮演贵族学院F4和平民校花 https://www.yuedu188.com/book/4kuk8b/
@@ -125,6 +124,7 @@
 - 朕也要被强制吗？ https://www.yuedu188.com/book/4ktn5d/
 - 在重生文里考科举 https://www.yuedu188.com/book/4ktn0l/
 - 大唐守军家属 https://www.yuedu188.com/book/4ktm5c/
+- 和小肥啾的海岛经营游戏 https://www.yuedu188.com/book/4ktkpn/
 - 趁她之危 https://www.yuedu188.com/book/4ktil2/
 - 心动嫌疑人 https://www.yuedu188.com/book/4kth7i/
 - [足球]小小鸟堂堂来袭 https://www.yuedu188.com/book/4kth6v/
@@ -132,7 +132,6 @@
 - 妻主风流（女尊） https://www.yuedu188.com/book/4ktf8u/
 - 死亡悖论[无限流] https://www.yuedu188.com/book/4ktf4t/
 - 带清冷女主回乡养螃蟹[种田] https://www.yuedu188.com/book/4ktdup/
-- 这个位面归我了！[经营] https://www.yuedu188.com/book/4ktbko/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.yuedu188.com/book/4ktb8q/
 - [崩铁]请给玩家一个准确的血条！ https://www.yuedu188.com/book/4ktatt/
 - 清冷丞相怀了死对头的崽 https://www.yuedu188.com/book/4ktajv/
@@ -140,7 +139,6 @@
 - 被糟蹋的老实人决定反击 https://www.yuedu188.com/book/4kt6kk/
 - 和山神搭伙开农场的日子 https://www.yuedu188.com/book/4kt5s0/
 - 假意逢承 https://www.yuedu188.com/book/4kt3vm/
-- 恶犬攻绑定上司的乖狗系统 https://www.yuedu188.com/book/4kt052/
 - 权宋一只统 https://www.yuedu188.com/book/4ksuf1/
 - 爱好和平但狂拆机甲 https://www.yuedu188.com/book/4kspvs/
 - 五十年代港城日常 https://www.yuedu188.com/book/esfc6/
@@ -159,6 +157,7 @@
 - 六零之成了卷王的妹妹 https://www.yuedu188.com/book/esdfv/
 - 巨物致富：回乡开钓场 https://www.yuedu188.com/book/1fkuf/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.yuedu188.com/book/1fkso/
+- 千禧年，拆迁分了十栋楼！ https://www.yuedu188.com/book/1fkpj/
 - 清澈女大的六零年代 https://www.yuedu188.com/book/1fkn3/
 - 老公对不起 https://www.yuedu188.com/book/4ofp/
 ## 相关内容
