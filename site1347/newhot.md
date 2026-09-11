@@ -1,7 +1,7 @@
 
 # 故事来书吧-免费阅读全网最新最热小说
 
-更新时间：2026-09-09 03:30:50
+更新时间：2026-09-10 03:31:09
 
 故事来书吧提供海量免费无弹窗小说在线阅读服务，涵盖言情、都市、玄幻、武侠等多种类型，让你随时随地享受阅读的乐趣。 https://www.gushi688.com
 
@@ -31,6 +31,7 @@
 - [足球]番外乐子集 https://www.gushi688.com/book/51213d8/
 - 我超凶的！[快穿] https://www.gushi688.com/book/51211hf/
 - 我比反派先崩坏[快穿] https://www.gushi688.com/book/51210ob/
+- 痴情女配开始放手了（快穿） https://www.gushi688.com/book/51210nv/
 - 渡鬼 https://www.gushi688.com/book/51210nq/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.gushi688.com/book/51210mk/
 - cos温迪后玩到真崩铁了 https://www.gushi688.com/book/5120s9q/
@@ -56,6 +57,7 @@
 - 特殊魅力值，已到账 https://www.gushi688.com/book/5120669/
 - 昭暮 https://www.gushi688.com/book/512055g/
 - 你，后室管理员 https://www.gushi688.com/book/512022j/
+- 我不是正夫吗？ https://www.gushi688.com/book/512021b/
 - 朕看上的少年是侠女 https://www.gushi688.com/book/51201qb/
 - 高调装神，猥琐发育 https://www.gushi688.com/book/511vqpi/
 - 伪装路人后成了反派首领 https://www.gushi688.com/book/511vjdh/
@@ -340,7 +342,6 @@
 - [综英美]忠诚的地球迎来了伟大的开拓者 https://www.gushi688.com/book/511u2p1/
 - [足球]能不能好好模拟游戏 https://www.gushi688.com/book/511u2nk/
 - 逆序布鲁斯的好大儿 https://www.gushi688.com/book/511u2li/
-- 冷傲上司绑定娇妻系统后 https://www.gushi688.com/book/511u2h5/
 - 坏女人绑定攻略系统后 https://www.gushi688.com/book/511u2g8/
 - 破戒[娱乐圈] https://www.gushi688.com/book/511u2d9/
 - [综英美]萌萌小蜘蛛在哥谭 https://www.gushi688.com/book/511u2ai/
@@ -413,7 +414,6 @@
 - 司寝宫女 https://www.gushi688.com/book/511tsei/
 - 吐槽役审神者会爆改幕后大boss吗 https://www.gushi688.com/book/511ts1m/
 - 求生游戏：当邪神成为生活玩家后 https://www.gushi688.com/book/511tp7m/
-- 刀子精手心的人偶崽崽 https://www.gushi688.com/book/511to41/
 - 我最讨厌打球了！ https://www.gushi688.com/book/511tn9h/
 - 幼崽假少爷选择回归寒门 https://www.gushi688.com/book/511tijp/
 - [足球]小小鸟堂堂来袭 https://www.gushi688.com/book/511thuu/

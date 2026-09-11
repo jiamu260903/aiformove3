@@ -1,7 +1,7 @@
 
 # 探秘书院-全本小说最值得收藏的绿色无弹窗免费小说阅读网
 
-更新时间：2026-09-09 03:42:18
+更新时间：2026-09-10 03:42:28
 
 探秘书院提供全本网文爱好者一个纯净、安全、高质量的免费小说阅读环境，支持最新章节在线阅读，所有内容均为绿色无弹窗且保证无错字。 https://www.tanmi918.com
 
@@ -32,6 +32,7 @@
 - 我超凶的！[快穿] https://www.tanmi918.com/book/80r4hd7/
 - 我比反派先崩坏[快穿] https://www.tanmi918.com/book/80r4gj8/
 - 渡鬼 https://www.tanmi918.com/book/80r4gb8/
+- 痴情女配开始放手了（快穿） https://www.tanmi918.com/book/80r4gan/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.tanmi918.com/book/80r4g9o/
 - cos温迪后玩到真崩铁了 https://www.tanmi918.com/book/80r4c7c/
 - 我有嘉宾 https://www.tanmi918.com/book/80r4bo0/
@@ -56,6 +57,7 @@
 - 特殊魅力值，已到账 https://www.tanmi918.com/book/80r3m57/
 - 昭暮 https://www.tanmi918.com/book/80r3knt/
 - 朕看上的少年是侠女 https://www.tanmi918.com/book/80r3h4f/
+- 我不是正夫吗？ https://www.tanmi918.com/book/80r3h2b/
 - 你，后室管理员 https://www.tanmi918.com/book/80r3gsm/
 - 高调装神，猥琐发育 https://www.tanmi918.com/book/80r3a1i/
 - 伪装路人后成了反派首领 https://www.tanmi918.com/book/80r33k5/
@@ -323,7 +325,6 @@
 - 这谁的沙雕二次元心声！ https://www.tanmi918.com/book/80r1jhn/
 - 逆序布鲁斯的好大儿 https://www.tanmi918.com/book/80r1jhc/
 - 摄政长公主穿成炮灰女配[七零] https://www.tanmi918.com/book/80r1jfs/
-- 冷傲上司绑定娇妻系统后 https://www.tanmi918.com/book/80r1jer/
 - 我让人生赢家俯首称臣的那些年 https://www.tanmi918.com/book/80r1jek/
 - 书穿男主给反派卖萌苟命 https://www.tanmi918.com/book/80r1je5/
 - 师妹为何要如此 https://www.tanmi918.com/book/80r1jbl/
@@ -412,7 +413,6 @@
 - 举朝上下为我的神仙人设头疼中 https://www.tanmi918.com/book/80r1cd5/
 - 某柯学的正义伙伴 https://www.tanmi918.com/book/80r1ccn/
 - 吐槽役审神者会爆改幕后大boss吗 https://www.tanmi918.com/book/80r1apc/
-- 刀子精手心的人偶崽崽 https://www.tanmi918.com/book/80r17dj/
 - 我最讨厌打球了！ https://www.tanmi918.com/book/80r172l/
 - 求生游戏：当邪神成为生活玩家后 https://www.tanmi918.com/book/80r16u3/
 - 幼崽假少爷选择回归寒门 https://www.tanmi918.com/book/80r11vk/

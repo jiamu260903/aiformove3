@@ -1,12 +1,11 @@
 
 # 精英文学 - 书友最值得收藏的小说免费阅读网
 
-更新时间：2026-09-09 03:46:02
+更新时间：2026-09-10 03:46:24
 
 精英文学为您提供一个干净舒适的阅读环境，作为书友最值得收藏的小说免费阅读网之一，我们致力于打造无广告干扰的最佳在线阅读体验。 https://www.xcposji.com
 
 ## 最新小说
-- 入梦修罗场，但我脸盲 https://www.xcposji.com/book/jnn1le/
 - 世界伏于她刀下[无限] https://www.xcposji.com/book/jnmrpr/
 - 好心的俄罗斯人 https://www.xcposji.com/book/jnmrpq/
 - 娘娘扶摇直上 https://www.xcposji.com/book/jnmrpl/
@@ -26,7 +25,6 @@
 - 谁说踢球就不能成为名侦探[足球] https://www.xcposji.com/book/jnmroh/
 - 魔咒请说普通话[西幻] https://www.xcposji.com/book/jnmrof/
 - 正是冬雪沸腾时 https://www.xcposji.com/book/jnmroe/
-- 欲和离？夫君他目不识丁 https://www.xcposji.com/book/jnmrob/
 - 恶毒男配只想躺平 https://www.xcposji.com/book/jnmro6/
 - ［综英美］蝙蝠崽？我不是啊！ https://www.xcposji.com/book/jnmro0/
 - [综英美]哥谭市民，在线抽卡 https://www.xcposji.com/book/jnmrnr/
@@ -65,17 +63,19 @@
 - 八零法医，带全家致富 https://www.xcposji.com/book/jnmrl8/
 - 夫人每天都在伪装 https://www.xcposji.com/book/jnmrl6/
 - 欲加之罪 https://www.xcposji.com/book/jnmrl5/
-- 人，今晚土拨鼠站岗 https://www.xcposji.com/book/jnmrl3/
+- 笨蛋土拨鼠站岗日志 https://www.xcposji.com/book/jnmrl3/
 - 国师 https://www.xcposji.com/book/jnmrkv/
 - 恐游作精女配求生指南 https://www.xcposji.com/book/jnmrks/
 - 清穿女回来后[天幕] https://www.xcposji.com/book/jnmrkq/
 - 天幕今天也在直播我搞基建 https://www.xcposji.com/book/jnmkgt/
 - 起初，我只是想找个冤大头 https://www.xcposji.com/book/jnmk0l/
 - 上个鬼班[无限] https://www.xcposji.com/book/jnmg7e/
+- 限制文女王[快穿] https://www.xcposji.com/book/jnmb0c/
 - [足球]足坛人生模拟器 https://www.xcposji.com/book/jnm8sb/
 - 九零重组小家庭 https://www.xcposji.com/book/jnm8cn/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.xcposji.com/book/jnm7pg/
 - 让暴君Alpha怀崽后 https://www.xcposji.com/book/jnm69m/
+- 直播忏悔室，吃瓜养宠圈 https://www.xcposji.com/book/jnm332/
 - 在卷王和废物之间选择做吉祥物 https://www.xcposji.com/book/jnlui5/
 - 从维多利亚时代开始 https://www.xcposji.com/book/jnlror/
 - 昭暮 https://www.xcposji.com/book/jnlo62/
@@ -98,7 +98,6 @@
 - 从童星开始杀穿港娱 https://www.xcposji.com/book/jnk9vu/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.xcposji.com/book/jnk9s0/
 - 同时扮演贵族学院F4和平民校花 https://www.xcposji.com/book/jnk9n0/
-- 我只梦你一页 https://www.xcposji.com/book/jnk8fv/
 - 路人攻了主角攻［快穿］ https://www.xcposji.com/book/jnk8e0/
 - 苏娘子汴京摆摊日常（美食） https://www.xcposji.com/book/jnk7qb/
 - 月亮上的大筒木 https://www.xcposji.com/book/jnk64h/
@@ -118,11 +117,11 @@
 - [足球]小小鸟堂堂来袭 https://www.xcposji.com/book/jnjdmg/
 - 朕也要被强制吗？ https://www.xcposji.com/book/jnjcsv/
 - 大唐守军家属 https://www.xcposji.com/book/jnjaob/
+- 和小肥啾的海岛经营游戏 https://www.xcposji.com/book/jnja23/
 - 在重生文里考科举 https://www.xcposji.com/book/jnj9ei/
 - 心动嫌疑人 https://www.xcposji.com/book/jnj9bu/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.xcposji.com/book/jnj5ja/
 - 死亡悖论[无限流] https://www.xcposji.com/book/jnj56d/
-- 这个位面归我了！[经营] https://www.xcposji.com/book/jnj4pi/
 - 妻主风流（女尊） https://www.xcposji.com/book/jnj3ao/
 - [崩铁]请给玩家一个准确的血条！ https://www.xcposji.com/book/jnj272/
 - 清冷丞相怀了死对头的崽 https://www.xcposji.com/book/jnj0pb/
@@ -134,14 +133,14 @@
 - 假意逢承 https://www.xcposji.com/book/jnirbi/
 - 被糟蹋的老实人决定反击 https://www.xcposji.com/book/jniq87/
 - 权宋一只统 https://www.xcposji.com/book/jnikom/
-- 恶犬攻绑定上司的乖狗系统 https://www.xcposji.com/book/jnik4j/
 - 爱好和平但狂拆机甲 https://www.xcposji.com/book/jnifgj/
 - 你让魔王组建勇者小队？ https://www.xcposji.com/book/jnich0/
 - 始乱终弃清冷首辅后 https://www.xcposji.com/book/jnhgjs/
+- 恶犬品德 https://www.xcposji.com/book/jnhgin/
 - 我有一座安全城 https://www.xcposji.com/book/jnhged/
 - 海岛求生：生活玩家种田囤货 https://www.xcposji.com/book/jnhgck/
 - 完蛋！被恨孕男包围了！ https://www.xcposji.com/book/jnhfrc/
-- 在民俗惊悚片被诸神庇护 https://www.xcposji.com/book/jnhfqf/
+- 千禧年，拆迁分了十栋楼！ https://www.xcposji.com/book/jnhfms/
 - 全民求生:从小木屋到魔法农场 https://www.xcposji.com/book/jnhfkf/
 - 清澈女大的六零年代 https://www.xcposji.com/book/jnhfib/
 - 趁她之危 https://www.xcposji.com/book/jnhfhp/

@@ -1,11 +1,16 @@
 
 # 耽美小说 - 最新全本免费手机小说阅读推荐
 
-更新时间：2026-09-09 03:39:45
+更新时间：2026-09-10 03:39:54
 
 耽美小说为您提供最新最全的小说阅读体验，涵盖古言、现言、原创、玄幻、都市、言情、娱乐、种田、科幻、悬疑、穿越、重生等多种类型。支持手机在线阅读，全本免费小说尽在耽美小说！ https://www.shgifts8.com
 
 ## 最新小说
+- 穿成漫画反派的我又做错了什么 https://www.shgifts8.com/book/32uilic/
+- [综英美]蝙蝠崽但脆皮 https://www.shgifts8.com/book/32uilem/
+- 我拿的可是反派剧本 https://www.shgifts8.com/book/32uikoc/
+- 丧尸王有什么坏心思？ https://www.shgifts8.com/book/32uika0/
+- 这个替嫁让我来！ https://www.shgifts8.com/book/32uijsi/
 - 网球带给齐木的灾难 https://www.shgifts8.com/book/32uiiki/
 - 当甚尔转生成继国 https://www.shgifts8.com/book/32uignp/
 - 节能型社恐靠交友存活打排球 https://www.shgifts8.com/book/32uig05/
@@ -63,6 +68,7 @@
 - 我当县令那些年 https://www.shgifts8.com/book/32ugrct/
 - 优质攻不做恋爱脑[快穿] https://www.shgifts8.com/book/32ugqd7/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.shgifts8.com/book/32ugqb1/
+- 痴情女配开始放手了（快穿） https://www.shgifts8.com/book/32ugq7v/
 - 可怜的天然呆直男[快穿] https://www.shgifts8.com/book/32ugq70/
 - 超A奶龙饲养指南 https://www.shgifts8.com/book/32ugp61/
 - [综英美]是谁家的小鹿 https://www.shgifts8.com/book/32ugp1c/
@@ -331,7 +337,6 @@
 - [足球]罗蜜第一志愿 https://www.shgifts8.com/book/32uff3k/
 - 宇智波的遗产 https://www.shgifts8.com/book/32ufevm/
 - 摄政长公主穿成炮灰女配[七零] https://www.shgifts8.com/book/32ufet2/
-- 冷傲上司绑定娇妻系统后 https://www.shgifts8.com/book/32ufesc/
 - 汉武帝戾太子什么含金量 https://www.shgifts8.com/book/32ufeqk/
 - 白月光拒绝拯救反派 https://www.shgifts8.com/book/32ufenr/
 - 朱棣造反被朱元璋表扬这事[直播剧透] https://www.shgifts8.com/book/32ufem8/
@@ -395,7 +400,6 @@
 - 青城玩家明明超强却过分谨慎 https://www.shgifts8.com/book/32ufapg/
 - 暴君偏头痛 https://www.shgifts8.com/book/32ufaiq/
 - 放开那个黑暗哨兵！ https://www.shgifts8.com/book/32ufaf1/
-- 刀子精手心的人偶崽崽 https://www.shgifts8.com/book/32ufa8k/
 - 虫族治愈师，但恐虫 https://www.shgifts8.com/book/32ufa5q/
 - 救命！猫尾巴藏不住了 https://www.shgifts8.com/book/32ufa3a/
 - 关于我虚构了一个男友这件事 https://www.shgifts8.com/book/32ufa0e/
@@ -433,6 +437,7 @@
 - 书呆子扮演渣攻翻车【快穿】 https://www.shgifts8.com/book/32ueitq/
 - 满级竹马从异世穿回来了 https://www.shgifts8.com/book/32ueg60/
 - 丧尸老婆喂养日记 https://www.shgifts8.com/book/32ue67h/
+- 我不是正夫吗？ https://www.shgifts8.com/book/32ud7oc/
 - 朕看上的少年是侠女 https://www.shgifts8.com/book/32ud7c6/
 - 被四皇错看成小动物后 https://www.shgifts8.com/book/32ud77i/
 - [封神]圣人生欲 https://www.shgifts8.com/book/32ud5t4/

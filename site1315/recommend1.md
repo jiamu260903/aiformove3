@@ -1,7 +1,7 @@
 
 # 连载小说网, 新笔趣小说阅读网 - 热门小说在线免费阅读
 
-更新时间：2026-09-09 03:34:41
+更新时间：2026-09-10 03:34:53
 
 连载小说网为您提供最新最全的小说资源，当顶点小说网无法访问时，请选择我们作为替代。这里是书友们的聚集地，拥有海量热门小说供您免费在线阅读。 https://www.lianzai007.com
 
@@ -27,12 +27,11 @@
 - 我骗家里的钱养你啊 https://www.lianzai007.com/book/6g3n1m4/
 - [足球]雏鸟 https://www.lianzai007.com/book/6g3n1m3/
 - 双生子反派的端水抑郁妈[九零] https://www.lianzai007.com/book/6g3n1m2/
-- 欲和离？夫君他目不识丁 https://www.lianzai007.com/book/6g3n1m1/
 - 魔咒请说普通话[西幻] https://www.lianzai007.com/book/6g3n1m0/
 - 烈火焚身[巴黎圣母院] https://www.lianzai007.com/book/6g3n1lv/
 - 恶毒男配只想躺平 https://www.lianzai007.com/book/6g3n1lu/
 - [洪荒]成为太清妹妹后 https://www.lianzai007.com/book/6g3n1lt/
-- 人，今晚土拨鼠站岗 https://www.lianzai007.com/book/6g3n1ls/
+- 笨蛋土拨鼠站岗日志 https://www.lianzai007.com/book/6g3n1ls/
 - 穿咒术，但杀猴现场 https://www.lianzai007.com/book/6g3n1lr/
 - ［综英美］蝙蝠崽？我不是啊！ https://www.lianzai007.com/book/6g3n1lq/
 - 康熙宠妃日常 https://www.lianzai007.com/book/6g3n1lp/
@@ -134,7 +133,6 @@
 - 被糟蹋的老实人决定反击 https://www.lianzai007.com/book/kpvsat/
 - 韩团绿卡不想忍了 https://www.lianzai007.com/book/kpvrh8/
 - 村霸非要入赘受气包 https://www.lianzai007.com/book/kpvq75/
-- 这个位面归我了！[经营] https://www.lianzai007.com/book/kpvq41/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.lianzai007.com/book/kpvpb9/
 - 清冷丞相怀了死对头的崽 https://www.lianzai007.com/book/kpvob1/
 - 卷王后妈，八零养娃 https://www.lianzai007.com/book/kpvnih/

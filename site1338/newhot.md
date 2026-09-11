@@ -1,7 +1,7 @@
 
 # 笔下文学-无广告免费在线小说阅读网站
 
-更新时间：2026-09-09 03:29:17
+更新时间：2026-09-10 03:29:35
 
 笔下文学提供了一个完全免费的小说在线阅读与下载平台。我们承诺给用户一个无广告、无弹窗干扰的阅读环境，让每位读者都能享受纯净舒适的阅读体验。 https://www.fshxjd.com
 
@@ -19,6 +19,7 @@
 - [崩铁]请给玩家一个准确的血条！ https://www.fshxjd.com/book/74i3mon/
 - 这个替嫁让我来！ https://www.fshxjd.com/book/74i3moc/
 - 自知之明 https://www.fshxjd.com/book/74i3moa/
+- 痴情女配开始放手了（快穿） https://www.fshxjd.com/book/74i3lts/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.fshxjd.com/book/74i3ltp/
 - 暴君偏头痛 https://www.fshxjd.com/book/74i3lr1/
 - 渡鬼 https://www.fshxjd.com/book/74i3lqg/
@@ -42,6 +43,7 @@
 - cos温迪后玩到真崩铁了 https://www.fshxjd.com/book/74i366f/
 - 娇气点怎么啦？［快穿］ https://www.fshxjd.com/book/74i35li/
 - 你，后室管理员 https://www.fshxjd.com/book/74i35l8/
+- 我不是正夫吗？ https://www.fshxjd.com/book/74i35l5/
 - 朕看上的少年是侠女 https://www.fshxjd.com/book/74i35he/
 - [崩铁]这丰饶孽物我当定了！ https://www.fshxjd.com/book/74i34u0/
 - 不义世界都是我马甲[综英美] https://www.fshxjd.com/book/74i34nl/
@@ -300,7 +302,6 @@
 - 正常人成为虫母后沦陷修罗场 https://www.fshxjd.com/book/74i0esb/
 - 微臣怜惜公主 https://www.fshxjd.com/book/74i0eqj/
 - 魔尊他邪得发正 https://www.fshxjd.com/book/74i0eq5/
-- 冷傲上司绑定娇妻系统后 https://www.fshxjd.com/book/74i0elu/
 - 娇婚惯养 https://www.fshxjd.com/book/74i0eiu/
 - 女帝起家前录 https://www.fshxjd.com/book/74i0ebn/
 - 摄政长公主穿成炮灰女配[七零] https://www.fshxjd.com/book/74i0e4s/
@@ -417,7 +418,6 @@
 - 被四皇错看成小动物后 https://www.fshxjd.com/book/74hvv7b/
 - [足球]罗蜜第一志愿 https://www.fshxjd.com/book/74hvu9j/
 - 战死的阿爹回来了[年代] https://www.fshxjd.com/book/74hvqcp/
-- 刀子精手心的人偶崽崽 https://www.fshxjd.com/book/74hvptk/
 - [综英美]让我统治哥谭！！！ https://www.fshxjd.com/book/74hvlbg/
 - 魔物堆里的人类幼崽 https://www.fshxjd.com/book/74hvk0h/
 - 好巧，你也是妹控？[综崩铁] https://www.fshxjd.com/book/74hvjcq/

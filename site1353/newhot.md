@@ -1,7 +1,7 @@
 
 # 书社1687小说免费-最新更新手打TXT下载和手机免费阅读
 
-更新时间：2026-09-09 03:40:48
+更新时间：2026-09-10 03:40:57
 
 书社1687小说免费提供网络热门小说的最新更新手打全文字TXT章节供您手机免费阅读和下载。请收藏书社1687小说，享受便捷的小说阅读体验。 https://www.shushe1687.com
 
@@ -31,6 +31,7 @@
 - [足球]番外乐子集 https://www.shushe1687.com/book/489gvvd/
 - 我超凶的！[快穿] https://www.shushe1687.com/book/489gu30/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.shushe1687.com/book/489gtas/
+- 痴情女配开始放手了（快穿） https://www.shushe1687.com/book/489gtaa/
 - 我比反派先崩坏[快穿] https://www.shushe1687.com/book/489gt93/
 - 渡鬼 https://www.shushe1687.com/book/489gt8l/
 - cos温迪后玩到真崩铁了 https://www.shushe1687.com/book/489got8/
@@ -56,6 +57,7 @@
 - 特殊魅力值，已到账 https://www.shushe1687.com/book/489g2kk/
 - 昭暮 https://www.shushe1687.com/book/489g1n0/
 - 你，后室管理员 https://www.shushe1687.com/book/489fui2/
+- 我不是正夫吗？ https://www.shushe1687.com/book/489fuhf/
 - 朕看上的少年是侠女 https://www.shushe1687.com/book/489fufj/
 - 高调装神，猥琐发育 https://www.shushe1687.com/book/489fnds/
 - 穿成猫的咒术高专生活 https://www.shushe1687.com/book/489fge4/
@@ -303,7 +305,6 @@
 - 这谁的沙雕二次元心声！ https://www.shushe1687.com/book/489e1lo/
 - [综武侠]有间民宿 https://www.shushe1687.com/book/489e1lg/
 - 娇婚惯养 https://www.shushe1687.com/book/489e1kv/
-- 冷傲上司绑定娇妻系统后 https://www.shushe1687.com/book/489e1jc/
 - 朱棣造反被朱元璋表扬这事[直播剧透] https://www.shushe1687.com/book/489e1h6/
 - 豪门狗血文里的天才后妈 https://www.shushe1687.com/book/489e1gf/
 - 作家与读者 https://www.shushe1687.com/book/489e1g0/
@@ -412,7 +413,6 @@
 - 青山不渡 https://www.shushe1687.com/book/489dp1e/
 - 顶流他姐有神豪系统 https://www.shushe1687.com/book/489dou9/
 - 吐槽役审神者会爆改幕后大boss吗 https://www.shushe1687.com/book/489dm9d/
-- 刀子精手心的人偶崽崽 https://www.shushe1687.com/book/489dkfs/
 - 求生游戏：当邪神成为生活玩家后 https://www.shushe1687.com/book/489djr4/
 - 我最讨厌打球了！ https://www.shushe1687.com/book/489dj2j/
 - [足球]小小鸟堂堂来袭 https://www.shushe1687.com/book/489dfs6/

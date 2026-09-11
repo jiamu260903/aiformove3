@@ -1,7 +1,7 @@
 
 # 情感小说-精彩小说推荐网,涵盖言情都市历史科幻等多种类型
 
-更新时间：2026-09-09 03:38:07
+更新时间：2026-09-10 03:38:16
 
 情感小说致力于为广大书友推荐各种类型好看的小说，包括但不限于言情、都市、历史、科幻、灵异、军事、悬疑、玄幻、武侠、末世等。看小说，找小说就上书格格小说推荐网！ https://www.qinggan1687.com
 
@@ -10,7 +10,7 @@
 - 魔咒请说普通话[西幻] https://www.qinggan1687.com/book/3qc5is4/
 - 在中世纪做奴隶 https://www.qinggan1687.com/book/3qc5is2/
 - 娘娘扶摇直上 https://www.qinggan1687.com/book/3qc5is0/
-- 人，今晚土拨鼠站岗 https://www.qinggan1687.com/book/3qc5irv/
+- 笨蛋土拨鼠站岗日志 https://www.qinggan1687.com/book/3qc5irv/
 - 正是冬雪沸腾时 https://www.qinggan1687.com/book/3qc5irt/
 - 穿为龙傲天发妻后 https://www.qinggan1687.com/book/3qc5irq/
 - 全世界名为爱的恶意 https://www.qinggan1687.com/book/3qc5irn/
@@ -40,7 +40,6 @@
 - 八零法医，带全家致富 https://www.qinggan1687.com/book/3qc5iq2/
 - 康熙宠妃日常 https://www.qinggan1687.com/book/3qc5ipv/
 - [全职高手]治疗什么的不干了！ https://www.qinggan1687.com/book/3qc5ipu/
-- 欲和离？夫君他目不识丁 https://www.qinggan1687.com/book/3qc5ipt/
 - 爱情的肯定句 https://www.qinggan1687.com/book/3qc5ipq/
 - SSS级异种都是我前任 https://www.qinggan1687.com/book/3qc5ipp/
 - 夫人每天都在伪装 https://www.qinggan1687.com/book/3qc5ipl/
@@ -131,7 +130,6 @@
 - 死亡悖论[无限流] https://www.qinggan1687.com/book/3qc1k2g/
 - 心动嫌疑人 https://www.qinggan1687.com/book/3qc1jsd/
 - 带清冷女主回乡养螃蟹[种田] https://www.qinggan1687.com/book/3qc1i7m/
-- 这个位面归我了！[经营] https://www.qinggan1687.com/book/3qc1gu9/
 - 清冷丞相怀了死对头的崽 https://www.qinggan1687.com/book/3qc1fve/
 - 村霸非要入赘受气包 https://www.qinggan1687.com/book/3qc1fam/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.qinggan1687.com/book/3qc1f7j/

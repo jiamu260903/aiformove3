@@ -1,7 +1,7 @@
 
 # 紫竹原始小说 - 最新最全的小说文学网站
 
-更新时间：2026-09-09 03:27:44
+更新时间：2026-09-10 03:28:00
 
 紫竹原始小说是一个专注于分享最新、最全的小说文学作品的网站。我们致力于为读者带来全新的阅读体验，欢迎访问我们的网站，尽情享受文学的魅力。 https://www.cnysxc.com
 
@@ -51,6 +51,7 @@
 - 欺负人是坏文明 https://www.cnysxc.com/book/8edvnji/
 - 侦探立于百万生命之上 https://www.cnysxc.com/book/8edvn8t/
 - 渡鬼 https://www.cnysxc.com/book/8edvmv2/
+- 痴情女配开始放手了（快穿） https://www.cnysxc.com/book/8edvmuf/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.cnysxc.com/book/8edvmoh/
 - 特殊魅力值，已到账 https://www.cnysxc.com/book/8edvmi5/
 - 昭暮 https://www.cnysxc.com/book/8edvjfc/
@@ -341,7 +342,6 @@
 - 作家与读者 https://www.cnysxc.com/book/8edtj92/
 - 我让人生赢家俯首称臣的那些年 https://www.cnysxc.com/book/8edtj8f/
 - 书穿男主给反派卖萌苟命 https://www.cnysxc.com/book/8edtj7e/
-- 冷傲上司绑定娇妻系统后 https://www.cnysxc.com/book/8edtj42/
 - 女帝起家前录 https://www.cnysxc.com/book/8edtj2q/
 - 侯府打工人 https://www.cnysxc.com/book/8edtj0l/
 - [全职高手]问就是没钱 https://www.cnysxc.com/book/8edtit8/
@@ -424,7 +424,6 @@
 - 矩阵干扰 https://www.cnysxc.com/book/8edtbgi/
 - 和室友他爸恋爱后 https://www.cnysxc.com/book/8edtat8/
 - 青城玩家明明超强却过分谨慎 https://www.cnysxc.com/book/8edta9u/
-- 刀子精手心的人偶崽崽 https://www.cnysxc.com/book/8edta7g/
 - 魔物堆里的人类幼崽 https://www.cnysxc.com/book/8edt823/
 - 和港城大小姐先婚后爱了 https://www.cnysxc.com/book/8edt81h/
 - 好巧，你也是妹控？[综崩铁] https://www.cnysxc.com/book/8edt7vt/
@@ -442,6 +441,7 @@
 - 丧尸老婆喂养日记 https://www.cnysxc.com/book/8edsb5i/
 - 被四皇错看成小动物后 https://www.cnysxc.com/book/8edrb7m/
 - 朕看上的少年是侠女 https://www.cnysxc.com/book/8edrb5c/
+- 我不是正夫吗？ https://www.cnysxc.com/book/8edrb2g/
 - 你，后室管理员 https://www.cnysxc.com/book/8edrauk/
 - [封神]圣人生欲 https://www.cnysxc.com/book/8edrare/
 - 高调装神，猥琐发育 https://www.cnysxc.com/book/8edraiu/

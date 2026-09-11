@@ -1,12 +1,11 @@
 
 # 云南野人山野小说网 - 创意小说与文学作品分享平台
 
-更新时间：2026-09-09 03:48:09
+更新时间：2026-09-10 03:48:32
 
 欢迎来到云南野人山野小说网 - 专注于创意小说和文学作品分享的在线平台。探索精选的小说系列及文学佳作，加入我们，与众多才华横溢的作者交流心得，共同创造美好的阅读旅程。 https://www.ynyrsy.com
 
 ## 最新小说
-- 入梦修罗场，但我脸盲 https://www.ynyrsy.com/book/dfebh9/
 - 康熙宠妃日常 https://www.ynyrsy.com/book/dfe5ll/
 - 失忆后和死对头有了崽 https://www.ynyrsy.com/book/dfe5li/
 - [洪荒]成为太清妹妹后 https://www.ynyrsy.com/book/dfe5lh/
@@ -30,7 +29,6 @@
 - 谁都不爱的和亲公主 https://www.ynyrsy.com/book/dfe5kc/
 - 病美人重生日记 https://www.ynyrsy.com/book/dfe5ka/
 - [综英美]哥谭市民，在线抽卡 https://www.ynyrsy.com/book/dfe5k2/
-- 欲和离？夫君他目不识丁 https://www.ynyrsy.com/book/dfe5k1/
 - 魔改剧本后我爆火了[娱乐圈] https://www.ynyrsy.com/book/dfe5jv/
 - 占有欲Daddy是我老公？ https://www.ynyrsy.com/book/dfe5ju/
 - 爱情的肯定句 https://www.ynyrsy.com/book/dfe5jr/
@@ -52,7 +50,7 @@
 - 恶毒男配只想躺平 https://www.ynyrsy.com/book/dfe5ib/
 - 国师 https://www.ynyrsy.com/book/dfe5i8/
 - 从1951开始 https://www.ynyrsy.com/book/dfe5i2/
-- 人，今晚土拨鼠站岗 https://www.ynyrsy.com/book/dfe5ht/
+- 笨蛋土拨鼠站岗日志 https://www.ynyrsy.com/book/dfe5ht/
 - 好心的俄罗斯人 https://www.ynyrsy.com/book/dfe5hs/
 - 等我吃腻了再倒闭可以吗 https://www.ynyrsy.com/book/dfe5hq/
 - [全职高手]治疗什么的不干了！ https://www.ynyrsy.com/book/dfe5hp/
@@ -72,10 +70,12 @@
 - 天幕今天也在直播我搞基建 https://www.ynyrsy.com/book/dfdufa/
 - 起初，我只是想找个冤大头 https://www.ynyrsy.com/book/dfdtpr/
 - 上个鬼班[无限] https://www.ynyrsy.com/book/dfdq3m/
+- 限制文女王[快穿] https://www.ynyrsy.com/book/dfdkvn/
 - [足球]足坛人生模拟器 https://www.ynyrsy.com/book/dfdiqd/
 - 九零重组小家庭 https://www.ynyrsy.com/book/dfdi8l/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.ynyrsy.com/book/dfdhoa/
 - 让暴君Alpha怀崽后 https://www.ynyrsy.com/book/dfdg40/
+- 直播忏悔室，吃瓜养宠圈 https://www.ynyrsy.com/book/dfdd0o/
 - 在卷王和废物之间选择做吉祥物 https://www.ynyrsy.com/book/dfd8ej/
 - 从维多利亚时代开始 https://www.ynyrsy.com/book/dfd5jv/
 - 昭暮 https://www.ynyrsy.com/book/dfd227/
@@ -101,7 +101,6 @@
 - 苏娘子汴京摆摊日常（美食） https://www.ynyrsy.com/book/dfbi90/
 - 路人攻了主角攻［快穿］ https://www.ynyrsy.com/book/dfbi7e/
 - 月亮上的大筒木 https://www.ynyrsy.com/book/dfbhmk/
-- 我只梦你一页 https://www.ynyrsy.com/book/dfbgoi/
 - 开局绑定郭奉孝，谋定三国风云 https://www.ynyrsy.com/book/dfbg29/
 - 直男咒术师的限制级游戏 https://www.ynyrsy.com/book/dfbdc1/
 - 漂亮女配是万人迷［快穿］ https://www.ynyrsy.com/book/dfbc80/
@@ -117,12 +116,12 @@
 - 和姐姐的前女友欢愉后 https://www.ynyrsy.com/book/dfarie/
 - 朕也要被强制吗？ https://www.ynyrsy.com/book/dfanlo/
 - [足球]小小鸟堂堂来袭 https://www.ynyrsy.com/book/dfamv4/
+- 和小肥啾的海岛经营游戏 https://www.ynyrsy.com/book/dfaj8k/
 - 心动嫌疑人 https://www.ynyrsy.com/book/dfaj0l/
 - 大唐守军家属 https://www.ynyrsy.com/book/dfaj0g/
 - 在重生文里考科举 https://www.ynyrsy.com/book/dfaio7/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.ynyrsy.com/book/dfafrk/
 - 死亡悖论[无限流] https://www.ynyrsy.com/book/dfaf64/
-- 这个位面归我了！[经营] https://www.ynyrsy.com/book/dfaea0/
 - 妻主风流（女尊） https://www.ynyrsy.com/book/dfae9u/
 - [崩铁]请给玩家一个准确的血条！ https://www.ynyrsy.com/book/dfabbc/
 - 带清冷女主回乡养螃蟹[种田] https://www.ynyrsy.com/book/dfaaom/
@@ -134,7 +133,6 @@
 - 被糟蹋的老实人决定反击 https://www.ynyrsy.com/book/dfa51b/
 - 假意逢承 https://www.ynyrsy.com/book/dfa3ks/
 - 权宋一只统 https://www.ynyrsy.com/book/dfa0fa/
-- 恶犬攻绑定上司的乖狗系统 https://www.ynyrsy.com/book/dfa02q/
 - 爱好和平但狂拆机甲 https://www.ynyrsy.com/book/df9oo6/
 - 你让魔王组建勇者小队？ https://www.ynyrsy.com/book/df9lgo/
 - 海岛求生：生活玩家种田囤货 https://www.ynyrsy.com/book/df8q3p/
@@ -157,8 +155,9 @@
 - 大瑛弟国 https://www.ynyrsy.com/book/df8o3h/
 - 日化人生[科研] https://www.ynyrsy.com/book/df8nu0/
 - 成为养成系练习生后 https://www.ynyrsy.com/book/df8npu/
-- 在民俗惊悚片被诸神庇护 https://www.ynyrsy.com/book/df8nm3/
 - 卷王后妈，八零养娃 https://www.ynyrsy.com/book/df8njj/
+- 恶犬品德 https://www.ynyrsy.com/book/df8njd/
+- 千禧年，拆迁分了十栋楼！ https://www.ynyrsy.com/book/df8nit/
 - [娱乐圈]过分美丽的她 https://www.ynyrsy.com/book/df8nil/
 - 巨物致富：回乡开钓场 https://www.ynyrsy.com/book/df8n9u/
 ## 相关内容

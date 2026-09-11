@@ -1,7 +1,7 @@
 
 # 酷匠小说网 - 专注手机阅读，免费小说在线阅读及下载
 
-更新时间：2026-09-09 03:49:19
+更新时间：2026-09-10 03:49:47
 
 酷匠小说网提供最新免费小说在线阅读及下载。包括都市小说，玄幻小说，言情小说等。精致排版，每天更新，打造极致阅读体验，让您静享“精品阅读时光”。 https://www.yumin66.com
 
@@ -22,11 +22,13 @@
 - 穿为龙傲天发妻后 https://www.yumin66.com/book/5q5ncq/
 - ［综英美］蝙蝠崽？我不是啊！ https://www.yumin66.com/book/5q5ncf/
 - [综英美]让我统治哥谭！！！ https://www.yumin66.com/book/5q5nav/
+- 痴情女配开始放手了（快穿） https://www.yumin66.com/book/5q5nau/
 - 暴君偏头痛 https://www.yumin66.com/book/5q5n9i/
 - 躲避原书剧情五年后 https://www.yumin66.com/book/5q5n8r/
 - 青城玩家明明超强却过分谨慎 https://www.yumin66.com/book/5q5n86/
 - 渡鬼 https://www.yumin66.com/book/5q5n7h/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.yumin66.com/book/5q5n74/
+- 我不是正夫吗？ https://www.yumin66.com/book/5q5n61/
 - [封神]圣人生欲 https://www.yumin66.com/book/5q5n5t/
 - 你，后室管理员 https://www.yumin66.com/book/5q5n5l/
 - 朕看上的少年是侠女 https://www.yumin66.com/book/5q5n5a/
@@ -335,7 +337,6 @@
 - 银发死鱼眼也要打排球 https://www.yumin66.com/book/ilc1n/
 - [全职高手]问就是没钱 https://www.yumin66.com/book/ilbut/
 - 豪门狗血文里的天才后妈 https://www.yumin66.com/book/ilbu2/
-- 冷傲上司绑定娇妻系统后 https://www.yumin66.com/book/ilbmd/
 - 被离婚后嫁给了年代文大佬[穿书] https://www.yumin66.com/book/ilbk1/
 - 贵族学院F4中的第四人 https://www.yumin66.com/book/ilbi7/
 - 女帝起家前录 https://www.yumin66.com/book/ilbgl/

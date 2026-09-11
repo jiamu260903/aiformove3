@@ -1,7 +1,7 @@
 
 # 读者电子书-全本TXT小说免费下载,最新全集小说阅读
 
-更新时间：2026-09-09 03:28:29
+更新时间：2026-09-10 03:28:46
 
 读者电子书提供全本TXT小说下载及完整版电子书下载服务，涵盖各类最新最全的小说资源，支持手机等多终端阅读。每日更新，满足您的阅读需求。 https://www.duzhe368.com
 
@@ -30,6 +30,7 @@
 - 渣攻他疯了［快穿］ https://www.duzhe368.com/book/3hfv1p3/
 - [足球]番外乐子集 https://www.duzhe368.com/book/3hfv1l7/
 - 我超凶的！[快穿] https://www.duzhe368.com/book/3hfuvqk/
+- 痴情女配开始放手了（快穿） https://www.duzhe368.com/book/3hfuv1o/
 - 渡鬼 https://www.duzhe368.com/book/3hfuv0d/
 - 我比反派先崩坏[快穿] https://www.duzhe368.com/book/3hfuuvf/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.duzhe368.com/book/3hfuuu3/
@@ -57,6 +58,7 @@
 - 昭暮 https://www.duzhe368.com/book/3hfu3i1/
 - 朕看上的少年是侠女 https://www.duzhe368.com/book/3hfu08j/
 - 你，后室管理员 https://www.duzhe368.com/book/3hfu04u/
+- 我不是正夫吗？ https://www.duzhe368.com/book/3hfu044/
 - 高调装神，猥琐发育 https://www.duzhe368.com/book/3hftp55/
 - [足球]葡萄牙世界杯if线 https://www.duzhe368.com/book/3hfti3v/
 - 渣过我的主角全都重生了[快穿] https://www.duzhe368.com/book/3hfthuq/
@@ -318,7 +320,6 @@
 - 正常人成为虫母后沦陷修罗场 https://www.duzhe368.com/book/3hfs2lf/
 - 银发死鱼眼也要打排球 https://www.duzhe368.com/book/3hfs2js/
 - 善逸拒绝成为咒术师 https://www.duzhe368.com/book/3hfs2cm/
-- 冷傲上司绑定娇妻系统后 https://www.duzhe368.com/book/3hfs291/
 - [足球]能不能好好模拟游戏 https://www.duzhe368.com/book/3hfs260/
 - 白月光拒绝拯救反派 https://www.duzhe368.com/book/3hfs23i/
 - 身为宇智波的你，召唤出了千手家的老爷爷 https://www.duzhe368.com/book/3hfs225/
@@ -413,7 +414,6 @@
 - 司寝宫女 https://www.duzhe368.com/book/3hfrqqf/
 - 吐槽役审神者会爆改幕后大boss吗 https://www.duzhe368.com/book/3hfrnqb/
 - 求生游戏：当邪神成为生活玩家后 https://www.duzhe368.com/book/3hfrn46/
-- 刀子精手心的人偶崽崽 https://www.duzhe368.com/book/3hfrmkr/
 - 我最讨厌打球了！ https://www.duzhe368.com/book/3hfrl1v/
 - 幼崽假少爷选择回归寒门 https://www.duzhe368.com/book/3hfrh8d/
 - [足球]小小鸟堂堂来袭 https://www.duzhe368.com/book/3hfrfn9/

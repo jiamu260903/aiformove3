@@ -1,7 +1,7 @@
 
 # 科幻188文学网-最新章节全文小说免费阅读
 
-更新时间：2026-09-09 03:33:19
+更新时间：2026-09-10 03:33:34
 
 科幻188文学网给广大网友提供最好的小说阅读服务，全站小说均可免费阅读且无任何弹窗干扰。这里是你寻找最新最全小说内容的理想之地。 https://www.kehuan188.com
 
@@ -32,6 +32,7 @@
 - 我超凶的！[快穿] https://www.kehuan188.com/book/56q2u3k/
 - 我比反派先崩坏[快穿] https://www.kehuan188.com/book/56q2ta1/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.kehuan188.com/book/56q2t1j/
+- 痴情女配开始放手了（快穿） https://www.kehuan188.com/book/56q2svh/
 - 渡鬼 https://www.kehuan188.com/book/56q2suv/
 - cos温迪后玩到真崩铁了 https://www.kehuan188.com/book/56q2otk/
 - 我有嘉宾 https://www.kehuan188.com/book/56q2ocv/
@@ -56,6 +57,7 @@
 - 特殊魅力值，已到账 https://www.kehuan188.com/book/56q22qm/
 - 昭暮 https://www.kehuan188.com/book/56q21j8/
 - 你，后室管理员 https://www.kehuan188.com/book/56q1tro/
+- 我不是正夫吗？ https://www.kehuan188.com/book/56q1tia/
 - 朕看上的少年是侠女 https://www.kehuan188.com/book/56q1tgs/
 - 高调装神，猥琐发育 https://www.kehuan188.com/book/56q1mkc/
 - 乱步他哥，但武力值max https://www.kehuan188.com/book/56q1foo/
@@ -305,7 +307,6 @@
 - 关于我想和太宰当一辈子的挚友可是他怎么居然想和我结婚这件事 https://www.kehuan188.com/book/56q01li/
 - 下堂驸马追妻实录 https://www.kehuan188.com/book/56q01kd/
 - 银发死鱼眼也要打排球 https://www.kehuan188.com/book/56q01k0/
-- 冷傲上司绑定娇妻系统后 https://www.kehuan188.com/book/56q01j1/
 - 白月光拒绝拯救反派 https://www.kehuan188.com/book/56q01j0/
 - 破戒[娱乐圈] https://www.kehuan188.com/book/56q01ia/
 - [足球]能不能好好模拟游戏 https://www.kehuan188.com/book/56q01ci/
@@ -413,7 +414,6 @@
 - 癫骨 https://www.kehuan188.com/book/56pvp2n/
 - 吐槽役审神者会爆改幕后大boss吗 https://www.kehuan188.com/book/56pvorm/
 - 求生游戏：当邪神成为生活玩家后 https://www.kehuan188.com/book/56pvld1/
-- 刀子精手心的人偶崽崽 https://www.kehuan188.com/book/56pvl7p/
 - 我最讨厌打球了！ https://www.kehuan188.com/book/56pvjq7/
 - [足球]小小鸟堂堂来袭 https://www.kehuan188.com/book/56pvfuh/
 - 幼崽假少爷选择回归寒门 https://www.kehuan188.com/book/56pve7l/

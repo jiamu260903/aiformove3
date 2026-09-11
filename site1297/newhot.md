@@ -1,7 +1,7 @@
 
 # 笔趣阁_书友最值得收藏的网络小说阅读网_新笔趣阁5200
 
-更新时间：2026-09-09 03:32:12
+更新时间：2026-09-10 03:32:30
 
 笔趣阁是广大书友最值得收藏的网络小说阅读网，新笔趣阁网站收录了当前最火热的网络小说，笔趣阁5200免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。 https://www.kangrunwangye.com
 
@@ -25,9 +25,11 @@
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.kangrunwangye.com/book/1o9mg6m/
 - [综英美]让我统治哥谭！！！ https://www.kangrunwangye.com/book/1o9mg57/
 - 青城玩家明明超强却过分谨慎 https://www.kangrunwangye.com/book/1o9mg56/
+- 痴情女配开始放手了（快穿） https://www.kangrunwangye.com/book/1o9mg4v/
 - 渡鬼 https://www.kangrunwangye.com/book/1o9mg48/
 - 暴君偏头痛 https://www.kangrunwangye.com/book/1o9mg3r/
 - 被四皇错看成小动物后 https://www.kangrunwangye.com/book/1o9mg2b/
+- 我不是正夫吗？ https://www.kangrunwangye.com/book/1o9mg1c/
 - 你，后室管理员 https://www.kangrunwangye.com/book/1o9mg0v/
 - 朕看上的少年是侠女 https://www.kangrunwangye.com/book/1o9mg0u/
 - [封神]圣人生欲 https://www.kangrunwangye.com/book/1o9mg0m/
@@ -340,7 +342,6 @@
 - 瓮中惊春 https://www.kangrunwangye.com/book/5k71gq/
 - 银发死鱼眼也要打排球 https://www.kangrunwangye.com/book/5k71g9/
 - 贵族学院F4中的第四人 https://www.kangrunwangye.com/book/5k71g0/
-- 冷傲上司绑定娇妻系统后 https://www.kangrunwangye.com/book/5k719v/
 - [崩铁]自恋值拉满穿越被水仙了 https://www.kangrunwangye.com/book/5k7180/
 - 穿进忍界后每天迫害黑绝 https://www.kangrunwangye.com/book/5k7179/
 - 您的榜一秦始皇已加入直播间 https://www.kangrunwangye.com/book/5k711s/

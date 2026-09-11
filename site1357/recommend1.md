@@ -1,12 +1,11 @@
 
 # 书香小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-09 03:41:18
+更新时间：2026-09-10 03:41:27
 
 书香小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。 https://www.shuxiang368.com
 
 ## 最新小说
-- 入梦修罗场，但我脸盲 https://www.shuxiang368.com/book/3qko7u1/
 - 怨明月不独照 https://www.shuxiang368.com/book/3qko7tu/
 - 病美人重生日记 https://www.shuxiang368.com/book/3qko7tt/
 - 爱情的肯定句 https://www.shuxiang368.com/book/3qko7ts/
@@ -14,7 +13,7 @@
 - 魔法种田，从退队经营农场开始 https://www.shuxiang368.com/book/3qko7tk/
 - 恐游作精女配求生指南 https://www.shuxiang368.com/book/3qko7ti/
 - 大佬的漂亮老婆回来带崽了[八零] https://www.shuxiang368.com/book/3qko7tf/
-- 人，今晚土拨鼠站岗 https://www.shuxiang368.com/book/3qko7te/
+- 笨蛋土拨鼠站岗日志 https://www.shuxiang368.com/book/3qko7te/
 - 暗恋的价格是三万块 https://www.shuxiang368.com/book/3qko7td/
 - 清穿女回来后[天幕] https://www.shuxiang368.com/book/3qko7t7/
 - 双生子反派的端水抑郁妈[九零] https://www.shuxiang368.com/book/3qko7t5/
@@ -22,7 +21,6 @@
 - [综英美]和亲友群穿哥谭以后 https://www.shuxiang368.com/book/3qko7sp/
 - 好心的俄罗斯人 https://www.shuxiang368.com/book/3qko7sn/
 - 全世界名为爱的恶意 https://www.shuxiang368.com/book/3qko7sm/
-- 欲和离？夫君他目不识丁 https://www.shuxiang368.com/book/3qko7sl/
 - ［综英美］蝙蝠崽？我不是啊！ https://www.shuxiang368.com/book/3qko7sk/
 - 你让魔王组建勇者小队？ https://www.shuxiang368.com/book/3qko7sd/
 - 烈火焚身[巴黎圣母院] https://www.shuxiang368.com/book/3qko7sb/
@@ -74,16 +72,18 @@
 - 起初，我只是想找个冤大头 https://www.shuxiang368.com/book/3qkntir/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.shuxiang368.com/book/3qknrec/
 - 上个鬼班[无限] https://www.shuxiang368.com/book/3qknn06/
+- 限制文女王[快穿] https://www.shuxiang368.com/book/3qknhcu/
 - 九零重组小家庭 https://www.shuxiang368.com/book/3qkng6j/
 - 让暴君Alpha怀崽后 https://www.shuxiang368.com/book/3qknfnc/
 - [足球]足坛人生模拟器 https://www.shuxiang368.com/book/3qknf6e/
+- 直播忏悔室，吃瓜养宠圈 https://www.shuxiang368.com/book/3qkn9bb/
 - 在卷王和废物之间选择做吉祥物 https://www.shuxiang368.com/book/3qkn593/
 - 从维多利亚时代开始 https://www.shuxiang368.com/book/3qkn1rp/
 - 昭暮 https://www.shuxiang368.com/book/3qkmvvc/
 - 十九世纪贵族厨房（美食） https://www.shuxiang368.com/book/3qkms3b/
 - 原配夫人 https://www.shuxiang368.com/book/3qkms0b/
+- 恶犬品德 https://www.shuxiang368.com/book/3qkmrtc/
 - 始乱终弃清冷首辅后 https://www.shuxiang368.com/book/3qkmrt0/
-- 我只梦你一页 https://www.shuxiang368.com/book/3qkml1c/
 - 高调装神，猥琐发育 https://www.shuxiang368.com/book/3qkmkum/
 - 完蛋！被恨孕男包围了！ https://www.shuxiang368.com/book/3qkmkrt/
 - 食明 https://www.shuxiang368.com/book/3qkmj1u/
@@ -99,7 +99,6 @@
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.shuxiang368.com/book/3qklraj/
 - 沈助理又在隐藏他的超能力 https://www.shuxiang368.com/book/3qklitk/
 - 死对头又在挑衅我 https://www.shuxiang368.com/book/3qkliqk/
-- 在民俗惊悚片被诸神庇护 https://www.shuxiang368.com/book/3qkli4g/
 - 韩团绿卡不想忍了 https://www.shuxiang368.com/book/3qklgvn/
 - 被天使之王骗婚后[诡秘之主] https://www.shuxiang368.com/book/3qklfqg/
 - 咦？我爸爸复活啦 https://www.shuxiang368.com/book/3qkle9o/
@@ -123,6 +122,7 @@
 - 我187了，你敢见我吗？ https://www.shuxiang368.com/book/3qkkr73/
 - 和姐姐的前女友欢愉后 https://www.shuxiang368.com/book/3qkknbr/
 - 在重生文里考科举 https://www.shuxiang368.com/book/3qkkgin/
+- 和小肥啾的海岛经营游戏 https://www.shuxiang368.com/book/3qkkg4k/
 - 大唐守军家属 https://www.shuxiang368.com/book/3qkkfsn/
 - 朕也要被强制吗？ https://www.shuxiang368.com/book/3qkkf40/
 - [足球]小小鸟堂堂来袭 https://www.shuxiang368.com/book/3qkkcov/
@@ -130,7 +130,6 @@
 - 妻主风流（女尊） https://www.shuxiang368.com/book/3qkkb70/
 - 心动嫌疑人 https://www.shuxiang368.com/book/3qkka7m/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.shuxiang368.com/book/3qkk9t1/
-- 这个位面归我了！[经营] https://www.shuxiang368.com/book/3qkk7p0/
 - 带清冷女主回乡养螃蟹[种田] https://www.shuxiang368.com/book/3qkk68n/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.shuxiang368.com/book/3qkk5n5/
 - 清冷丞相怀了死对头的崽 https://www.shuxiang368.com/book/3qkk52t/
@@ -140,7 +139,6 @@
 - 被糟蹋的老实人决定反击 https://www.shuxiang368.com/book/3qkjvtq/
 - 假意逢承 https://www.shuxiang368.com/book/3qkjvfu/
 - 趁她之危 https://www.shuxiang368.com/book/3qkjv7v/
-- 恶犬攻绑定上司的乖狗系统 https://www.shuxiang368.com/book/3qkjr22/
 - 权宋一只统 https://www.shuxiang368.com/book/3qkjngk/
 - 爱好和平但狂拆机甲 https://www.shuxiang368.com/book/3qkjj5h/
 - 五十年代港城日常 https://www.shuxiang368.com/book/3qkimo7/
@@ -159,6 +157,7 @@
 - 天幕今天也在直播我搞基建 https://www.shuxiang368.com/book/3qkikrk/
 - 日化人生[科研] https://www.shuxiang368.com/book/3qkikdh/
 - 大瑛弟国 https://www.shuxiang368.com/book/3qkik16/
+- 千禧年，拆迁分了十栋楼！ https://www.shuxiang368.com/book/3qkijvl/
 - 六零之成了卷王的妹妹 https://www.shuxiang368.com/book/3qkijr5/
 - 成为养成系练习生后 https://www.shuxiang368.com/book/3qkijib/
 ## 相关内容

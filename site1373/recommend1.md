@@ -1,12 +1,11 @@
 
 # 泡泡中文书社-无弹窗书友最值得收藏的网络小说阅读网
 
-更新时间：2026-09-09 03:41:03
+更新时间：2026-09-10 03:41:12
 
 泡泡中文书社是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。 https://www.shushe818.com
 
 ## 最新小说
-- 入梦修罗场，但我脸盲 https://www.shushe818.com/book/29bc5hl/
 - 双生子反派的端水抑郁妈[九零] https://www.shushe818.com/book/29bc5hi/
 - 病美人重生日记 https://www.shushe818.com/book/29bc5hh/
 - 烈火焚身[巴黎圣母院] https://www.shushe818.com/book/29bc5he/
@@ -48,7 +47,7 @@
 - 恶毒男配只想躺平 https://www.shushe818.com/book/29bc5ec/
 - SSS级异种都是我前任 https://www.shushe818.com/book/29bc5eb/
 - 谁说踢球就不能成为名侦探[足球] https://www.shushe818.com/book/29bc5e9/
-- 人，今晚土拨鼠站岗 https://www.shushe818.com/book/29bc5e7/
+- 笨蛋土拨鼠站岗日志 https://www.shushe818.com/book/29bc5e7/
 - 末世八年春，游戏降临 https://www.shushe818.com/book/29bc5e2/
 - 爱情的肯定句 https://www.shushe818.com/book/29bc5e1/
 - 仙尊心尖宠，但被魔尊抢了 https://www.shushe818.com/book/29bc5dj/
@@ -62,7 +61,6 @@
 - 康熙宠妃日常 https://www.shushe818.com/book/29bc5d0/
 - 你让魔王组建勇者小队？ https://www.shushe818.com/book/29bc5cu/
 - [足球]雏鸟 https://www.shushe818.com/book/29bc5ct/
-- 欲和离？夫君他目不识丁 https://www.shushe818.com/book/29bc5cr/
 - [原神]魔法使恋爱指南 https://www.shushe818.com/book/29bc5co/
 - 占有欲Daddy是我老公？ https://www.shushe818.com/book/29bc5cn/
 - 大佬的漂亮老婆回来带崽了[八零] https://www.shushe818.com/book/29bc5cm/
@@ -74,17 +72,19 @@
 - 起初，我只是想找个冤大头 https://www.shushe818.com/book/29bbr5m/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.shushe818.com/book/29bbp1m/
 - 上个鬼班[无限] https://www.shushe818.com/book/29bbkjc/
+- 限制文女王[快穿] https://www.shushe818.com/book/29bbf0b/
 - 九零重组小家庭 https://www.shushe818.com/book/29bbdst/
 - 让暴君Alpha怀崽后 https://www.shushe818.com/book/29bbd85/
 - [足球]足坛人生模拟器 https://www.shushe818.com/book/29bbcvo/
+- 直播忏悔室，吃瓜养宠圈 https://www.shushe818.com/book/29bb70v/
 - 在卷王和废物之间选择做吉祥物 https://www.shushe818.com/book/29bb2nn/
 - 从维多利亚时代开始 https://www.shushe818.com/book/29bavg3/
 - 昭暮 https://www.shushe818.com/book/29batkp/
 - 十九世纪贵族厨房（美食） https://www.shushe818.com/book/29bapn3/
 - 始乱终弃清冷首辅后 https://www.shushe818.com/book/29bapjo/
 - 原配夫人 https://www.shushe818.com/book/29bapj9/
+- 恶犬品德 https://www.shushe818.com/book/29bapgs/
 - 高调装神，猥琐发育 https://www.shushe818.com/book/29baim3/
-- 我只梦你一页 https://www.shushe818.com/book/29baikl/
 - 完蛋！被恨孕男包围了！ https://www.shushe818.com/book/29baihm/
 - 食明 https://www.shushe818.com/book/29bagid/
 - 诡话第一boss https://www.shushe818.com/book/29bad5v/
@@ -97,7 +97,6 @@
 - 死遁的亡夫们都回来了 https://www.shushe818.com/book/29b9qkd/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.shushe818.com/book/29b9op3/
 - 我骗家里的钱养你啊 https://www.shushe818.com/book/29b9ob7/
-- 在民俗惊悚片被诸神庇护 https://www.shushe818.com/book/29b9hvu/
 - 死对头又在挑衅我 https://www.shushe818.com/book/29b9h08/
 - 沈助理又在隐藏他的超能力 https://www.shushe818.com/book/29b9fq5/
 - 被天使之王骗婚后[诡秘之主] https://www.shushe818.com/book/29b9f3v/
@@ -122,6 +121,7 @@
 - 在魔法贵族学院当白月光 https://www.shushe818.com/book/29b8qqs/
 - 我187了，你敢见我吗？ https://www.shushe818.com/book/29b8oi7/
 - 和姐姐的前女友欢愉后 https://www.shushe818.com/book/29b8n76/
+- 和小肥啾的海岛经营游戏 https://www.shushe818.com/book/29b8eac/
 - 大唐守军家属 https://www.shushe818.com/book/29b8dn7/
 - 在重生文里考科举 https://www.shushe818.com/book/29b8dlh/
 - 朕也要被强制吗？ https://www.shushe818.com/book/29b8dcn/
@@ -130,7 +130,6 @@
 - 妻主风流（女尊） https://www.shushe818.com/book/29b8792/
 - 心动嫌疑人 https://www.shushe818.com/book/29b875q/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.shushe818.com/book/29b86lo/
-- 这个位面归我了！[经营] https://www.shushe818.com/book/29b843b/
 - 带清冷女主回乡养螃蟹[种田] https://www.shushe818.com/book/29b840r/
 - 村霸非要入赘受气包 https://www.shushe818.com/book/29b8376/
 - 清冷丞相怀了死对头的崽 https://www.shushe818.com/book/29b81r4/
@@ -140,7 +139,6 @@
 - 和山神搭伙开农场的日子 https://www.shushe818.com/book/29b7tl0/
 - 假意逢承 https://www.shushe818.com/book/29b7s7l/
 - 趁她之危 https://www.shushe818.com/book/29b7rsu/
-- 恶犬攻绑定上司的乖狗系统 https://www.shushe818.com/book/29b7q7v/
 - 权宋一只统 https://www.shushe818.com/book/29b7njh/
 - 爱好和平但狂拆机甲 https://www.shushe818.com/book/29b7geb/
 - [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.shushe818.com/book/29b6kei/
@@ -154,6 +152,7 @@
 - 95美国贵族高中模拟 https://www.shushe818.com/book/29b6iu2/
 - 巨物致富：回乡开钓场 https://www.shushe818.com/book/29b6irb/
 - [娱乐圈]过分美丽的她 https://www.shushe818.com/book/29b6ii6/
+- 千禧年，拆迁分了十栋楼！ https://www.shushe818.com/book/29b6ifk/
 - 我有一座安全城 https://www.shushe818.com/book/29b6idf/
 - 我是唯一地上神国 https://www.shushe818.com/book/29b6iah/
 - 成为养成系练习生后 https://www.shushe818.com/book/29b6i98/

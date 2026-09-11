@@ -1,7 +1,7 @@
 
 # 佚名奇书小说 - 免费更新的小说阅读网站
 
-更新时间：2026-09-09 03:47:54
+更新时间：2026-09-10 03:48:17
 
 佚名奇书小说提供全网各类热门小说在线阅读服务，支持免费观看。这里汇集了丰富的小说资源，包括但不限于都市、玄幻、武侠等多种类型，并且保证章节更新及时，页面设计清爽无广告干扰，是广大书友不可多得的好去处。 https://www.yimingeduai.com
 
@@ -37,6 +37,7 @@
 - 昭暮 https://www.yimingeduai.com/book/6admrqp/
 - 渡鬼 https://www.yimingeduai.com/book/6admm0s/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.yimingeduai.com/book/6admlrd/
+- 痴情女配开始放手了（快穿） https://www.yimingeduai.com/book/6admlr4/
 - 骑！就要骑在宿敌头上作威作福 https://www.yimingeduai.com/book/6admdj6/
 - 微胖才是天花板 https://www.yimingeduai.com/book/6admdfq/
 - 当甚尔转生成继国 https://www.yimingeduai.com/book/6admdcm/
@@ -185,7 +186,6 @@
 - 表白现场翻车后 https://www.yimingeduai.com/book/6adlcvp/
 - 虫族治愈师，但恐虫 https://www.yimingeduai.com/book/6adlcvo/
 - 您的榜一秦始皇已加入直播间 https://www.yimingeduai.com/book/6adlcg8/
-- 冷傲上司绑定娇妻系统后 https://www.yimingeduai.com/book/6adlcf8/
 - 当小狗炮灰分手后 https://www.yimingeduai.com/book/6adlcef/
 - [足球]职业模拟器但足坛 https://www.yimingeduai.com/book/6adlc88/
 - 龙傲天未婚妻不退婚了 https://www.yimingeduai.com/book/6adlc82/
@@ -374,7 +374,6 @@
 - 诡异书店打工实录 https://www.yimingeduai.com/book/6adjr0u/
 - 禁止对人气角色上限制级mod！！！ https://www.yimingeduai.com/book/6adjqqu/
 - [清]给太子当姐姐那些年 https://www.yimingeduai.com/book/6adjqq1/
-- 刀子精手心的人偶崽崽 https://www.yimingeduai.com/book/6adjqkb/
 - 求生游戏：当邪神成为生活玩家后 https://www.yimingeduai.com/book/6adjqjh/
 - 超忆症大佬在古代破案 https://www.yimingeduai.com/book/6adjqaq/
 - 在重男兄弟间夹缝求生 https://www.yimingeduai.com/book/6adjq9h/
@@ -442,6 +441,7 @@
 - 丧尸老婆喂养日记 https://www.yimingeduai.com/book/6adj7kf/
 - 高调装神，猥琐发育 https://www.yimingeduai.com/book/6adi75l/
 - 你，后室管理员 https://www.yimingeduai.com/book/6adi752/
+- 我不是正夫吗？ https://www.yimingeduai.com/book/6adi6v0/
 - 被四皇错看成小动物后 https://www.yimingeduai.com/book/6adi6s3/
 - [封神]圣人生欲 https://www.yimingeduai.com/book/6adi68f/
 - 朕看上的少年是侠女 https://www.yimingeduai.com/book/6adi677/

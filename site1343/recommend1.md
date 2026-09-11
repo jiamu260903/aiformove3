@@ -1,7 +1,7 @@
 
 # 左叶小说网 - 书友最值得收藏的小说阅读平台
 
-更新时间：2026-09-09 03:37:06
+更新时间：2026-09-10 03:37:16
 
 左叶小说网为读者提供了一个丰富多样的小说阅读体验，汇集了各类热门、经典以及新作小说资源，是书友们寻找好书的理想之地。 https://www.pusytgp.com
 
@@ -56,14 +56,13 @@
 - 大佬的漂亮老婆回来带崽了[八零] https://www.pusytgp.com/book/7pbovdm/
 - 恶毒男配只想躺平 https://www.pusytgp.com/book/7pbovdk/
 - 在中世纪做奴隶 https://www.pusytgp.com/book/7pbovdj/
-- 欲和离？夫君他目不识丁 https://www.pusytgp.com/book/7pbovdi/
 - 魔咒请说普通话[西幻] https://www.pusytgp.com/book/7pbovdh/
 - 烈火焚身[巴黎圣母院] https://www.pusytgp.com/book/7pbovdg/
 - 魔法种田，从退队经营农场开始 https://www.pusytgp.com/book/7pbovdf/
 - 谁都不爱的和亲公主 https://www.pusytgp.com/book/7pbovdc/
 - 康熙宠妃日常 https://www.pusytgp.com/book/7pbovd9/
 - 欲加之罪 https://www.pusytgp.com/book/7pbovd8/
-- 人，今晚土拨鼠站岗 https://www.pusytgp.com/book/7pbovd6/
+- 笨蛋土拨鼠站岗日志 https://www.pusytgp.com/book/7pbovd6/
 - 等我吃腻了再倒闭可以吗 https://www.pusytgp.com/book/7pbovd5/
 - 正是冬雪沸腾时 https://www.pusytgp.com/book/7pbovd3/
 - [综英美]哥谭市民，在线抽卡 https://www.pusytgp.com/book/7pbovd1/
@@ -129,7 +128,6 @@
 - 妻主风流（女尊） https://www.pusytgp.com/book/7pbl249/
 - 韩团绿卡不想忍了 https://www.pusytgp.com/book/7pbl0ke/
 - 心动嫌疑人 https://www.pusytgp.com/book/7pbkvbr/
-- 这个位面归我了！[经营] https://www.pusytgp.com/book/7pbku9g/
 - 死亡悖论[无限流] https://www.pusytgp.com/book/7pbktub/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.pusytgp.com/book/7pbksp9/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.pusytgp.com/book/7pbkrq6/

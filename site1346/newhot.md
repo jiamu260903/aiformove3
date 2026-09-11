@@ -1,7 +1,7 @@
 
 # 奇幻凤影台小说-都市玄幻言情仙侠免费小说在线阅读
 
-更新时间：2026-09-09 03:37:36
+更新时间：2026-09-10 03:37:46
 
 奇幻凤影台小说提供都市玄幻、言情仙侠等类型的小说在线免费阅读服务。让您的通勤路上不再无聊，无论是日常出行还是夜晚静谧时刻，总有一本好书陪伴您度过美好时光。 https://www.qihuan868.com
 
@@ -30,6 +30,7 @@
 - 渣攻他疯了［快穿］ https://www.qihuan868.com/book/42idjvk/
 - [足球]番外乐子集 https://www.qihuan868.com/book/42idjta/
 - 我超凶的！[快穿] https://www.qihuan868.com/book/42idi2p/
+- 痴情女配开始放手了（快穿） https://www.qihuan868.com/book/42idhas/
 - 我比反派先崩坏[快穿] https://www.qihuan868.com/book/42idhaj/
 - 渡鬼 https://www.qihuan868.com/book/42idh9f/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.qihuan868.com/book/42idh8v/
@@ -57,6 +58,7 @@
 - 昭暮 https://www.qihuan868.com/book/42iclq4/
 - 朕看上的少年是侠女 https://www.qihuan868.com/book/42icimu/
 - 你，后室管理员 https://www.qihuan868.com/book/42icik3/
+- 我不是正夫吗？ https://www.qihuan868.com/book/42icih5/
 - 高调装神，猥琐发育 https://www.qihuan868.com/book/42icbec/
 - 我在无限游戏里假扮NPC[无限流] https://www.qihuan868.com/book/42ic4fs/
 - 渣过我的主角全都重生了[快穿] https://www.qihuan868.com/book/42ic4am/
@@ -314,7 +316,6 @@
 - 银发死鱼眼也要打排球 https://www.qihuan868.com/book/42iakh4/
 - 破戒[娱乐圈] https://www.qihuan868.com/book/42iakgn/
 - 瓮中惊春 https://www.qihuan868.com/book/42iakg0/
-- 冷傲上司绑定娇妻系统后 https://www.qihuan868.com/book/42iakb6/
 - 白月光拒绝拯救反派 https://www.qihuan868.com/book/42iakac/
 - 作家与读者 https://www.qihuan868.com/book/42iaka5/
 - 下堂驸马追妻实录 https://www.qihuan868.com/book/42iak8i/
@@ -413,7 +414,6 @@
 - 直播捏玩具被榜一大哥撅了 https://www.qihuan868.com/book/42iacua/
 - 吐槽役审神者会爆改幕后大boss吗 https://www.qihuan868.com/book/42iaa0u/
 - 求生游戏：当邪神成为生活玩家后 https://www.qihuan868.com/book/42ia9jp/
-- 刀子精手心的人偶崽崽 https://www.qihuan868.com/book/42ia97g/
 - 我最讨厌打球了！ https://www.qihuan868.com/book/42ia8mr/
 - [足球]小小鸟堂堂来袭 https://www.qihuan868.com/book/42ia3i0/
 - 幼崽假少爷选择回归寒门 https://www.qihuan868.com/book/42ia2um/

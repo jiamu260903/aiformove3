@@ -1,7 +1,7 @@
 
 # 书旗全本小说网 - 书旗小说排行榜, 已完结版书旗小说推荐
 
-更新时间：2026-09-09 03:40:30
+更新时间：2026-09-10 03:40:39
 
 书旗全本小说网提供最新最全最热门的小说作品排行，包括但不限于已完结版玄幻小说排行榜等。本站汇集了海量网络免费小说资源供您选择。 https://www.shuqi687.com
 
@@ -23,6 +23,7 @@
 - [综英美]和亲友群穿哥谭以后 https://www.shuqi687.com/book/8vsmje7/
 - 渡鬼 https://www.shuqi687.com/book/8vsmjdi/
 - 暴君偏头痛 https://www.shuqi687.com/book/8vsmjda/
+- 痴情女配开始放手了（快穿） https://www.shuqi687.com/book/8vsmjd1/
 - 青城玩家明明超强却过分谨慎 https://www.shuqi687.com/book/8vsmjcj/
 - [综英美]让我统治哥谭！！！ https://www.shuqi687.com/book/8vsmjai/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.shuqi687.com/book/8vsmj9u/
@@ -30,6 +31,7 @@
 - 你，后室管理员 https://www.shuqi687.com/book/8vsmj82/
 - 朕看上的少年是侠女 https://www.shuqi687.com/book/8vsmj78/
 - 被四皇错看成小动物后 https://www.shuqi687.com/book/8vsmj6r/
+- 我不是正夫吗？ https://www.shuqi687.com/book/8vsmj6i/
 - [封神]圣人生欲 https://www.shuqi687.com/book/8vsmj6h/
 - 高调装神，猥琐发育 https://www.shuqi687.com/book/8vsmj6e/
 - 魔物堆里的人类幼崽 https://www.shuqi687.com/book/8vsmj4r/
@@ -343,7 +345,6 @@
 - 从伟大航道到黑暗大陆 https://www.shuqi687.com/book/spa7sn/
 - 邪神祂总被觊觎 https://www.shuqi687.com/book/spa7rs/
 - 汉武帝戾太子什么含金量 https://www.shuqi687.com/book/spa7na/
-- 冷傲上司绑定娇妻系统后 https://www.shuqi687.com/book/spa7k7/
 - 丧尸闻了闻你的恋爱脑 https://www.shuqi687.com/book/spa7ir/
 - 破戒[娱乐圈] https://www.shuqi687.com/book/spa7f7/
 - 您的榜一秦始皇已加入直播间 https://www.shuqi687.com/book/spa7c0/

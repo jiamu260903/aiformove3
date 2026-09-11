@@ -1,7 +1,7 @@
 
 # 武侠文学网 - 值得收藏的小说阅读平台
 
-更新时间：2026-09-09 03:45:40
+更新时间：2026-09-10 03:45:58
 
 武侠文学网为您提供丰富多样的小说资源，在这里您可以找到最新最热门的小说作品。无论是经典文学还是现代流行小说，都是您值得收藏的阅读选择。 https://www.wuxia988.com
 
@@ -32,6 +32,7 @@
 - 我超凶的！[快穿] https://www.wuxia988.com/book/1ms2tbu/
 - 我比反派先崩坏[快穿] https://www.wuxia988.com/book/1ms2sio/
 - 渡鬼 https://www.wuxia988.com/book/1ms2sab/
+- 痴情女配开始放手了（快穿） https://www.wuxia988.com/book/1ms2s9m/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.wuxia988.com/book/1ms2s5j/
 - cos温迪后玩到真崩铁了 https://www.wuxia988.com/book/1ms2o4e/
 - 我有嘉宾 https://www.wuxia988.com/book/1ms2njr/
@@ -56,6 +57,7 @@
 - 特殊魅力值，已到账 https://www.wuxia988.com/book/1ms2200/
 - 昭暮 https://www.wuxia988.com/book/1ms20mv/
 - 你，后室管理员 https://www.wuxia988.com/book/1ms1stu/
+- 我不是正夫吗？ https://www.wuxia988.com/book/1ms1sor/
 - 朕看上的少年是侠女 https://www.wuxia988.com/book/1ms1sop/
 - 高调装神，猥琐发育 https://www.wuxia988.com/book/1ms1lnv/
 - 我在无限游戏里假扮NPC[无限流] https://www.wuxia988.com/book/1ms1fog/
@@ -319,7 +321,6 @@
 - 正常人成为虫母后沦陷修罗场 https://www.wuxia988.com/book/1ms002s/
 - 书穿男主给反派卖萌苟命 https://www.wuxia988.com/book/1ms002d/
 - 关于我想和太宰当一辈子的挚友可是他怎么居然想和我结婚这件事 https://www.wuxia988.com/book/1mrvvui/
-- 冷傲上司绑定娇妻系统后 https://www.wuxia988.com/book/1mrvvtu/
 - 师妹为何要如此 https://www.wuxia988.com/book/1mrvvs3/
 - 当烫男人走错了片场 https://www.wuxia988.com/book/1mrvvr6/
 - [综武侠]有间民宿 https://www.wuxia988.com/book/1mrvvp7/
@@ -412,7 +413,6 @@
 - 咒术师，但队友是侦探 https://www.wuxia988.com/book/1mrvo99/
 - 末世山居日常 https://www.wuxia988.com/book/1mrvo8d/
 - 吐槽役审神者会爆改幕后大boss吗 https://www.wuxia988.com/book/1mrvngo/
-- 刀子精手心的人偶崽崽 https://www.wuxia988.com/book/1mrvkhc/
 - 求生游戏：当邪神成为生活玩家后 https://www.wuxia988.com/book/1mrvjpv/
 - 我最讨厌打球了！ https://www.wuxia988.com/book/1mrvio2/
 - [足球]小小鸟堂堂来袭 https://www.wuxia988.com/book/1mrvec2/

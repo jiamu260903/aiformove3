@@ -1,7 +1,7 @@
 
 # 科幻188文学网-最新章节全文小说免费阅读
 
-更新时间：2026-09-09 03:33:19
+更新时间：2026-09-10 03:33:34
 
 科幻188文学网给广大网友提供最好的小说阅读服务，全站小说均可免费阅读且无任何弹窗干扰。这里是你寻找最新最全小说内容的理想之地。 https://www.kehuan188.com
 
@@ -36,11 +36,10 @@
 - 万人嫌从末世回来了 https://www.kehuan188.com/book/56q39ft/
 - 恐游里的邻居们[万人迷] https://www.kehuan188.com/book/56q39fs/
 - 强取师尊后 https://www.kehuan188.com/book/56q39fq/
-- 欲和离？夫君他目不识丁 https://www.kehuan188.com/book/56q39fp/
 - 乖乖女的杂货铺[八零] https://www.kehuan188.com/book/56q39fo/
 - 八零法医，带全家致富 https://www.kehuan188.com/book/56q39fl/
 - 从1951开始 https://www.kehuan188.com/book/56q39fi/
-- 人，今晚土拨鼠站岗 https://www.kehuan188.com/book/56q39fh/
+- 笨蛋土拨鼠站岗日志 https://www.kehuan188.com/book/56q39fh/
 - 暗恋的价格是三万块 https://www.kehuan188.com/book/56q39fc/
 - 你让魔王组建勇者小队？ https://www.kehuan188.com/book/56q39fa/
 - 清穿女回来后[天幕] https://www.kehuan188.com/book/56q39f3/
@@ -130,7 +129,6 @@
 - 死亡悖论[无限流] https://www.kehuan188.com/book/56pvbp0/
 - 妻主风流（女尊） https://www.kehuan188.com/book/56pvamk/
 - 心动嫌疑人 https://www.kehuan188.com/book/56pvaja/
-- 这个位面归我了！[经营] https://www.kehuan188.com/book/56pva44/
 - 带清冷女主回乡养螃蟹[种田] https://www.kehuan188.com/book/56pv9kb/
 - [崩铁]请给玩家一个准确的血条！ https://www.kehuan188.com/book/56pv6t6/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.kehuan188.com/book/56pv5l3/

@@ -1,11 +1,12 @@
 
 # 随梦小说网 - 书友最值得收藏的网络小说阅读平台
 
-更新时间：2026-09-09 03:27:59
+更新时间：2026-09-10 03:28:15
 
 随梦小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。 https://www.cq082.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.cq082.com/book/1sdfha3/
 - 我只想上京赶考啊[聊斋] https://www.cq082.com/book/1sdfh9s/
 - 病美人重生日记 https://www.cq082.com/book/1sdfh9q/
 - 恐游里的邻居们[万人迷] https://www.cq082.com/book/1sdfh9m/
@@ -19,7 +20,7 @@
 - 全世界名为爱的恶意 https://www.cq082.com/book/1sdfh93/
 - 烈火焚身[巴黎圣母院] https://www.cq082.com/book/1sdfh8v/
 - 在中世纪做奴隶 https://www.cq082.com/book/1sdfh8t/
-- 人，今晚土拨鼠站岗 https://www.cq082.com/book/1sdfh8r/
+- 笨蛋土拨鼠站岗日志 https://www.cq082.com/book/1sdfh8r/
 - 万人嫌从末世回来了 https://www.cq082.com/book/1sdfh8q/
 - 乖乖女的杂货铺[八零] https://www.cq082.com/book/1sdfh8p/
 - 谁都不爱的和亲公主 https://www.cq082.com/book/1sdfh8n/
@@ -52,7 +53,6 @@
 - ［西幻］RPG就不要谈恋爱了吧！ https://www.cq082.com/book/1sdfh6l/
 - 魔尊闭关十年连生十一子？！ https://www.cq082.com/book/1sdfh6g/
 - 大佬的漂亮老婆回来带崽了[八零] https://www.cq082.com/book/1sdfh6e/
-- 欲和离？夫君他目不识丁 https://www.cq082.com/book/1sdfh6c/
 - 炮灰的海外亲戚回国啦！ https://www.cq082.com/book/1sdfh6b/
 - [崩铁]请给玩家一个准确的血条！ https://www.cq082.com/book/1sdfh6a/
 - 强取师尊后 https://www.cq082.com/book/1sdfh69/
@@ -75,10 +75,10 @@
 - 从1951开始 https://www.cq082.com/book/1sdfh4q/
 - [足球]拥有分身系统的我靠踢足球建设国家 https://www.cq082.com/book/1sdfauo/
 - 上个鬼班[无限] https://www.cq082.com/book/1sdf10f/
-- 星际团宠小人鱼 https://www.cq082.com/book/1sdf00k/
 - 原配夫人 https://www.cq082.com/book/1sdevv8/
 - 始乱终弃清冷首辅后 https://www.cq082.com/book/1sdevu2/
 - 让暴君Alpha怀崽后 https://www.cq082.com/book/1sdeufd/
+- 我只梦你一页 https://www.cq082.com/book/1sdesup/
 - 九零重组小家庭 https://www.cq082.com/book/1sderio/
 - [足球]足坛人生模拟器 https://www.cq082.com/book/1sdeopn/
 - 趁她之危 https://www.cq082.com/book/1sdeinv/
@@ -94,10 +94,8 @@
 - 起初，我只是想找个冤大头 https://www.cq082.com/book/1sdditt/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.cq082.com/book/1sddfn1/
 - [足球]我的游戏存档成真了？！ https://www.cq082.com/book/1sddf6s/
-- 仙门透明人被迫万人迷 https://www.cq082.com/book/1sdddd2/
 - 直男咒术师的限制级游戏 https://www.cq082.com/book/1sddd6r/
 - 让你们无剧本可走（快穿） https://www.cq082.com/book/1sddct6/
-- 摄政王家的咸鱼夫郎 https://www.cq082.com/book/1sddbhh/
 - 我与龙傲天寿命共享 https://www.cq082.com/book/1sdd9h3/
 - 如何正确哄睡暴君 https://www.cq082.com/book/1sdd5hl/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.cq082.com/book/1sdctb3/
@@ -107,6 +105,7 @@
 - 从童星开始杀穿港娱 https://www.cq082.com/book/1sdcjai/
 - 在民俗惊悚片被诸神庇护 https://www.cq082.com/book/1sdcins/
 - 我有一座地下城 https://www.cq082.com/book/1sdci6c/
+- 月亮上的大筒木 https://www.cq082.com/book/1sdcg8l/
 - 漂亮女配是万人迷［快穿］ https://www.cq082.com/book/1sdcfej/
 - 开局绑定郭奉孝，谋定三国风云 https://www.cq082.com/book/1sdccee/
 - 同时扮演贵族学院F4和平民校花 https://www.cq082.com/book/1sdcbht/
@@ -129,7 +128,6 @@
 - 妻主风流（女尊） https://www.cq082.com/book/1sdbk8r/
 - 韩团绿卡不想忍了 https://www.cq082.com/book/1sdbjab/
 - 心动嫌疑人 https://www.cq082.com/book/1sdbhea/
-- 这个位面归我了！[经营] https://www.cq082.com/book/1sdbgnp/
 - 死亡悖论[无限流] https://www.cq082.com/book/1sdbfcd/
 - 带清冷女主回乡养螃蟹[种田] https://www.cq082.com/book/1sdbf0l/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.cq082.com/book/1sdbdcr/

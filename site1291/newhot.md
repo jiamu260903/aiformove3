@@ -1,7 +1,7 @@
 
 # 笔趣阁啦 - 免费小说阅读网
 
-更新时间：2026-09-09 03:38:22
+更新时间：2026-09-10 03:38:31
 
 笔趣阁啦为您提供海量免费小说资源，在线畅读各类热门小说及最新章节更新，支持手机电脑等多种设备访问，让阅读更轻松便捷。 https://www.qingyuchun.com
 
@@ -24,11 +24,13 @@
 - 躲避原书剧情五年后 https://www.qingyuchun.com/book/10578je/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.qingyuchun.com/book/10578j9/
 - 渡鬼 https://www.qingyuchun.com/book/10578ib/
+- 痴情女配开始放手了（快穿） https://www.qingyuchun.com/book/10578i2/
 - [综英美]让我统治哥谭！！！ https://www.qingyuchun.com/book/10578hk/
 - 青城玩家明明超强却过分谨慎 https://www.qingyuchun.com/book/10578gv/
 - 暴君偏头痛 https://www.qingyuchun.com/book/10578gl/
 - [封神]圣人生欲 https://www.qingyuchun.com/book/10578eh/
 - 你，后室管理员 https://www.qingyuchun.com/book/10578dr/
+- 我不是正夫吗？ https://www.qingyuchun.com/book/10578df/
 - 被四皇错看成小动物后 https://www.qingyuchun.com/book/10578d8/
 - 朕看上的少年是侠女 https://www.qingyuchun.com/book/10578cr/
 - 高调装神，猥琐发育 https://www.qingyuchun.com/book/10578ce/
@@ -317,7 +319,6 @@
 - 下堂驸马追妻实录 https://www.qingyuchun.com/book/36v5kq/
 - 养个诡异当老婆 https://www.qingyuchun.com/book/36v5c1/
 - 从伟大航道到黑暗大陆 https://www.qingyuchun.com/book/36v59m/
-- 冷傲上司绑定娇妻系统后 https://www.qingyuchun.com/book/36v582/
 - 三岁崽崽带龙王爸爸上综艺爆红 https://www.qingyuchun.com/book/36v50l/
 - 女beta的星际悠闲生活 https://www.qingyuchun.com/book/36v4sc/
 - 误把钓系病美人O娇养后 https://www.qingyuchun.com/book/36v4rl/

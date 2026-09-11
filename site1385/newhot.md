@@ -1,7 +1,7 @@
 
 # 宁波慈绿农垦小说-全本小说最值得收藏的绿色无弹窗免费小说阅读网
 
-更新时间：2026-09-09 03:36:04
+更新时间：2026-09-10 03:36:15
 
 宁波慈绿农垦小说提供全本网文爱好者一个纯净、安全、高质量的免费小说阅读环境，支持最新章节在线阅读，所有内容均为绿色无弹窗且保证无错字。 https://www.nbcxnk.com
 
@@ -51,6 +51,7 @@
 - 欺负人是坏文明 https://www.nbcxnk.com/book/2ss0079/
 - 侦探立于百万生命之上 https://www.nbcxnk.com/book/2srvvr4/
 - 渡鬼 https://www.nbcxnk.com/book/2srvvjg/
+- 痴情女配开始放手了（快穿） https://www.nbcxnk.com/book/2srvvhe/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.nbcxnk.com/book/2srvvda/
 - 特殊魅力值，已到账 https://www.nbcxnk.com/book/2srvv4b/
 - 昭暮 https://www.nbcxnk.com/book/2srvs2p/
@@ -316,7 +317,6 @@
 - 侯府打工人 https://www.nbcxnk.com/book/2srttq9/
 - 我让人生赢家俯首称臣的那些年 https://www.nbcxnk.com/book/2srttpr/
 - 娇婚惯养 https://www.nbcxnk.com/book/2srttpm/
-- 冷傲上司绑定娇妻系统后 https://www.nbcxnk.com/book/2srttpa/
 - 瓮中惊春 https://www.nbcxnk.com/book/2srttoj/
 - 魔尊他邪得发正 https://www.nbcxnk.com/book/2srttng/
 - 关于我想和太宰当一辈子的挚友可是他怎么居然想和我结婚这件事 https://www.nbcxnk.com/book/2srttkf/
@@ -423,7 +423,6 @@
 - 青城玩家明明超强却过分谨慎 https://www.nbcxnk.com/book/2srtkhr/
 - 和室友他爸恋爱后 https://www.nbcxnk.com/book/2srtka7/
 - 矩阵干扰 https://www.nbcxnk.com/book/2srtjti/
-- 刀子精手心的人偶崽崽 https://www.nbcxnk.com/book/2srtim4/
 - 撕毁女配剧本的我被神之子读心了 https://www.nbcxnk.com/book/2srtijd/
 - 欢迎来到重生点 https://www.nbcxnk.com/book/2srtibi/
 - 柯学剧本杀，但恋爱流打法 https://www.nbcxnk.com/book/2srthgr/
@@ -443,6 +442,7 @@
 - 被四皇错看成小动物后 https://www.nbcxnk.com/book/2srrk7l/
 - 高调装神，猥琐发育 https://www.nbcxnk.com/book/2srrj6v/
 - 你，后室管理员 https://www.nbcxnk.com/book/2srrj1p/
+- 我不是正夫吗？ https://www.nbcxnk.com/book/2srrijs/
 - [封神]圣人生欲 https://www.nbcxnk.com/book/2srri6c/
 - 朕看上的少年是侠女 https://www.nbcxnk.com/book/2srrhq3/
 ## 相关内容

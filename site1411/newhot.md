@@ -1,23 +1,109 @@
 
 # 天天书吧-免费言情小说在线阅读|最新最热网络小说大全
 
-更新时间：2026-09-09 03:45:00
+更新时间：2026-09-10 03:45:14
 
 天天书吧提供最新最热的网络小说资源，包括但不限于免费言情小说。用户可以享受无广告干扰的阅读体验，支持最新章节更新、全文流畅阅读以及保证内容准确无误的小说阅读服务。 https://www.wnebd.com
 
 ## 最新小说
+- 我在无限游戏里假扮NPC[无限流] https://www.wnebd.com/book/1fjb6tp/
+- 某横滨的时间操纵 https://www.wnebd.com/book/1fjb6lc/
+- 被欺负的老实人[快穿] https://www.wnebd.com/book/1fjb6hl/
+- 每天回到家都看到雄虫在装死 https://www.wnebd.com/book/1fjb6e2/
+- 暗堕本丸，在线直播 https://www.wnebd.com/book/1fjb698/
+- 渣过我的主角全都重生了[快穿] https://www.wnebd.com/book/1fjb62q/
+- [足球]葡萄牙世界杯if线 https://www.wnebd.com/book/1fjb5rf/
+- 穿成猫的咒术高专生活 https://www.wnebd.com/book/1fjb5cf/
+- 我于江湖已无敌 https://www.wnebd.com/book/1fjb4sm/
+- 和室友他爸恋爱后 https://www.wnebd.com/book/1fjb4kr/
+- 伪装路人后成了反派首领 https://www.wnebd.com/book/1fjb4c5/
+- 女装生崽，娃爹宇智波 https://www.wnebd.com/book/1fjb3nn/
+- 老公是松散生命体 https://www.wnebd.com/book/1fjb3lt/
+- 优质攻不做恋爱脑[快穿] https://www.wnebd.com/book/1fjb3li/
+- 我当县令那些年 https://www.wnebd.com/book/1fjb3gs/
+- 逝水 https://www.wnebd.com/book/1fjb324/
+- 五美元在哥谭活一月 https://www.wnebd.com/book/1fjb2iq/
+- 重组家庭，但美校搞基！ https://www.wnebd.com/book/1fjb1r0/
+- 我有一座城 https://www.wnebd.com/book/1fjb1ii/
+- 我不可能舔一个漂亮捞子 https://www.wnebd.com/book/1fjb1dt/
+- 超A奶龙饲养指南 https://www.wnebd.com/book/1fjb0et/
+- [足球]听克圣的话，成了米兰金童 https://www.wnebd.com/book/1fjavt7/
+- 作为甚尔亡妻的我变成触手了！ https://www.wnebd.com/book/1fjavrf/
+- [综英美]是谁家的小鹿 https://www.wnebd.com/book/1fjavop/
+- bl世界的路人不想被掰弯 https://www.wnebd.com/book/1fjautl/
+- 被马甲团宠的我开启地狱模式 https://www.wnebd.com/book/1fjauqd/
+- 我在虫族扮绿茶吃老虎 https://www.wnebd.com/book/1fjaupv/
+- 微臣怜惜公主 https://www.wnebd.com/book/1fjauhk/
+- [综英美]flash小游戏，哥谭出品 https://www.wnebd.com/book/1fjaucq/
+- 若清晨所见之蓝 https://www.wnebd.com/book/1fjau1l/
+- 被豪门封建长兄娇养了 https://www.wnebd.com/book/1fjau0q/
+- 反派真少爷搞了个抱错综艺后[穿书] https://www.wnebd.com/book/1fjatta/
+- 我被一个古人教会了爱情 https://www.wnebd.com/book/1fjatd9/
+- 这个迫嫁我愿意的 https://www.wnebd.com/book/1fjasut/
+- 期春思 https://www.wnebd.com/book/1fjaslq/
+- 满级后我的外挂到账了[全息] https://www.wnebd.com/book/1fjasgh/
+- 七零年代闺蜜团的奋斗 https://www.wnebd.com/book/1fjas67/
+- 逃荒[快穿] https://www.wnebd.com/book/1fjas1n/
+- 恐惧玫瑰 https://www.wnebd.com/book/1fjarsu/
+- 逃生游戏[无限] https://www.wnebd.com/book/1fjarlv/
+- 疯子装什么乖 https://www.wnebd.com/book/1fjar2v/
+- 被剧透后，五条猫猫当然要提前享受青春呀！ https://www.wnebd.com/book/1fjaque/
+- 每晚在梦里当暴君 https://www.wnebd.com/book/1fjaqq5/
+- 当抠搜总裁被人读心[穿书] https://www.wnebd.com/book/1fjaqf5/
+- 嗲精人设走偏啦［穿书］ https://www.wnebd.com/book/1fjaq5a/
+- 万人迷绑定美强惨系统后 https://www.wnebd.com/book/1fjaph6/
+- 我在异世当妖精 https://www.wnebd.com/book/1fjapei/
+- 全世界都靠我吃瓜 https://www.wnebd.com/book/1fjap8k/
+- 五零之我在香江富甲一方 https://www.wnebd.com/book/1fjap53/
+- 好巧，我爸也是狗血文男主 https://www.wnebd.com/book/1fjaoop/
+- 金手指随机抽取中（快穿） https://www.wnebd.com/book/1fjaoe6/
+- 修罗场里的无能丈夫 https://www.wnebd.com/book/1fjaod9/
+- [综英美]怎么就蝙蝠崽文学了 https://www.wnebd.com/book/1fjaocl/
+- 大美人怀了enigma上司的崽 https://www.wnebd.com/book/1fjao6s/
+- 忍界修罗带球跑 https://www.wnebd.com/book/1fjao5k/
+- 哥你不能不要我 https://www.wnebd.com/book/1fjao12/
+- 无趣的我，今天也在选秀中断层第一 https://www.wnebd.com/book/1fjanuh/
+- 乱世奶嗝受 https://www.wnebd.com/book/1fjanrl/
+- [全职高手]带着魔性美貌穿越有什么用 https://www.wnebd.com/book/1fjan44/
+- [综英美]让我统治哥谭！！！ https://www.wnebd.com/book/1fjamt9/
+- [综武侠]嘘！不许剧透 https://www.wnebd.com/book/1fjammo/
+- 为了抢走贵妃我造反了 https://www.wnebd.com/book/1fjammg/
+- 女主请自重[快穿] https://www.wnebd.com/book/1fjamll/
+- 被公用的美人陪读/美校 https://www.wnebd.com/book/1fjam9o/
+- 你也没死？ https://www.wnebd.com/book/1fjam0h/
+- 战死的阿爹回来了[年代] https://www.wnebd.com/book/1fjalrs/
+- 我不想当男太后[穿书] https://www.wnebd.com/book/1fjalqm/
+- 魔王模拟器 https://www.wnebd.com/book/1fjalnf/
+- 穿成年代文里的村草 https://www.wnebd.com/book/1fjalki/
+- 我妈是大佬[快穿] https://www.wnebd.com/book/1fjal9v/
+- 梵高夫人 https://www.wnebd.com/book/1fjal9a/
+- 东映排球部 https://www.wnebd.com/book/1fjal96/
+- 当小狗炮灰分手后 https://www.wnebd.com/book/1fjal4t/
+- 西幻抽卡装NPC https://www.wnebd.com/book/1fjaknp/
+- 漂亮作精绑定换装系统后［快穿］ https://www.wnebd.com/book/1fjaklr/
+- 在无限世界当晕倒羊 https://www.wnebd.com/book/1fjakln/
+- 侯府打工人 https://www.wnebd.com/book/1fjakam/
+- 陛下今天怼人了吗［快穿］ https://www.wnebd.com/book/1fjaju3/
+- 来自深渊的救世者 https://www.wnebd.com/book/1fjajt1/
+- 堕魔 https://www.wnebd.com/book/1fjajps/
+- 备胎的我重生成万人迷 https://www.wnebd.com/book/1fjajk8/
+- [足球]啊我玩的原来是盗版游戏啊！？！ https://www.wnebd.com/book/1fjajio/
+- [综英美]猫女士是一只猫 https://www.wnebd.com/book/1fjaj5h/
 - 巨星渡灵师 https://www.wnebd.com/book/1fjaifu/
 - 歪剧情我是专业的[快穿] https://www.wnebd.com/book/1fjai2q/
 - 长公主的六零年代 https://www.wnebd.com/book/1fjahvp/
+- 林照娘的宗室生活手札 https://www.wnebd.com/book/1fjahus/
 - 被子同学 https://www.wnebd.com/book/1fjahsk/
 - 首辅大人怀中娇（重生） https://www.wnebd.com/book/1fjahmd/
 - 灰墙之下 https://www.wnebd.com/book/1fjahh8/
 - 被俄罗斯小疯子娇养了 https://www.wnebd.com/book/1fjagnb/
 - 妖怪崽崽种田日常 https://www.wnebd.com/book/1fjaget/
+- 七零丰腴美人训夫日常 https://www.wnebd.com/book/1fjagcl/
 - 黑莲花在线演我 https://www.wnebd.com/book/1fjagb3/
 - 寻真 https://www.wnebd.com/book/1fjag5f/
 - [综崩铁]谁家小鸟掉冥河了 https://www.wnebd.com/book/1fjaftj/
 - 我绝不可能是只NPC https://www.wnebd.com/book/1fjafsa/
+- 不再依赖哥哥算长大吗 https://www.wnebd.com/book/1fjafqq/
 - [清]给太子当姐姐那些年 https://www.wnebd.com/book/1fjafnb/
 - 京秋婚约 https://www.wnebd.com/book/1fjafid/
 - [综武侠]换装之江湖遍地是小号 https://www.wnebd.com/book/1fjaf8r/
@@ -206,7 +292,6 @@
 - 我让人生赢家俯首称臣的那些年 https://www.wnebd.com/book/1fj9o1p/
 - 正常人成为虫母后沦陷修罗场 https://www.wnebd.com/book/1fj9nu7/
 - 某柯学的正义伙伴 https://www.wnebd.com/book/1fj9nm4/
-- 冷傲上司绑定娇妻系统后 https://www.wnebd.com/book/1fj9nk2/
 - 我养龙傲天的那些年 https://www.wnebd.com/book/1fj9njs/
 - [足球]在比利时我们只玩天赋 https://www.wnebd.com/book/1fj9ni7/
 - [足球]德意志小比也能拿冠军吗 https://www.wnebd.com/book/1fj9nha/
@@ -261,7 +346,6 @@
 - 经纪人砸钱整顿内娱爆火了 https://www.wnebd.com/book/1fj9k0k/
 - 樋口干部不干了 https://www.wnebd.com/book/1fj9k03/
 - 贵族学院F4中的第四人 https://www.wnebd.com/book/1fj9jv1/
-- 刀子精手心的人偶崽崽 https://www.wnebd.com/book/1fj9jtf/
 - 变成鲛人了怎么办 https://www.wnebd.com/book/1fj9jql/
 - 撕毁女配剧本的我被神之子读心了 https://www.wnebd.com/book/1fj9jqj/
 - 举朝上下为我的神仙人设头疼中 https://www.wnebd.com/book/1fj9jq9/
@@ -292,6 +376,7 @@
 - 邪神祂总被觊觎 https://www.wnebd.com/book/1fj9iad/
 - 让我再吃一口 https://www.wnebd.com/book/1fj9hvs/
 - 直播捏玩具被榜一大哥撅了 https://www.wnebd.com/book/1fj9hum/
+- 痴情女配开始放手了（快穿） https://www.wnebd.com/book/1fj9huh/
 - 吐槽役审神者会爆改幕后大boss吗 https://www.wnebd.com/book/1fj9htf/
 - 放开那个黑暗哨兵！ https://www.wnebd.com/book/1fj9hps/
 - “纯黑”苏格兰的蜂蜜陷阱 https://www.wnebd.com/book/1fj9hpb/
@@ -301,6 +386,7 @@
 - 顶流他姐有神豪系统 https://www.wnebd.com/book/1fj9hba/
 - 在重男兄弟间夹缝求生 https://www.wnebd.com/book/1fj9ha9/
 - 高冷影后逼我标记她 https://www.wnebd.com/book/1fj9h3u/
+- 我不是正夫吗？ https://www.wnebd.com/book/1fj9gv4/
 - 我靠玛丽苏系统伪装神女 https://www.wnebd.com/book/1fj9gs2/
 - 无能的丈夫们 https://www.wnebd.com/book/1fj9gpb/
 - 失忆后，和五条激情互演 https://www.wnebd.com/book/1fj9gn4/
@@ -316,6 +402,7 @@
 - 请问夫君你哪位 https://www.wnebd.com/book/1fj9fb7/
 - 污染来袭，我反复穿越 https://www.wnebd.com/book/1fj9cvh/
 - 为她守节第十年 https://www.wnebd.com/book/1fj9avg/
+- 那什么的小蜘蛛 https://www.wnebd.com/book/1fj93fd/
 - 禁止继承限制级雌君 https://www.wnebd.com/book/1fj7e1d/
 - 全世界名为爱的恶意 https://www.wnebd.com/book/1fj7e18/
 - 清穿女回来后[天幕] https://www.wnebd.com/book/1fj7drm/

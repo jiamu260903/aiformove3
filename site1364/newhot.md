@@ -1,7 +1,7 @@
 
 # 科幻读书-免费小说阅读|言情小说|小说排行榜|全本完本小说下载
 
-更新时间：2026-09-09 03:33:34
+更新时间：2026-09-10 03:33:49
 
 科幻读书提供海量完结全本小说在线阅读服务，涵盖言情、都市、耽美、穿越等多种类型，并定期更新连载章节及发布最新小说排行榜单。支持有声小说推荐与下载。 https://www.kehuan918.com
 
@@ -33,6 +33,7 @@
 - 我比反派先崩坏[快穿] https://www.kehuan918.com/book/1d5656d/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.kehuan918.com/book/1d564uf/
 - 渡鬼 https://www.kehuan918.com/book/1d564su/
+- 痴情女配开始放手了（快穿） https://www.kehuan918.com/book/1d564ss/
 - cos温迪后玩到真崩铁了 https://www.kehuan918.com/book/1d560ou/
 - 我有嘉宾 https://www.kehuan918.com/book/1d5608m/
 - 娇气点怎么啦？［快穿］ https://www.kehuan918.com/book/1d56044/
@@ -56,6 +57,7 @@
 - 特殊魅力值，已到账 https://www.kehuan918.com/book/1d55ag6/
 - 昭暮 https://www.kehuan918.com/book/1d559c9/
 - 朕看上的少年是侠女 https://www.kehuan918.com/book/1d555le/
+- 我不是正夫吗？ https://www.kehuan918.com/book/1d555l6/
 - 你，后室管理员 https://www.kehuan918.com/book/1d555i5/
 - 高调装神，猥琐发育 https://www.kehuan918.com/book/1d54udq/
 - 我在无限游戏里假扮NPC[无限流] https://www.kehuan918.com/book/1d54oa3/
@@ -307,7 +309,6 @@
 - [全职高手]问就是没钱 https://www.kehuan918.com/book/1d539e7/
 - 破戒[娱乐圈] https://www.kehuan918.com/book/1d539e3/
 - 娇嗔 https://www.kehuan918.com/book/1d539cb/
-- 冷傲上司绑定娇妻系统后 https://www.kehuan918.com/book/1d53981/
 - 善逸拒绝成为咒术师 https://www.kehuan918.com/book/1d5396c/
 - 正常人成为虫母后沦陷修罗场 https://www.kehuan918.com/book/1d5393d/
 - 朱棣造反被朱元璋表扬这事[直播剧透] https://www.kehuan918.com/book/1d538uf/
@@ -413,7 +414,6 @@
 - 放开那个黑暗哨兵！ https://www.kehuan918.com/book/1d530r9/
 - 吐槽役审神者会爆改幕后大boss吗 https://www.kehuan918.com/book/1d52umq/
 - 求生游戏：当邪神成为生活玩家后 https://www.kehuan918.com/book/1d52t45/
-- 刀子精手心的人偶崽崽 https://www.kehuan918.com/book/1d52t37/
 - 我最讨厌打球了！ https://www.kehuan918.com/book/1d52rs0/
 - [足球]小小鸟堂堂来袭 https://www.kehuan918.com/book/1d52n2n/
 - 幼崽假少爷选择回归寒门 https://www.kehuan918.com/book/1d52lih/

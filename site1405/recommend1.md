@@ -1,7 +1,7 @@
 
 # 耽美小说 - 最新全本免费手机小说阅读推荐
 
-更新时间：2026-09-09 03:39:45
+更新时间：2026-09-10 03:39:54
 
 耽美小说为您提供最新最全的小说阅读体验，涵盖古言、现言、原创、玄幻、都市、言情、娱乐、种田、科幻、悬疑、穿越、重生等多种类型。支持手机在线阅读，全本免费小说尽在耽美小说！ https://www.shgifts8.com
 
@@ -23,7 +23,6 @@
 - 禁止继承限制级雌君 https://www.shgifts8.com/book/32ui7th/
 - [洪荒]成为太清妹妹后 https://www.shgifts8.com/book/32ui7tg/
 - 全民求生，但剑三 https://www.shgifts8.com/book/32ui7tb/
-- 欲和离？夫君他目不识丁 https://www.shgifts8.com/book/32ui7ta/
 - 在年代文里跑运输 https://www.shgifts8.com/book/32ui7t3/
 - 恶毒男配只想躺平 https://www.shgifts8.com/book/32ui7t1/
 - 星露谷，但日本战国 https://www.shgifts8.com/book/32ui7t0/
@@ -42,7 +41,7 @@
 - 正是冬雪沸腾时 https://www.shgifts8.com/book/32ui7s0/
 - 末世八年春，游戏降临 https://www.shgifts8.com/book/32ui7rv/
 - 谁都不爱的和亲公主 https://www.shgifts8.com/book/32ui7ru/
-- 人，今晚土拨鼠站岗 https://www.shgifts8.com/book/32ui7rs/
+- 笨蛋土拨鼠站岗日志 https://www.shgifts8.com/book/32ui7rs/
 - 强取师尊后 https://www.shgifts8.com/book/32ui7rq/
 - 我只想上京赶考啊[聊斋] https://www.shgifts8.com/book/32ui7rp/
 - 万人嫌从末世回来了 https://www.shgifts8.com/book/32ui7rk/
@@ -124,7 +123,6 @@
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.shgifts8.com/book/32uev5p/
 - 带清冷女主回乡养螃蟹[种田] https://www.shgifts8.com/book/32uerjv/
 - 妻主风流（女尊） https://www.shgifts8.com/book/32uer5s/
-- 这个位面归我了！[经营] https://www.shgifts8.com/book/32ueqom/
 - 穿咒术，但杀猴现场 https://www.shgifts8.com/book/32ueqjn/
 - 清冷丞相怀了死对头的崽 https://www.shgifts8.com/book/32ueog5/
 - 逃出金丝笼，我力挽山河开国称帝 https://www.shgifts8.com/book/32ueo2p/

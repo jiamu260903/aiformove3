@@ -1,11 +1,12 @@
 
 # 忆想小说网 - 最佳无弹窗在线小说阅读平台
 
-更新时间：2026-09-09 03:26:04
+更新时间：2026-09-10 03:26:17
 
 忆想小说网为您提供最佳的小说阅读体验，包括但不限于各类热门小说、最新连载等，支持无弹窗阅读模式，让您享受纯净舒适的阅读环境。 https://www.bianlishihao.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.bianlishihao.com/book/2vr7aok/
 - 我只想上京赶考啊[聊斋] https://www.bianlishihao.com/book/2vr7aog/
 - 我们小区穿末世 https://www.bianlishihao.com/book/2vr7aof/
 - 在中世纪做奴隶 https://www.bianlishihao.com/book/2vr7aoe/
@@ -17,7 +18,6 @@
 - 全世界名为爱的恶意 https://www.bianlishihao.com/book/2vr7ao8/
 - 我骗家里的钱养你啊 https://www.bianlishihao.com/book/2vr7ao7/
 - 漫画取材所引发的修罗场 https://www.bianlishihao.com/book/2vr7ao6/
-- 欲和离？夫君他目不识丁 https://www.bianlishihao.com/book/2vr7ao5/
 - 失忆后和死对头有了崽 https://www.bianlishihao.com/book/2vr7ao4/
 - 禁止继承限制级雌君 https://www.bianlishihao.com/book/2vr7ao3/
 - 夫人每天都在伪装 https://www.bianlishihao.com/book/2vr7ao2/
@@ -70,7 +70,7 @@
 - 等我吃腻了再倒闭可以吗 https://www.bianlishihao.com/book/2vr7ami/
 - 烈火焚身[巴黎圣母院] https://www.bianlishihao.com/book/2vr7amh/
 - 恐游里的邻居们[万人迷] https://www.bianlishihao.com/book/2vr7amg/
-- 人，今晚土拨鼠站岗 https://www.bianlishihao.com/book/2vr7ame/
+- 笨蛋土拨鼠站岗日志 https://www.bianlishihao.com/book/2vr7ame/
 - 强取师尊后 https://www.bianlishihao.com/book/2vr7amd/
 - 康熙宠妃日常 https://www.bianlishihao.com/book/2vr7amc/
 - 同时扮演贵族学院F4和平民校花 https://www.bianlishihao.com/book/2vr7amb/
@@ -81,9 +81,9 @@
 - 原配夫人 https://www.bianlishihao.com/book/2vr7agk/
 - 始乱终弃清冷首辅后 https://www.bianlishihao.com/book/2vr7agi/
 - [封神]圣人生欲 https://www.bianlishihao.com/book/2vr7afq/
-- 星际团宠小人鱼 https://www.bianlishihao.com/book/2vr7afa/
 - 高调装神，猥琐发育 https://www.bianlishihao.com/book/2vr7adk/
 - 十九世纪贵族厨房（美食） https://www.bianlishihao.com/book/2vr7acp/
+- 我只梦你一页 https://www.bianlishihao.com/book/2vr7abr/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.bianlishihao.com/book/2vr7aag/
 - 直男咒术师的限制级游戏 https://www.bianlishihao.com/book/2vr7a9e/
 - 六零之成了卷王的妹妹 https://www.bianlishihao.com/book/2vr791i/
@@ -100,7 +100,6 @@
 - 如何嫁给当朝首辅 https://www.bianlishihao.com/book/2vr4idk/
 - 食明 https://www.bianlishihao.com/book/2vr4guq/
 - 诡话第一boss https://www.bianlishihao.com/book/2vr4drg/
-- 仙门透明人被迫万人迷 https://www.bianlishihao.com/book/2vr4942/
 - 让暴君Alpha怀崽后 https://www.bianlishihao.com/book/2vr47bn/
 - 老实人妻，但顶级魅魔 https://www.bianlishihao.com/book/2vr45mo/
 - 日化人生[科研] https://www.bianlishihao.com/book/2vr45b4/
@@ -110,7 +109,6 @@
 - 让你们无剧本可走（快穿） https://www.bianlishihao.com/book/2vr3va3/
 - 趁她之危 https://www.bianlishihao.com/book/2vr3s1u/
 - 起初，我只是想找个冤大头 https://www.bianlishihao.com/book/2vr3qmr/
-- 摄政王家的咸鱼夫郎 https://www.bianlishihao.com/book/2vr3oar/
 - 死遁的亡夫们都回来了 https://www.bianlishihao.com/book/9ipbvl/
 - 沈助理又在隐藏他的超能力 https://www.bianlishihao.com/book/9ip7lo/
 - 天幕今天也在直播我搞基建 https://www.bianlishihao.com/book/9ip7gf/
@@ -134,7 +132,6 @@
 - 逃出金丝笼，我力挽山河开国称帝 https://www.bianlishihao.com/book/9inuje/
 - 被糟蹋的老实人决定反击 https://www.bianlishihao.com/book/9intke/
 - 韩团绿卡不想忍了 https://www.bianlishihao.com/book/9intg4/
-- 这个位面归我了！[经营] https://www.bianlishihao.com/book/9inqf9/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.bianlishihao.com/book/9inouc/
 - 村霸非要入赘受气包 https://www.bianlishihao.com/book/9inolf/
 - 清冷丞相怀了死对头的崽 https://www.bianlishihao.com/book/9inojh/
@@ -157,6 +154,7 @@
 - [娱乐圈]过分美丽的她 https://www.bianlishihao.com/book/ulgb1/
 - 完蛋！被恨孕男包围了！ https://www.bianlishihao.com/book/ulg2q/
 - 我有一座安全城 https://www.bianlishihao.com/book/ulfr1/
+- 月亮上的大筒木 https://www.bianlishihao.com/book/ulfoi/
 - 95美国贵族高中模拟 https://www.bianlishihao.com/book/ulfhh/
 - 我是唯一地上神国 https://www.bianlishihao.com/book/ulff4/
 - 大瑛弟国 https://www.bianlishihao.com/book/3252s/

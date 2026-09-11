@@ -1,14 +1,14 @@
 
 # 牛魔王JJ电子书 - 小说阅读网, 全本免费完结小说在线阅读及下载
 
-更新时间：2026-09-09 03:36:19
+更新时间：2026-09-10 03:36:30
 
 牛魔王JJ电子书提供精彩小说阅读服务，包括各种类型的小说排行榜、免费好看的小说等。涵盖穿越小说、都市小说、言情小说、玄幻小说等多种类别，支持全本全集完结小说在线阅读以及TXT下载。 https://www.nmwjj.com
 
 ## 最新小说
 - 入梦修罗场，但我脸盲 https://www.nmwjj.com/book/18cjnfb/
 - [全职高手]治疗什么的不干了！ https://www.nmwjj.com/book/18cjhjo/
-- 人，今晚土拨鼠站岗 https://www.nmwjj.com/book/18cjhjn/
+- 笨蛋土拨鼠站岗日志 https://www.nmwjj.com/book/18cjhjn/
 - [原神]魔法使恋爱指南 https://www.nmwjj.com/book/18cjhjl/
 - 穿为龙傲天发妻后 https://www.nmwjj.com/book/18cjhjk/
 - 前妻她肯定会后悔 https://www.nmwjj.com/book/18cjhjg/
@@ -39,7 +39,6 @@
 - 炮灰的海外亲戚回国啦！ https://www.nmwjj.com/book/18cjhhs/
 - SSS级异种都是我前任 https://www.nmwjj.com/book/18cjhhn/
 - 康熙宠妃日常 https://www.nmwjj.com/book/18cjhhk/
-- 欲和离？夫君他目不识丁 https://www.nmwjj.com/book/18cjhhe/
 - 魔改剧本后我爆火了[娱乐圈] https://www.nmwjj.com/book/18cjhhc/
 - 魔法种田，从退队经营农场开始 https://www.nmwjj.com/book/18cjhh6/
 - 烈火焚身[巴黎圣母院] https://www.nmwjj.com/book/18cjhh5/
@@ -123,7 +122,6 @@
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.nmwjj.com/book/18cft5g/
 - 死亡悖论[无限流] https://www.nmwjj.com/book/18cfqvl/
 - 妻主风流（女尊） https://www.nmwjj.com/book/18cfq2u/
-- 这个位面归我了！[经营] https://www.nmwjj.com/book/18cfppm/
 - 清冷丞相怀了死对头的崽 https://www.nmwjj.com/book/18cfmu6/
 - [崩铁]请给玩家一个准确的血条！ https://www.nmwjj.com/book/18cfmoq/
 - 带清冷女主回乡养螃蟹[种田] https://www.nmwjj.com/book/18cflml/

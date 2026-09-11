@@ -1,11 +1,16 @@
 
 # 微雨数据小说,新笔趣小说阅读网,顶点小说网备份-热门小说大全
 
-更新时间：2026-09-09 03:43:12
+更新时间：2026-09-10 03:43:26
 
 微雨数据小说网作为广大书友喜爱的平台之一，同时也是顶点小说阅读网的官方备份网站，汇集了当前最受欢迎和最火热的小说资源。当遇到顶点小说网无法访问时，请访问笔趣看小说网继续享受精彩内容！ https://www.weiyushuju.com
 
 ## 最新小说
+- 穿成漫画反派的我又做错了什么 https://www.weiyushuju.com/book/6rf7oct/
+- [综英美]蝙蝠崽但脆皮 https://www.weiyushuju.com/book/6rf7o82/
+- 我拿的可是反派剧本 https://www.weiyushuju.com/book/6rf7nil/
+- 丧尸王有什么坏心思？ https://www.weiyushuju.com/book/6rf7n1r/
+- 这个替嫁让我来！ https://www.weiyushuju.com/book/6rf7mlc/
 - 网球带给齐木的灾难 https://www.weiyushuju.com/book/6rf7lcr/
 - 当甚尔转生成继国 https://www.weiyushuju.com/book/6rf7je1/
 - 节能型社恐靠交友存活打排球 https://www.weiyushuju.com/book/6rf7ior/
@@ -59,6 +64,7 @@
 - 女装生崽，娃爹宇智波 https://www.weiyushuju.com/book/6rf5v91/
 - 全天下都在求太子殿下别死！ https://www.weiyushuju.com/book/6rf5uu7/
 - 五美元在哥谭活一月 https://www.weiyushuju.com/book/6rf5uon/
+- 痴情女配开始放手了（快穿） https://www.weiyushuju.com/book/6rf5uk0/
 - 优质攻不做恋爱脑[快穿] https://www.weiyushuju.com/book/6rf5uhd/
 - 可怜的天然呆直男[快穿] https://www.weiyushuju.com/book/6rf5tet/
 - [足球]啊我玩的原来是盗版游戏啊！？！ https://www.weiyushuju.com/book/6rf5tba/
@@ -301,7 +307,6 @@
 - 奶奶蛋糕店[美食] https://www.weiyushuju.com/book/6rf4k4k/
 - [综武侠]万人迷小姐想要富贵荣华 https://www.weiyushuju.com/book/6rf4k03/
 - 废土猫猫求生指南 https://www.weiyushuju.com/book/6rf4juh/
-- 冷傲上司绑定娇妻系统后 https://www.weiyushuju.com/book/6rf4jpn/
 - 我让人生赢家俯首称臣的那些年 https://www.weiyushuju.com/book/6rf4jnm/
 - [足球]德意志小比也能拿冠军吗 https://www.weiyushuju.com/book/6rf4jnk/
 - 在横滨横行霸道的那些年 https://www.weiyushuju.com/book/6rf4jm9/
@@ -390,7 +395,6 @@
 - 败类 https://www.weiyushuju.com/book/6rf4e33/
 - 在女仆咖啡店兼职被校草缠上后 https://www.weiyushuju.com/book/6rf4dt2/
 - 无能的丈夫们 https://www.weiyushuju.com/book/6rf4dr1/
-- 刀子精手心的人偶崽崽 https://www.weiyushuju.com/book/6rf4dp1/
 - 每天都在和太宰互换身体 https://www.weiyushuju.com/book/6rf4dmg/
 - 癫骨 https://www.weiyushuju.com/book/6rf4dm6/
 - 虫族治愈师，但恐虫 https://www.weiyushuju.com/book/6rf4d6p/
@@ -437,6 +441,7 @@
 - [封神]圣人生欲 https://www.weiyushuju.com/book/6rf295t/
 - 你，后室管理员 https://www.weiyushuju.com/book/6rf2915/
 - 高调装神，猥琐发育 https://www.weiyushuju.com/book/6rf289p/
+- 我不是正夫吗？ https://www.weiyushuju.com/book/6rf27va/
 - 被四皇错看成小动物后 https://www.weiyushuju.com/book/6rf27ks/
 ## 相关内容
 - [README](/README.md)

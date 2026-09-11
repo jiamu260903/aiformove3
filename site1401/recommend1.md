@@ -1,11 +1,12 @@
 
 # 曹操SPA小说 - 小说的海洋，文学的殿堂 | 在线阅读与下载原创小说
 
-更新时间：2026-09-09 03:26:36
+更新时间：2026-09-10 03:26:51
 
 曹操SPA小说是一个专注于优质小说和文学创作的网站，这里是书迷们的天堂，提供丰富的原创网络小说、经典文学作品在线阅读与下载，致力于打造一个充满灵感与创意的文学世界。 https://www.caocaospa.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.caocaospa.com/book/8q1ujgt/
 - 全民求生，但剑三 https://www.caocaospa.com/book/8q1u7u3/
 - 国运求生：我的金手指是生命树 https://www.caocaospa.com/book/8q1u7u1/
 - 在年代文里跑运输 https://www.caocaospa.com/book/8q1u7tv/
@@ -47,7 +48,7 @@
 - 恶毒男配只想躺平 https://www.caocaospa.com/book/8q1u7qt/
 - [足球]雏鸟 https://www.caocaospa.com/book/8q1u7qq/
 - 谁都不爱的和亲公主 https://www.caocaospa.com/book/8q1u7qo/
-- 人，今晚土拨鼠站岗 https://www.caocaospa.com/book/8q1u7ql/
+- 笨蛋土拨鼠站岗日志 https://www.caocaospa.com/book/8q1u7ql/
 - 世界伏于她刀下[无限] https://www.caocaospa.com/book/8q1u7qk/
 - 烈火焚身[巴黎圣母院] https://www.caocaospa.com/book/8q1u7qi/
 - [洪荒]成为太清妹妹后 https://www.caocaospa.com/book/8q1u7qg/
@@ -57,7 +58,6 @@
 - 清穿女回来后[天幕] https://www.caocaospa.com/book/8q1u7q4/
 - 漫画取材所引发的修罗场 https://www.caocaospa.com/book/8q1u7q3/
 - 我们小区穿末世 https://www.caocaospa.com/book/8q1u7q1/
-- 欲和离？夫君他目不识丁 https://www.caocaospa.com/book/8q1u7q0/
 - 强取师尊后 https://www.caocaospa.com/book/8q1u7pt/
 - 从1951开始 https://www.caocaospa.com/book/8q1u7pr/
 - 怨明月不独照 https://www.caocaospa.com/book/8q1u7pq/
@@ -67,7 +67,6 @@
 - 爱情的肯定句 https://www.caocaospa.com/book/8q1u7pc/
 - 起初，我只是想找个冤大头 https://www.caocaospa.com/book/8q1u7lb/
 - 天幕今天也在直播我搞基建 https://www.caocaospa.com/book/8q1u7kp/
-- 仙门透明人被迫万人迷 https://www.caocaospa.com/book/8q1u36a/
 - 上个鬼班[无限] https://www.caocaospa.com/book/8q1u0e2/
 - [足球]足坛人生模拟器 https://www.caocaospa.com/book/8q1tvrg/
 - 让暴君Alpha怀崽后 https://www.caocaospa.com/book/8q1tqed/
@@ -83,7 +82,6 @@
 - 我与龙傲天寿命共享 https://www.caocaospa.com/book/8q1sqg0/
 - [足球]我的游戏存档成真了？！ https://www.caocaospa.com/book/8q1sov2/
 - 阴郁残疾炮灰被万人迷后[快穿] https://www.caocaospa.com/book/8q1soe8/
-- 摄政王家的咸鱼夫郎 https://www.caocaospa.com/book/8q1so8g/
 - 如何正确哄睡暴君 https://www.caocaospa.com/book/8q1snkf/
 - 死遁的亡夫们都回来了 https://www.caocaospa.com/book/8q1smoe/
 - 让你们无剧本可走（快穿） https://www.caocaospa.com/book/8q1skv7/
@@ -96,6 +94,7 @@
 - 死对头又在挑衅我 https://www.caocaospa.com/book/8q1s3kq/
 - 从童星开始杀穿港娱 https://www.caocaospa.com/book/8q1s33m/
 - 路人攻了主角攻［快穿］ https://www.caocaospa.com/book/8q1s2tu/
+- 月亮上的大筒木 https://www.caocaospa.com/book/8q1s2sd/
 - 沈助理又在隐藏他的超能力 https://www.caocaospa.com/book/8q1s2s0/
 - 开局绑定郭奉孝，谋定三国风云 https://www.caocaospa.com/book/8q1s2r6/
 - 如何嫁给当朝首辅 https://www.caocaospa.com/book/8q1ru50/
@@ -112,6 +111,7 @@
 - [足球]小小鸟堂堂来袭 https://www.caocaospa.com/book/8q1rh81/
 - 我187了，你敢见我吗？ https://www.caocaospa.com/book/8q1rf01/
 - 和姐姐的前女友欢愉后 https://www.caocaospa.com/book/8q1rbor/
+- 我只梦你一页 https://www.caocaospa.com/book/8q1raal/
 - 大唐守军家属 https://www.caocaospa.com/book/8q1r51a/
 - 心动嫌疑人 https://www.caocaospa.com/book/8q1r340/
 - 朕也要被强制吗？ https://www.caocaospa.com/book/8q1r2t1/
@@ -121,7 +121,6 @@
 - 死亡悖论[无限流] https://www.caocaospa.com/book/8q1r0id/
 - [崩铁]请给玩家一个准确的血条！ https://www.caocaospa.com/book/8q1qvlf/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.caocaospa.com/book/8q1qtv2/
-- 这个位面归我了！[经营] https://www.caocaospa.com/book/8q1qs9i/
 - 带清冷女主回乡养螃蟹[种田] https://www.caocaospa.com/book/8q1qqp8/
 - 穿咒术，但杀猴现场 https://www.caocaospa.com/book/8q1qqop/
 - 妻主风流（女尊） https://www.caocaospa.com/book/8q1qq3q/
@@ -149,7 +148,6 @@
 - 95美国贵族高中模拟 https://www.caocaospa.com/book/8q1p6b5/
 - 原配夫人 https://www.caocaospa.com/book/8q1p61d/
 - 卷王后妈，八零养娃 https://www.caocaospa.com/book/8q1p60t/
-- 星际团宠小人鱼 https://www.caocaospa.com/book/8q1p5tj/
 - 日化人生[科研] https://www.caocaospa.com/book/8q1p5of/
 - 巨物致富：回乡开钓场 https://www.caocaospa.com/book/8q1p5jl/
 - 十九世纪贵族厨房（美食） https://www.caocaospa.com/book/8q1p5iu/

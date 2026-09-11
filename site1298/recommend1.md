@@ -1,11 +1,12 @@
 
 # 笔趣屋-最热门的免费小说网 | 玄幻,网游,言情,穿越,都市小说全本在线阅读
 
-更新时间：2026-09-09 03:34:05
+更新时间：2026-09-10 03:34:18
 
 笔趣屋提供多种类型的好看小说在线阅读服务，包括但不限于玄幻、网游、言情、穿越及都市等热门分类。网站承诺无广告无弹窗干扰，页面简洁，方便用户享受纯净的阅读体验。 https://www.kmjike.com
 
 ## 最新小说
+- 入梦修罗场，但我脸盲 https://www.kmjike.com/book/4mlvlok/
 - 穿为龙傲天发妻后 https://www.kmjike.com/book/4mlvlog/
 - 星露谷，但日本战国 https://www.kmjike.com/book/4mlvlof/
 - 魔法种田，从退队经营农场开始 https://www.kmjike.com/book/4mlvloe/
@@ -46,7 +47,6 @@
 - ［西幻］RPG就不要谈恋爱了吧！ https://www.kmjike.com/book/4mlvln9/
 - 夫人每天都在伪装 https://www.kmjike.com/book/4mlvln8/
 - [全职高手]治疗什么的不干了！ https://www.kmjike.com/book/4mlvln7/
-- 欲和离？夫君他目不识丁 https://www.kmjike.com/book/4mlvln6/
 - 从1951开始 https://www.kmjike.com/book/4mlvln5/
 - 二次分化后他怀了死对头的崽 https://www.kmjike.com/book/4mlvln4/
 - 万人嫌从末世回来了 https://www.kmjike.com/book/4mlvln3/
@@ -55,7 +55,7 @@
 - 炮灰的海外亲戚回国啦！ https://www.kmjike.com/book/4mlvln0/
 - 烈火焚身[巴黎圣母院] https://www.kmjike.com/book/4mlvlmv/
 - 恐游里的邻居们[万人迷] https://www.kmjike.com/book/4mlvlmu/
-- 人，今晚土拨鼠站岗 https://www.kmjike.com/book/4mlvlmt/
+- 笨蛋土拨鼠站岗日志 https://www.kmjike.com/book/4mlvlmt/
 - [原神]魔法使恋爱指南 https://www.kmjike.com/book/4mlvlms/
 - 魔改剧本后我爆火了[娱乐圈] https://www.kmjike.com/book/4mlvlmr/
 - 末世八年春，游戏降临 https://www.kmjike.com/book/4mlvlmq/
@@ -80,10 +80,10 @@
 - 双生子反派的端水抑郁妈[九零] https://www.kmjike.com/book/4mlvlm7/
 - [封神]圣人生欲 https://www.kmjike.com/book/4mlvlgr/
 - 原配夫人 https://www.kmjike.com/book/4mlvlgm/
-- 星际团宠小人鱼 https://www.kmjike.com/book/4mlvlgg/
 - 十九世纪贵族厨房（美食） https://www.kmjike.com/book/4mlvlg0/
 - 始乱终弃清冷首辅后 https://www.kmjike.com/book/4mlvlfu/
 - 高调装神，猥琐发育 https://www.kmjike.com/book/4mlvlef/
+- 我只梦你一页 https://www.kmjike.com/book/4mlvlec/
 - 浣熊市蝙蝠崽的哥谭居住指南 https://www.kmjike.com/book/4mlvldk/
 - 直男咒术师的限制级游戏 https://www.kmjike.com/book/4mlvld8/
 - 六零之成了卷王的妹妹 https://www.kmjike.com/book/4mlvk19/
@@ -100,7 +100,6 @@
 - 如何嫁给当朝首辅 https://www.kmjike.com/book/4mlssju/
 - 食明 https://www.kmjike.com/book/4mlsru1/
 - 诡话第一boss https://www.kmjike.com/book/4mlsol7/
-- 仙门透明人被迫万人迷 https://www.kmjike.com/book/4mlskg1/
 - 让暴君Alpha怀崽后 https://www.kmjike.com/book/4mlsicc/
 - 老实人妻，但顶级魅魔 https://www.kmjike.com/book/4mlshe4/
 - 日化人生[科研] https://www.kmjike.com/book/4mlsfat/
@@ -110,7 +109,6 @@
 - 趁她之危 https://www.kmjike.com/book/4mlsb7n/
 - [足球]我的游戏存档成真了？！ https://www.kmjike.com/book/4mls9eb/
 - 起初，我只是想找个冤大头 https://www.kmjike.com/book/4mls3jh/
-- 摄政王家的咸鱼夫郎 https://www.kmjike.com/book/4mls0n2/
 - 死遁的亡夫们都回来了 https://www.kmjike.com/book/f28k6o/
 - 沈助理又在隐藏他的超能力 https://www.kmjike.com/book/f28hep/
 - 天幕今天也在直播我搞基建 https://www.kmjike.com/book/f28fof/
@@ -138,7 +136,6 @@
 - 清冷丞相怀了死对头的崽 https://www.kmjike.com/book/f2724r/
 - 卷王后妈，八零养娃 https://www.kmjike.com/book/f271lg/
 - 让霸刀山庄重回忍界之巅[综剑三] https://www.kmjike.com/book/f270ur/
-- 这个位面归我了！[经营] https://www.kmjike.com/book/f270bg/
 - 和山神搭伙开农场的日子 https://www.kmjike.com/book/f26te9/
 - 恶犬攻绑定上司的乖狗系统 https://www.kmjike.com/book/f26se2/
 - 心动嫌疑人 https://www.kmjike.com/book/f26rav/
@@ -161,6 +158,7 @@
 - 完蛋！被恨孕男包围了！ https://www.kmjike.com/book/4qa5b/
 - 全民求生:从小木屋到魔法农场 https://www.kmjike.com/book/4qa3o/
 - 清澈女大的六零年代 https://www.kmjike.com/book/4qa07/
+- 月亮上的大筒木 https://www.kmjike.com/book/4q9rc/
 ## 相关内容
 - [README](/README.md)
 - [首页](/site1298/index.md)
